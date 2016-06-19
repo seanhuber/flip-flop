@@ -1,1 +1,1 @@
-:busts_in_silhouette:
+:rice_scene:
