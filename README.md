@@ -1,1 +1,1 @@
-:kr:
+:crescent_moon:
