@@ -1,1 +1,1 @@
-:arrow_forward:
+:open_mouth:
