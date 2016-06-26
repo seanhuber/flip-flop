@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:twisted_rightwards_arrows:
