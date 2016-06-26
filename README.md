@@ -1,1 +1,1 @@
-:ship:
+:oncoming_taxi:
