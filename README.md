@@ -1,1 +1,1 @@
-:couple:
+:speech_balloon:
