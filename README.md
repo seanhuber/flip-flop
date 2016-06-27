@@ -1,1 +1,1 @@
-:seedling:
+:telephone_receiver:
