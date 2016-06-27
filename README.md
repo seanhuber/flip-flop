@@ -1,1 +1,1 @@
-:telephone_receiver:
+:first_quarter_moon:
