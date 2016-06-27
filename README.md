@@ -1,1 +1,1 @@
-:euro:
+:fallen_leaf:
