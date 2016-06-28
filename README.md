@@ -1,1 +1,1 @@
-:punch:
+:video_camera:
