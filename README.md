@@ -1,1 +1,1 @@
-:cake:
+:arrow_right:
