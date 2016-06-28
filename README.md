@@ -1,1 +1,1 @@
-:facepunch:
+:punch:
