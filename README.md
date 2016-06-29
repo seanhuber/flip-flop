@@ -1,1 +1,1 @@
-:octopus:
+:point_down:
