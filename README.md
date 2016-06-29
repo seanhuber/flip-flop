@@ -1,1 +1,1 @@
-:disappointed:
+:globe_with_meridians:
