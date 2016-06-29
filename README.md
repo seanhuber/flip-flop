@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:bride_with_veil:
