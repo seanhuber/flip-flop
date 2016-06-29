@@ -1,1 +1,1 @@
-:bride_with_veil:
+:small_blue_diamond:
