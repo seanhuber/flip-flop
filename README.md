@@ -1,1 +1,1 @@
-:speaker:
+:arrow_down_small:
