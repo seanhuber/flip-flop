@@ -1,1 +1,1 @@
-:heart:
+:point_left:
