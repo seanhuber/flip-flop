@@ -1,1 +1,1 @@
-:gemini:
+:ferris_wheel:
