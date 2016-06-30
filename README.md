@@ -1,1 +1,1 @@
-:volcano:
+:heart:
