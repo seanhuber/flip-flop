@@ -1,1 +1,1 @@
-:arrow_down:
+:ideograph_advantage:
