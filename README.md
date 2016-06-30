@@ -1,1 +1,1 @@
-:alien:
+:bust_in_silhouette:
