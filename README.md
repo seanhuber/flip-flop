@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:tired_face:
