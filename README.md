@@ -1,1 +1,1 @@
-:cow2:
+:steam_locomotive:
