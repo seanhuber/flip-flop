@@ -1,1 +1,1 @@
-:simple_smile:
+:small_red_triangle:
