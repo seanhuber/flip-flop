@@ -1,1 +1,1 @@
-:rice_scene:
+:oncoming_automobile:
