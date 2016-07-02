@@ -1,1 +1,1 @@
-:bow:
+:rugby_football:
