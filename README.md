@@ -1,1 +1,1 @@
-:heavy_exclamation_mark:
+:eight_spoked_asterisk:
