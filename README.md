@@ -1,1 +1,1 @@
-:fountain:
+:simple_smile:
