@@ -1,1 +1,1 @@
-:speaker:
+:checkered_flag:
