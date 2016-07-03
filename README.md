@@ -1,1 +1,1 @@
-:disappointed_relieved:
+:mount_fuji:
