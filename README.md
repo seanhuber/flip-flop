@@ -1,1 +1,1 @@
-:arrow_lower_left:
+:tropical_fish:
