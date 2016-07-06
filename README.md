@@ -1,1 +1,1 @@
-:accept:
+:arrow_double_up:
