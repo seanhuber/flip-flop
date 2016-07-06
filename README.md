@@ -1,1 +1,1 @@
-:birthday:
+:cupid:
