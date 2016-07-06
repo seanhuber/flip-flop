@@ -1,1 +1,1 @@
-:tennis:
+:globe_with_meridians:
