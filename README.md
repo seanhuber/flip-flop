@@ -1,1 +1,1 @@
-:wolf:
+:horse_racing:
