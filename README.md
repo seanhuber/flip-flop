@@ -1,1 +1,1 @@
-:goat:
+:closed_umbrella:
