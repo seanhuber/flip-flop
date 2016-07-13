@@ -1,1 +1,1 @@
-:end:
+:milky_way:
