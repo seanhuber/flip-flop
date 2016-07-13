@@ -1,1 +1,1 @@
-:bullettrain_front:
+:arrow_up_small:
