@@ -1,1 +1,1 @@
-:two_hearts:
+:mountain_cableway:
