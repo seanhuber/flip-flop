@@ -1,1 +1,1 @@
-:toilet:
+:bullettrain_side:
