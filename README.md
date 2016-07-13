@@ -1,1 +1,1 @@
-:carousel_horse:
+:two_hearts:
