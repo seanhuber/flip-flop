@@ -1,1 +1,1 @@
-:clock3:
+:small_orange_diamond:
