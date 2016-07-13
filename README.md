@@ -1,1 +1,1 @@
-:blue_book:
+:part_alternation_mark:
