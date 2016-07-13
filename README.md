@@ -1,1 +1,1 @@
-:black_square_button:
+:bust_in_silhouette:
