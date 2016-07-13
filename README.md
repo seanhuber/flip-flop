@@ -1,1 +1,1 @@
-:peach:
+:waxing_gibbous_moon:
