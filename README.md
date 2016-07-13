@@ -1,1 +1,1 @@
-:small_orange_diamond:
+:bullettrain_front:
