@@ -1,1 +1,1 @@
-:ghost:
+:straight_ruler:
