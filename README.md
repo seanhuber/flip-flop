@@ -1,1 +1,1 @@
-:rage:
+:purple_heart:
