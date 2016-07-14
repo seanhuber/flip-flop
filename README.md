@@ -1,1 +1,1 @@
-:bowling:
+:smile_cat:
