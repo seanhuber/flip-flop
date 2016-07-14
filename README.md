@@ -1,1 +1,1 @@
-:eyes:
+:arrow_down_small:
