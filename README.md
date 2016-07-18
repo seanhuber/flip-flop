@@ -1,1 +1,1 @@
-:no_pedestrians:
+:globe_with_meridians:
