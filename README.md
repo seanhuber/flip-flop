@@ -1,1 +1,1 @@
-:telescope:
+:arrows_counterclockwise:
