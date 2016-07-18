@@ -1,1 +1,1 @@
-:neutral_face:
+:arrow_lower_right:
