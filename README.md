@@ -1,1 +1,1 @@
-:sagittarius:
+:christmas_tree:
