@@ -1,1 +1,1 @@
-:orange_book:
+:no_pedestrians:
