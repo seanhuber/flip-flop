@@ -1,1 +1,1 @@
-:mega:
+:last_quarter_moon:
