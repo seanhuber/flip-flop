@@ -1,1 +1,1 @@
-:mans_shoe:
+:neutral_face:
