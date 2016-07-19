@@ -1,1 +1,1 @@
-:joy:
+:traffic_light:
