@@ -1,1 +1,1 @@
-:virgo:
+:last_quarter_moon:
