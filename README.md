@@ -1,1 +1,1 @@
-:school_satchel:
+:money_with_wings:
