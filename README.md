@@ -1,1 +1,1 @@
-:lips:
+:open_hands:
