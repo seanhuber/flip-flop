@@ -1,1 +1,1 @@
-:lock:
+:carousel_horse:
