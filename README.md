@@ -1,1 +1,1 @@
-:8ball:
+:information_desk_person:
