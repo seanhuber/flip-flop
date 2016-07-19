@@ -1,1 +1,1 @@
-:money_with_wings:
+:dromedary_camel:
