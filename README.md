@@ -1,1 +1,1 @@
-:black_nib:
+:mans_shoe:
