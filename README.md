@@ -1,1 +1,1 @@
-:full_moon:
+:mag_right:
