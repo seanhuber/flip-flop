@@ -1,1 +1,1 @@
-:droplet:
+:tent:
