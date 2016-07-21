@@ -1,1 +1,1 @@
-:mag_right:
+:earth_asia:
