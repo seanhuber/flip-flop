@@ -1,1 +1,1 @@
-:tent:
+:green_apple:
