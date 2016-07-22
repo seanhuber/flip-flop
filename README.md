@@ -1,1 +1,1 @@
-:symbols:
+:tanabata_tree:
