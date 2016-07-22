@@ -1,1 +1,1 @@
-:telescope:
+:inbox_tray:
