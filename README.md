@@ -1,1 +1,1 @@
-:sparkler:
+:musical_note:
