@@ -1,1 +1,1 @@
-:ear:
+:point_left:
