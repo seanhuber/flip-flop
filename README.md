@@ -1,1 +1,1 @@
-:six:
+:small_orange_diamond:
