@@ -1,1 +1,1 @@
-:snowboarder:
+:bar_chart:
