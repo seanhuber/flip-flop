@@ -1,1 +1,1 @@
-:scorpius:
+:postal_horn:
