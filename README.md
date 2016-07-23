@@ -1,1 +1,1 @@
-:dash:
+:baby_symbol:
