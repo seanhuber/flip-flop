@@ -1,1 +1,1 @@
-:speech_balloon:
+:mailbox_with_mail:
