@@ -1,1 +1,1 @@
-:left_luggage:
+:thought_balloon:
