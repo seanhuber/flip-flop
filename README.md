@@ -1,1 +1,1 @@
-:game_die:
+:left_luggage:
