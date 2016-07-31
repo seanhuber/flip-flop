@@ -1,1 +1,1 @@
-:ship:
+:black_large_square:
