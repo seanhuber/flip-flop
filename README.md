@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:dizzy_face:
