@@ -1,1 +1,1 @@
-:telephone:
+:card_index:
