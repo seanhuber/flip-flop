@@ -1,1 +1,1 @@
-:curly_loop:
+:heart_eyes_cat:
