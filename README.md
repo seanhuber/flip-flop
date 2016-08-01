@@ -1,1 +1,1 @@
-:rage1:
+:tired_face:
