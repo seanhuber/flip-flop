@@ -1,1 +1,1 @@
-:beetle:
+:jack_o_lantern:
