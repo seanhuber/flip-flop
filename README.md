@@ -1,1 +1,1 @@
-:anchor:
+:stuck_out_tongue:
