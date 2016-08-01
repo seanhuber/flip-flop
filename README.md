@@ -1,1 +1,1 @@
-:wave:
+:performing_arts:
