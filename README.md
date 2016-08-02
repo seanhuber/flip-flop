@@ -1,1 +1,1 @@
-:dollar:
+:earth_asia:
