@@ -1,1 +1,1 @@
-:running:
+:point_right:
