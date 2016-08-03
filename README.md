@@ -1,1 +1,1 @@
-:ski:
+:scream_cat:
