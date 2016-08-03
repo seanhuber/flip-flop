@@ -1,1 +1,1 @@
-:moyai:
+:white_square_button:
