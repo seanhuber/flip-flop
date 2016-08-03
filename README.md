@@ -1,1 +1,1 @@
-:page_with_curl:
+:checkered_flag:
