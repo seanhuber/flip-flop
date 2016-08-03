@@ -1,1 +1,1 @@
-:factory:
+:page_with_curl:
