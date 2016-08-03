@@ -1,1 +1,1 @@
-:grinning:
+:space_invader:
