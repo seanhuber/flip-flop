@@ -1,1 +1,1 @@
-:battery:
+:white_check_mark:
