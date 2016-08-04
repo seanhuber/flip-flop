@@ -1,1 +1,1 @@
-:bust_in_silhouette:
+:heavy_plus_sign:
