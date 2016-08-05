@@ -1,1 +1,1 @@
-:open_file_folder:
+:ballot_box_with_check:
