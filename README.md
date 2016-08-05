@@ -1,1 +1,1 @@
-:ok_woman:
+:heavy_dollar_sign:
