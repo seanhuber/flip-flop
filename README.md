@@ -1,1 +1,1 @@
-:u6e80:
+:chart_with_upwards_trend:
