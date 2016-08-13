@@ -1,1 +1,1 @@
-:church:
+:triangular_ruler:
