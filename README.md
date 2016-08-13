@@ -1,1 +1,1 @@
-:loop:
+:movie_camera:
