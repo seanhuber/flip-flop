@@ -1,1 +1,1 @@
-:triumph:
+:white_square_button:
