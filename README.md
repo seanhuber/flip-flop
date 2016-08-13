@@ -1,1 +1,1 @@
-:bikini:
+:raised_hands:
