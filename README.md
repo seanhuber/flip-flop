@@ -1,1 +1,1 @@
-:dolls:
+:waning_gibbous_moon:
