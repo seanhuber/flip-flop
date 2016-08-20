@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:eggplant:
