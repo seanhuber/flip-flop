@@ -1,1 +1,1 @@
-:trident:
+:school_satchel:
