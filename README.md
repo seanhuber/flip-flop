@@ -1,1 +1,1 @@
-:flags:
+:closed_book:
