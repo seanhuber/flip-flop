@@ -1,1 +1,1 @@
-:lollipop:
+:no_pedestrians:
