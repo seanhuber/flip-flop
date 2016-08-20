@@ -1,1 +1,1 @@
-:car:
+:black_medium_square:
