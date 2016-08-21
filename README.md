@@ -1,1 +1,1 @@
-:four:
+:small_orange_diamond:
