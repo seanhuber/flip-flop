@@ -1,1 +1,1 @@
-:candy:
+:smile_cat:
