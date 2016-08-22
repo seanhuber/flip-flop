@@ -1,1 +1,1 @@
-:green_apple:
+:ferris_wheel:
