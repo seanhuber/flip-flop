@@ -1,1 +1,1 @@
-:horse_racing:
+:purple_heart:
