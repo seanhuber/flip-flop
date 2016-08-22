@@ -1,1 +1,1 @@
-:six_pointed_star:
+:black_medium_square:
