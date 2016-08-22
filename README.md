@@ -1,1 +1,1 @@
-:sleepy:
+:beetle:
