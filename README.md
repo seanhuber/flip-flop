@@ -1,1 +1,1 @@
-:jp:
+:horse_racing:
