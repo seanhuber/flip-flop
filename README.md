@@ -1,1 +1,1 @@
-:camera:
+:green_apple:
