@@ -1,1 +1,1 @@
-:mountain_railway:
+:waning_crescent_moon:
