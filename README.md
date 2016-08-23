@@ -1,1 +1,1 @@
-:cool:
+:black_circle:
