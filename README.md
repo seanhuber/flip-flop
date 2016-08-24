@@ -1,1 +1,1 @@
-:camera:
+:no_smoking:
