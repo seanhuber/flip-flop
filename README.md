@@ -1,1 +1,1 @@
-:wheelchair:
+:izakaya_lantern:
