@@ -1,1 +1,1 @@
-:sunglasses:
+:tired_face:
