@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:vertical_traffic_light:
