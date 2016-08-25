@@ -1,1 +1,1 @@
-:violin:
+:heavy_minus_sign:
