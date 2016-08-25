@@ -1,1 +1,1 @@
-:dvd:
+:waning_gibbous_moon:
