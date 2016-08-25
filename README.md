@@ -1,1 +1,1 @@
-:six:
+:raised_hands:
