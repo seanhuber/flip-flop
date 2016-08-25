@@ -1,1 +1,1 @@
-:paperclip:
+:sunrise_over_mountains:
