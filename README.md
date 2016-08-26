@@ -1,1 +1,1 @@
-:dango:
+:twisted_rightwards_arrows:
