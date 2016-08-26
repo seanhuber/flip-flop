@@ -1,1 +1,1 @@
-:ram:
+:potable_water:
