@@ -1,1 +1,1 @@
-:ox:
+:point_left:
