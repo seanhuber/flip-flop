@@ -1,1 +1,1 @@
-:clubs:
+:musical_keyboard:
