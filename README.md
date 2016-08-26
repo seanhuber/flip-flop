@@ -1,1 +1,1 @@
-:musical_keyboard:
+:kissing_cat:
