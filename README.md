@@ -1,1 +1,1 @@
-:gun:
+:triangular_ruler:
