@@ -1,1 +1,1 @@
-:no_mouth:
+:honey_pot:
