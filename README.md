@@ -1,1 +1,1 @@
-:outbox_tray:
+:no_entry_sign:
