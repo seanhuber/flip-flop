@@ -1,1 +1,1 @@
-:art:
+:outbox_tray:
