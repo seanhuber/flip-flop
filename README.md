@@ -1,1 +1,1 @@
-:honey_pot:
+:person_with_blond_hair:
