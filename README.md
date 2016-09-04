@@ -1,1 +1,1 @@
-:aquarius:
+:flower_playing_cards:
