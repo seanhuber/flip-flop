@@ -1,1 +1,1 @@
-:sound:
+:point_up:
