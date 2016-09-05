@@ -1,1 +1,1 @@
-:outbox_tray:
+:palm_tree:
