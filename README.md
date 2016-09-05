@@ -1,1 +1,1 @@
-:point_up:
+:fast_forward:
