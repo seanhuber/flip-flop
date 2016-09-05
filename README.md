@@ -1,1 +1,1 @@
-:palm_tree:
+:card_index:
