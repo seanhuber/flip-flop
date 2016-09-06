@@ -1,1 +1,1 @@
-:purple_heart:
+:small_red_triangle:
