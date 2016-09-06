@@ -1,1 +1,1 @@
-:necktie:
+:mortar_board:
