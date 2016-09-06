@@ -1,1 +1,1 @@
-:blue_book:
+:earth_asia:
