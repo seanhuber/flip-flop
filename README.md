@@ -1,1 +1,1 @@
-:heavy_plus_sign:
+:earth_americas:
