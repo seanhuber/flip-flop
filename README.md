@@ -1,1 +1,1 @@
-:clock10:
+:hatching_chick:
