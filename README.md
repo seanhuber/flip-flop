@@ -1,1 +1,1 @@
-:electric_plug:
+:heavy_minus_sign:
