@@ -1,1 +1,1 @@
-:paw_prints:
+:blue_book:
