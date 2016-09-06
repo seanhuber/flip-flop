@@ -1,1 +1,1 @@
-:strawberry:
+:necktie:
