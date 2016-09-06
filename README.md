@@ -1,1 +1,1 @@
-:pencil:
+:baby_chick:
