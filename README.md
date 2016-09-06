@@ -1,1 +1,1 @@
-:earth_americas:
+:dragon_face:
