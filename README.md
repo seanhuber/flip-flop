@@ -1,1 +1,1 @@
-:video_camera:
+:railway_car:
