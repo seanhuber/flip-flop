@@ -1,1 +1,1 @@
-:wind_chime:
+:sun_with_face:
