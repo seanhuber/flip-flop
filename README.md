@@ -1,1 +1,1 @@
-:cookie:
+:point_up_2:
