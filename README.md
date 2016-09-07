@@ -1,1 +1,1 @@
-:grinning:
+:video_camera:
