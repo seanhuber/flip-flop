@@ -1,1 +1,1 @@
-:unamused:
+:mount_fuji:
