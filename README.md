@@ -1,1 +1,1 @@
-:books:
+:large_blue_circle:
