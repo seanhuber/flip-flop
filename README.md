@@ -1,1 +1,1 @@
-:mount_fuji:
+:heavy_plus_sign:
