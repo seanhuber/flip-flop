@@ -1,1 +1,1 @@
-:atm:
+:earth_africa:
