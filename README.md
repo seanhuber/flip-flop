@@ -1,1 +1,1 @@
-:earth_africa:
+:two_men_holding_hands:
