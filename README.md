@@ -1,1 +1,1 @@
-:fire_engine:
+:black_large_square:
