@@ -1,1 +1,1 @@
-:ghost:
+:oncoming_bus:
