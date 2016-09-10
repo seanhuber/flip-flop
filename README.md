@@ -1,1 +1,1 @@
-:handbag:
+:musical_score:
