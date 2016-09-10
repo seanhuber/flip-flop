@@ -1,1 +1,1 @@
-:aquarius:
+:partly_sunny:
