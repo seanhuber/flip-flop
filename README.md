@@ -1,1 +1,1 @@
-:angry:
+:roller_coaster:
