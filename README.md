@@ -1,1 +1,1 @@
-:musical_score:
+:ok_hand:
