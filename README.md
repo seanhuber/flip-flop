@@ -1,1 +1,1 @@
-:partly_sunny:
+:bride_with_veil:
