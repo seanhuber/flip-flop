@@ -1,1 +1,1 @@
-:ok_hand:
+:oncoming_automobile:
