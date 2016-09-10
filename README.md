@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:eight_spoked_asterisk:
