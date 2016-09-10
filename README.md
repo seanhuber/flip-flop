@@ -1,1 +1,1 @@
-:eight_spoked_asterisk:
+:two_men_holding_hands:
