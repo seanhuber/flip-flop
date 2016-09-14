@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:do_not_litter:
