@@ -1,1 +1,1 @@
-:mail:
+:european_post_office:
