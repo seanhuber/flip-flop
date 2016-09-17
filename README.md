@@ -1,1 +1,1 @@
-:clock10:
+:small_blue_diamond:
