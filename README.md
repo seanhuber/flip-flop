@@ -1,1 +1,1 @@
-:accept:
+:monkey_face:
