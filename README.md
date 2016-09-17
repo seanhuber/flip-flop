@@ -1,1 +1,1 @@
-:monkey_face:
+:u55b6:
