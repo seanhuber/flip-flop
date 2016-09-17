@@ -1,1 +1,1 @@
-:u55b6:
+:ear_of_rice:
