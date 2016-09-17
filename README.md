@@ -1,1 +1,1 @@
-:icecream:
+:poultry_leg:
