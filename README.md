@@ -1,1 +1,1 @@
-:dragon_face:
+:ok_woman:
