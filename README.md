@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:cow2:
