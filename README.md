@@ -1,1 +1,1 @@
-:trident:
+:left_luggage:
