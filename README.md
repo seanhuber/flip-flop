@@ -1,1 +1,1 @@
-:link:
+:high_brightness:
