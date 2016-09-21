@@ -1,1 +1,1 @@
-:microscope:
+:globe_with_meridians:
