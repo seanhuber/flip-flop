@@ -1,1 +1,1 @@
-:briefcase:
+:mailbox_closed:
