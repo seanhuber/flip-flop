@@ -1,1 +1,1 @@
-:hotsprings:
+:circus_tent:
