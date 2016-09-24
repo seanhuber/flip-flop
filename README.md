@@ -1,1 +1,1 @@
-:ice_cream:
+:bridge_at_night:
