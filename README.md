@@ -1,1 +1,1 @@
-:dog:
+:raising_hand:
