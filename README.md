@@ -1,1 +1,1 @@
-:crown:
+:white_large_square:
