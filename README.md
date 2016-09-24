@@ -1,1 +1,1 @@
-:cyclone:
+:aerial_tramway:
