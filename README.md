@@ -1,1 +1,1 @@
-:aerial_tramway:
+:new_moon:
