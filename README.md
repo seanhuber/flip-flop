@@ -1,1 +1,1 @@
-:clock1030:
+:raising_hand:
