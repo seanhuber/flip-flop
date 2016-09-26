@@ -1,1 +1,1 @@
-:vibration_mode:
+:ballot_box_with_check:
