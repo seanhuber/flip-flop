@@ -1,1 +1,1 @@
-:thumbsup:
+:vibration_mode:
