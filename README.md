@@ -1,1 +1,1 @@
-:clock4:
+:information_desk_person:
