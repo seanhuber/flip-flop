@@ -1,1 +1,1 @@
-:bento:
+:white_check_mark:
