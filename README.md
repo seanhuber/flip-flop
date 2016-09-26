@@ -1,1 +1,1 @@
-:ramen:
+:crying_cat_face:
