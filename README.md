@@ -1,1 +1,1 @@
-:camel:
+:neutral_face:
