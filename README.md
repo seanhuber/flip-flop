@@ -1,1 +1,1 @@
-:jeans:
+:horse_racing:
