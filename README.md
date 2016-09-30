@@ -1,1 +1,1 @@
-:pager:
+:left_right_arrow:
