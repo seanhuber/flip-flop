@@ -1,1 +1,1 @@
-:wave:
+:bullettrain_side:
