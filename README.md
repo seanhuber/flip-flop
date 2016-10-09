@@ -1,1 +1,1 @@
-:heavy_exclamation_mark:
+:articulated_lorry:
