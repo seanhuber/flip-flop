@@ -1,1 +1,1 @@
-:keycap_ten:
+:rugby_football:
