@@ -1,1 +1,1 @@
-:seven:
+:new_moon:
