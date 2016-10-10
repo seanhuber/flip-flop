@@ -1,1 +1,1 @@
-:heavy_check_mark:
+:heavy_plus_sign:
