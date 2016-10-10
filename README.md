@@ -1,1 +1,1 @@
-:trumpet:
+:egg:
