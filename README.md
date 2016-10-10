@@ -1,1 +1,1 @@
-:new_moon:
+:sweat_drops:
