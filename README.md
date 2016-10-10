@@ -1,1 +1,1 @@
-:poop:
+:arrow_right_hook:
