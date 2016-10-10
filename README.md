@@ -1,1 +1,1 @@
-:laughing:
+:mobile_phone_off:
