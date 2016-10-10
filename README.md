@@ -1,1 +1,1 @@
-:tanabata_tree:
+:sun_with_face:
