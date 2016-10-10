@@ -1,1 +1,1 @@
-:smoking:
+:name_badge:
