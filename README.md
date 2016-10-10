@@ -1,1 +1,1 @@
-:point_down:
+:part_alternation_mark:
