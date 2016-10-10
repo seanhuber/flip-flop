@@ -1,1 +1,1 @@
-:battery:
+:green_book:
