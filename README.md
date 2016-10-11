@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:person_with_blond_hair:
