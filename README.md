@@ -1,1 +1,1 @@
-:notebook:
+:love_hotel:
