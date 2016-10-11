@@ -1,1 +1,1 @@
-:trident:
+:statue_of_liberty:
