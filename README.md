@@ -1,1 +1,1 @@
-:handbag:
+:postal_horn:
