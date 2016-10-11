@@ -1,1 +1,1 @@
-:eggplant:
+:raised_hand:
