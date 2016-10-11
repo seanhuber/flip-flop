@@ -1,1 +1,1 @@
-:raised_hand:
+:purple_heart:
