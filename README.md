@@ -1,1 +1,1 @@
-:mans_shoe:
+:tired_face:
