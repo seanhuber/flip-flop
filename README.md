@@ -1,1 +1,1 @@
-:baggage_claim:
+:raising_hand:
