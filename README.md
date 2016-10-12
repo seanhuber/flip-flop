@@ -1,1 +1,1 @@
-:japan:
+:heavy_multiplication_x:
