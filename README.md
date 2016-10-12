@@ -1,1 +1,1 @@
-:pensive:
+:mortar_board:
