@@ -1,1 +1,1 @@
-:tired_face:
+:large_blue_diamond:
