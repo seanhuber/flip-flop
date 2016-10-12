@@ -1,1 +1,1 @@
-:mortar_board:
+:baggage_claim:
