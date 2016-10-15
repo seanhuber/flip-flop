@@ -1,1 +1,1 @@
-:satisfied:
+:ski:
