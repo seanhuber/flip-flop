@@ -1,1 +1,1 @@
-:blue_car:
+:hourglass_flowing_sand:
