@@ -1,1 +1,1 @@
-:poultry_leg:
+:fishing_pole_and_fish:
