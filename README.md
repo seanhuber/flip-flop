@@ -1,1 +1,1 @@
-:name_badge:
+:point_right:
