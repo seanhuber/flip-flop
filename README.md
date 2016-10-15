@@ -1,1 +1,1 @@
-:unamused:
+:poultry_leg:
