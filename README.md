@@ -1,1 +1,1 @@
-:cd:
+:earth_americas:
