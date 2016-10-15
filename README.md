@@ -1,1 +1,1 @@
-:raised_hands:
+:traffic_light:
