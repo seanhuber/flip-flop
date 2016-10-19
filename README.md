@@ -1,1 +1,1 @@
-:electric_plug:
+:currency_exchange:
