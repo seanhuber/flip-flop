@@ -1,1 +1,1 @@
-:chocolate_bar:
+:leftwards_arrow_with_hook:
