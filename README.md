@@ -1,1 +1,1 @@
-:cloud:
+:baby_symbol:
