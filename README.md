@@ -1,1 +1,1 @@
-:clapper:
+:chocolate_bar:
