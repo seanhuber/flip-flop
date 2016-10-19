@@ -1,1 +1,1 @@
-:hospital:
+:arrows_counterclockwise:
