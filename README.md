@@ -1,1 +1,1 @@
-:closed_book:
+:large_blue_circle:
