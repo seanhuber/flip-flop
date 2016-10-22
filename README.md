@@ -1,1 +1,1 @@
-:blowfish:
+:jack_o_lantern:
