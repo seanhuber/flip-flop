@@ -1,1 +1,1 @@
-:dancers:
+:sun_with_face:
