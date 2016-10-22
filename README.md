@@ -1,1 +1,1 @@
-:sa:
+:small_red_triangle:
