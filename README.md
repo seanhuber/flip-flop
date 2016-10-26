@@ -1,1 +1,1 @@
-:bird:
+:chart_with_downwards_trend:
