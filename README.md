@@ -1,1 +1,1 @@
-:tired_face:
+:bust_in_silhouette:
