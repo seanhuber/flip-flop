@@ -1,1 +1,1 @@
-:haircut:
+:space_invader:
