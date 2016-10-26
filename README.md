@@ -1,1 +1,1 @@
-:moneybag:
+:tired_face:
