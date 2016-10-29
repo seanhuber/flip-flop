@@ -1,1 +1,1 @@
-:melon:
+:earth_americas:
