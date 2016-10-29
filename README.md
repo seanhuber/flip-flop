@@ -1,1 +1,1 @@
-:pound:
+:currency_exchange:
