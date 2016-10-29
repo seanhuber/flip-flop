@@ -1,1 +1,1 @@
-:postbox:
+:registered:
