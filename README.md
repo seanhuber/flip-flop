@@ -1,1 +1,1 @@
-:toilet:
+:heavy_division_sign:
