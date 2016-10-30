@@ -1,1 +1,1 @@
-:open_hands:
+:mag_right:
