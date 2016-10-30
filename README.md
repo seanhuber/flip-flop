@@ -1,1 +1,1 @@
-:joy:
+:bullettrain_front:
