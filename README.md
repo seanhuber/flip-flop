@@ -1,1 +1,1 @@
-:satellite:
+:checkered_flag:
