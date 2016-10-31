@@ -1,1 +1,1 @@
-:floppy_disk:
+:notebook_with_decorative_cover:
