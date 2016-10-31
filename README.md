@@ -1,1 +1,1 @@
-:tada:
+:rugby_football:
