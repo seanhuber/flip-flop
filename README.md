@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:red_car:
