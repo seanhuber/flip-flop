@@ -1,1 +1,1 @@
-:boom:
+:money_with_wings:
