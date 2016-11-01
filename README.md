@@ -1,1 +1,1 @@
-:japanese_ogre:
+:tiger2:
