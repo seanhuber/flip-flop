@@ -1,1 +1,1 @@
-:blue_book:
+:japanese_ogre:
