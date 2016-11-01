@@ -1,1 +1,1 @@
-:moyai:
+:tiger2:
