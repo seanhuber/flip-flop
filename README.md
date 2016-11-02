@@ -1,1 +1,1 @@
-:stuck_out_tongue_winking_eye:
+:last_quarter_moon_with_face:
