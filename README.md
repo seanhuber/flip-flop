@@ -1,1 +1,1 @@
-:cop:
+:arrow_down_small:
