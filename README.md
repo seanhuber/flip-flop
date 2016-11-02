@@ -1,1 +1,1 @@
-:golf:
+:japanese_ogre:
