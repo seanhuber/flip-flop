@@ -1,1 +1,1 @@
-:boot:
+:heavy_check_mark:
