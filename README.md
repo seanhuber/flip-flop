@@ -1,1 +1,1 @@
-:heavy_check_mark:
+:star2:
