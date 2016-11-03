@@ -1,1 +1,1 @@
-:high_heel:
+:ice_cream:
