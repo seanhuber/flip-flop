@@ -1,1 +1,1 @@
-:dancers:
+:rotating_light:
