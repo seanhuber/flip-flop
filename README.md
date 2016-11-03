@@ -1,1 +1,1 @@
-:soccer:
+:crossed_flags:
