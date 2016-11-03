@@ -1,1 +1,1 @@
-:tent:
+:baby_chick:
