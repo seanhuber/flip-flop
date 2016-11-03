@@ -1,1 +1,1 @@
-:angry:
+:nail_care:
