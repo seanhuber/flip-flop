@@ -1,1 +1,1 @@
-:sagittarius:
+:waning_gibbous_moon:
