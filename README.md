@@ -1,1 +1,1 @@
-:scream:
+:point_right:
