@@ -1,1 +1,1 @@
-:fire:
+:wavy_dash:
