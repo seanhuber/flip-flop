@@ -1,1 +1,1 @@
-:laughing:
+:nail_care:
