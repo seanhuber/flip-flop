@@ -1,1 +1,1 @@
-:cancer:
+:waxing_gibbous_moon:
