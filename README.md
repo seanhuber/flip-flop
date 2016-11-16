@@ -1,1 +1,1 @@
-:outbox_tray:
+:neutral_face:
