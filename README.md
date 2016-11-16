@@ -1,1 +1,1 @@
-:hammer:
+:new_moon:
