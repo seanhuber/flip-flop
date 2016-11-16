@@ -1,1 +1,1 @@
-:mouse2:
+:point_right:
