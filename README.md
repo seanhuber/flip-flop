@@ -1,1 +1,1 @@
-:eggplant:
+:capricorn:
