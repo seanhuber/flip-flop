@@ -1,1 +1,1 @@
-:jeans:
+:outbox_tray:
