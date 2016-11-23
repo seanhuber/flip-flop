@@ -1,1 +1,1 @@
-:smile:
+:convenience_store:
