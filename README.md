@@ -1,1 +1,1 @@
-:mega:
+:smoking:
