@@ -1,1 +1,1 @@
-:cherry_blossom:
+:page_facing_up:
