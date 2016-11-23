@@ -1,1 +1,1 @@
-:construction_worker:
+:star2:
