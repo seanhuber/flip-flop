@@ -1,1 +1,1 @@
-:page_facing_up:
+:izakaya_lantern:
