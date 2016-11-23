@@ -1,1 +1,1 @@
-:scorpius:
+:fast_forward:
