@@ -1,1 +1,1 @@
-:cow:
+:game_die:
