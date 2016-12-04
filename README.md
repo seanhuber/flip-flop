@@ -1,1 +1,1 @@
-:volcano:
+:post_office:
