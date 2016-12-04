@@ -1,1 +1,1 @@
-:star2:
+:arrow_heading_up:
