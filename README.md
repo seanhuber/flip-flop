@@ -1,1 +1,1 @@
-:honeybee:
+:musical_note:
