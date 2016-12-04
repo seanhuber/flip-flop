@@ -1,1 +1,1 @@
-:no_mouth:
+:white_small_square:
