@@ -1,1 +1,1 @@
-:smirk:
+:green_book:
