@@ -1,1 +1,1 @@
-:ski:
+:tropical_drink:
