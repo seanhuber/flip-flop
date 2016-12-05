@@ -1,1 +1,1 @@
-:dizzy:
+:fried_shrimp:
