@@ -1,1 +1,1 @@
-:curly_loop:
+:maple_leaf:
