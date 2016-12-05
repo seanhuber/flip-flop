@@ -1,1 +1,1 @@
-:cinema:
+:raised_hands:
