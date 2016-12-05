@@ -1,1 +1,1 @@
-:airplane:
+:curly_loop:
