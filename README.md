@@ -1,1 +1,1 @@
-:construction:
+:poultry_leg:
