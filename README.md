@@ -1,1 +1,1 @@
-:maple_leaf:
+:information_source:
