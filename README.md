@@ -1,1 +1,1 @@
-:neckbeard:
+:partly_sunny:
