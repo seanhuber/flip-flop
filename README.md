@@ -1,1 +1,1 @@
-:rice_ball:
+:chart_with_upwards_trend:
