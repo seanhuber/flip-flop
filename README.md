@@ -1,1 +1,1 @@
-:sun_with_face:
+:rice_ball:
