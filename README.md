@@ -1,1 +1,1 @@
-:partly_sunny:
+:tired_face:
