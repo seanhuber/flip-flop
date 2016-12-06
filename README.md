@@ -1,1 +1,1 @@
-:heavy_check_mark:
+:no_mobile_phones:
