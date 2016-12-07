@@ -1,1 +1,1 @@
-:musical_score:
+:mailbox_closed:
