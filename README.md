@@ -1,1 +1,1 @@
-:negative_squared_cross_mark:
+:scream_cat:
