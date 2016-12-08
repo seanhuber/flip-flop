@@ -1,1 +1,1 @@
-:red_car:
+:negative_squared_cross_mark:
