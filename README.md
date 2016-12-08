@@ -1,1 +1,1 @@
-:smile:
+:mag_right:
