@@ -1,1 +1,1 @@
-:earth_americas:
+:stuck_out_tongue_closed_eyes:
