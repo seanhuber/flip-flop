@@ -1,1 +1,1 @@
-:mute:
+:red_circle:
