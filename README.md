@@ -1,1 +1,1 @@
-:stew:
+:low_brightness:
