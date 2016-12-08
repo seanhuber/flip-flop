@@ -1,1 +1,1 @@
-:mag:
+:musical_score:
