@@ -1,1 +1,1 @@
-:koala:
+:bamboo:
