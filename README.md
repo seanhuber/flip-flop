@@ -1,1 +1,1 @@
-:red_circle:
+:repeat_one:
