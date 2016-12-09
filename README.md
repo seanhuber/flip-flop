@@ -1,1 +1,1 @@
-:first_quarter_moon:
+:hourglass_flowing_sand:
