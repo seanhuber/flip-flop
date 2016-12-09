@@ -1,1 +1,1 @@
-:smoking:
+:first_quarter_moon:
