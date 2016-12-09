@@ -1,1 +1,1 @@
-:rotating_light:
+:department_store:
