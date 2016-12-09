@@ -1,1 +1,1 @@
-:alarm_clock:
+:triangular_ruler:
