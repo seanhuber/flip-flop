@@ -1,1 +1,1 @@
-:department_store:
+:aerial_tramway:
