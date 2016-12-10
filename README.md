@@ -1,1 +1,1 @@
-:minibus:
+:bus:
