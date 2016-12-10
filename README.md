@@ -1,1 +1,1 @@
-:ru:
+:dromedary_camel:
