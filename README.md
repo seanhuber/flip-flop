@@ -1,1 +1,1 @@
-:ok_woman:
+:video_game:
