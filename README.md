@@ -1,1 +1,1 @@
-:four:
+:ok_woman:
