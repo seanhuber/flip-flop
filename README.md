@@ -1,1 +1,1 @@
-:dolphin:
+:man:
