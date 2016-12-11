@@ -1,1 +1,1 @@
-:toilet:
+:arrow_upper_left:
