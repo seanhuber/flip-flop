@@ -1,1 +1,1 @@
-:clipboard:
+:joy_cat:
