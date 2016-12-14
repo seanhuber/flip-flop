@@ -1,1 +1,1 @@
-:trident:
+:smirk_cat:
