@@ -1,1 +1,1 @@
-:roller_coaster:
+:horse_racing:
