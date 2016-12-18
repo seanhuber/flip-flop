@@ -1,1 +1,1 @@
-:japanese_ogre:
+:sun_with_face:
