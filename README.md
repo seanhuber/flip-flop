@@ -1,1 +1,1 @@
-:speaker:
+:wavy_dash:
