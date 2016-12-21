@@ -1,1 +1,1 @@
-:cat:
+:heart_decoration:
