@@ -1,1 +1,1 @@
-:bangbang:
+:loudspeaker:
