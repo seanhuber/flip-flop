@@ -1,1 +1,1 @@
-:clock10:
+:white_square_button:
