@@ -1,1 +1,1 @@
-:arrow_right_hook:
+:see_no_evil:
