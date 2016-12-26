@@ -1,1 +1,1 @@
-:anger:
+:arrow_right_hook:
