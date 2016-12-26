@@ -1,1 +1,1 @@
-:bamboo:
+:mountain_bicyclist:
