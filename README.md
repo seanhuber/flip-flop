@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:page_with_curl:
