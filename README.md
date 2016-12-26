@@ -1,1 +1,1 @@
-:cd:
+:ear_of_rice:
