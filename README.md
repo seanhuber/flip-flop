@@ -1,1 +1,1 @@
-:cyclone:
+:no_entry_sign:
