@@ -1,1 +1,1 @@
-:flushed:
+:articulated_lorry:
