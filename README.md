@@ -1,1 +1,1 @@
-:ski:
+:arrow_up_small:
