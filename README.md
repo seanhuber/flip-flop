@@ -1,1 +1,1 @@
-:closed_umbrella:
+:smiley_cat:
