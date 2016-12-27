@@ -1,1 +1,1 @@
-:articulated_lorry:
+:thought_balloon:
