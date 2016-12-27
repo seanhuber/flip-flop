@@ -1,1 +1,1 @@
-:low_brightness:
+:chocolate_bar:
