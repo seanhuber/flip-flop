@@ -1,1 +1,1 @@
-:chocolate_bar:
+:star2:
