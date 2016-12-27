@@ -1,1 +1,1 @@
-:busstop:
+:six_pointed_star:
