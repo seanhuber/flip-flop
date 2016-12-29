@@ -1,1 +1,1 @@
-:bank:
+:japanese_goblin:
