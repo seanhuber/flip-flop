@@ -1,1 +1,1 @@
-:mute:
+:man_with_turban:
