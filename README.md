@@ -1,1 +1,1 @@
-:closed_book:
+:water_buffalo:
