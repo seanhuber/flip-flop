@@ -1,1 +1,1 @@
-:cactus:
+:black_circle:
