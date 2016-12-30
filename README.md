@@ -1,1 +1,1 @@
-:postbox:
+:closed_book:
