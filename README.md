@@ -1,1 +1,1 @@
-:wind_chime:
+:ballot_box_with_check:
