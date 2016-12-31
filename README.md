@@ -1,1 +1,1 @@
-:mag:
+:information_source:
