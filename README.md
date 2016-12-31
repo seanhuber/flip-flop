@@ -1,1 +1,1 @@
-:beginner:
+:black_circle:
