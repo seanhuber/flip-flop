@@ -1,1 +1,1 @@
-:water_buffalo:
+:high_heel:
