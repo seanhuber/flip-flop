@@ -1,1 +1,1 @@
-:chart:
+:page_with_curl:
