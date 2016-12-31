@@ -1,1 +1,1 @@
-:calendar:
+:wind_chime:
