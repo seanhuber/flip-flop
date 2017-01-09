@@ -1,1 +1,1 @@
-:shaved_ice:
+:large_blue_circle:
