@@ -1,1 +1,1 @@
-:smile_cat:
+:waxing_crescent_moon:
