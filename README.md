@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:cherry_blossom:
