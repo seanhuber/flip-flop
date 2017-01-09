@@ -1,1 +1,1 @@
-:weary:
+:smile_cat:
