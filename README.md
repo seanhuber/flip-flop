@@ -1,1 +1,1 @@
-:anger:
+:bike:
