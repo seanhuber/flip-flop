@@ -1,1 +1,1 @@
-:large_blue_circle:
+:arrow_right:
