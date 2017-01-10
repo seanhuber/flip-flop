@@ -1,1 +1,1 @@
-:helicopter:
+:hourglass_flowing_sand:
