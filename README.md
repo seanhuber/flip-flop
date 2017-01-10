@@ -1,1 +1,1 @@
-:books:
+:heavy_plus_sign:
