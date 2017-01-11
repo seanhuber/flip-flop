@@ -1,1 +1,1 @@
-:sunflower:
+:keycap_ten:
