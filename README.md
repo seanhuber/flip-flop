@@ -1,1 +1,1 @@
-:cold_sweat:
+:slot_machine:
