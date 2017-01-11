@@ -1,1 +1,1 @@
-:beetle:
+:snowman:
