@@ -1,1 +1,1 @@
-:car:
+:steam_locomotive:
