@@ -1,1 +1,1 @@
-:sunny:
+:signal_strength:
