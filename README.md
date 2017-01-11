@@ -1,1 +1,1 @@
-:signal_strength:
+:black_square_button:
