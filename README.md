@@ -1,1 +1,1 @@
-:racehorse:
+:arrow_down_small:
