@@ -1,1 +1,1 @@
-:white_small_square:
+:two_men_holding_hands:
