@@ -1,1 +1,1 @@
-:dizzy:
+:fast_forward:
