@@ -1,1 +1,1 @@
-:runner:
+:white_small_square:
