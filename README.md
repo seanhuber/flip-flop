@@ -1,1 +1,1 @@
-:monkey:
+:mount_fuji:
