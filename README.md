@@ -1,1 +1,1 @@
-:loudspeaker:
+:mailbox:
