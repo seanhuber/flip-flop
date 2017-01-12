@@ -1,1 +1,1 @@
-:bell:
+:sagittarius:
