@@ -1,1 +1,1 @@
-:rice_cracker:
+:white_circle:
