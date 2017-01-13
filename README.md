@@ -1,1 +1,1 @@
-:curry:
+:frowning:
