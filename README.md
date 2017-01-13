@@ -1,1 +1,1 @@
-:bicyclist:
+:rice_cracker:
