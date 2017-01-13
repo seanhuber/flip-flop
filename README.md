@@ -1,1 +1,1 @@
-:woman:
+:mailbox_with_mail:
