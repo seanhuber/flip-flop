@@ -1,1 +1,1 @@
-:performing_arts:
+:bust_in_silhouette:
