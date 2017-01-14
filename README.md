@@ -1,1 +1,1 @@
-:ramen:
+:sweat_drops:
