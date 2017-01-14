@@ -1,1 +1,1 @@
-:snake:
+:four_leaf_clover:
