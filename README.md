@@ -1,1 +1,1 @@
-:green_heart:
+:white_medium_small_square:
