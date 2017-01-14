@@ -1,1 +1,1 @@
-:kissing_heart:
+:speak_no_evil:
