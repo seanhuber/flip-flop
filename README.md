@@ -1,1 +1,1 @@
-:checkered_flag:
+:point_down:
