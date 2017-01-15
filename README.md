@@ -1,1 +1,1 @@
-:thought_balloon:
+:raised_hands:
