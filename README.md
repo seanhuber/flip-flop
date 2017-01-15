@@ -1,1 +1,1 @@
-:water_buffalo:
+:no_mobile_phones:
