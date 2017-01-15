@@ -1,1 +1,1 @@
-:tent:
+:busts_in_silhouette:
