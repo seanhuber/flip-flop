@@ -1,1 +1,1 @@
-:thought_balloon:
+:stuck_out_tongue:
