@@ -1,1 +1,1 @@
-:video_camera:
+:heavy_division_sign:
