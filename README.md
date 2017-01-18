@@ -1,1 +1,1 @@
-:cupid:
+:heavy_plus_sign:
