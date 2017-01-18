@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:closed_lock_with_key:
