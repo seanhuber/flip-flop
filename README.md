@@ -1,1 +1,1 @@
-:heavy_plus_sign:
+:nut_and_bolt:
