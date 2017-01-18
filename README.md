@@ -1,1 +1,1 @@
-:kissing_heart:
+:heavy_minus_sign:
