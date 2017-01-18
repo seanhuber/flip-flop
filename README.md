@@ -1,1 +1,1 @@
-:clock2:
+:ok_hand:
