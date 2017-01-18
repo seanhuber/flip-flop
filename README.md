@@ -1,1 +1,1 @@
-:atm:
+:checkered_flag:
