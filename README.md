@@ -1,1 +1,1 @@
-:construction_worker:
+:sparkling_heart:
