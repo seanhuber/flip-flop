@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:two_women_holding_hands:
