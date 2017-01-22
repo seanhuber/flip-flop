@@ -1,1 +1,1 @@
-:crocodile:
+:tired_face:
