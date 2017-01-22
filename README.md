@@ -1,1 +1,1 @@
-:stars:
+:eight_spoked_asterisk:
