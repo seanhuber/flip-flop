@@ -1,1 +1,1 @@
-:earth_asia:
+:department_store:
