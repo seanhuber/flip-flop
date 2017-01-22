@@ -1,1 +1,1 @@
-:melon:
+:electric_plug:
