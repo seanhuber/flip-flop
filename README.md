@@ -1,1 +1,1 @@
-:accept:
+:christmas_tree:
