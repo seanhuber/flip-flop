@@ -1,1 +1,1 @@
-:taxi:
+:heavy_division_sign:
