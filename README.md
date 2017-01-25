@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:card_index:
