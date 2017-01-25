@@ -1,1 +1,1 @@
-:ice_cream:
+:sun_with_face:
