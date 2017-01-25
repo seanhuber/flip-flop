@@ -1,1 +1,1 @@
-:ram:
+:last_quarter_moon:
