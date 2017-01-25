@@ -1,1 +1,1 @@
-:performing_arts:
+:information_desk_person:
