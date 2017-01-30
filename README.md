@@ -1,1 +1,1 @@
-:camera:
+:twisted_rightwards_arrows:
