@@ -1,1 +1,1 @@
-:smiling_imp:
+:kissing_closed_eyes:
