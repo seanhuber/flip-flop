@@ -1,1 +1,1 @@
-:haircut:
+:bust_in_silhouette:
