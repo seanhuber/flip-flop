@@ -1,1 +1,1 @@
-:watermelon:
+:part_alternation_mark:
