@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:mountain_cableway:
