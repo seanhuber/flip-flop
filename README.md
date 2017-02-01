@@ -1,1 +1,1 @@
-:slot_machine:
+:card_index:
