@@ -1,1 +1,1 @@
-:tada:
+:orange_book:
