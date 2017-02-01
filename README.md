@@ -1,1 +1,1 @@
-:fountain:
+:repeat_one:
