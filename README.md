@@ -1,1 +1,1 @@
-:angry:
+:sweat_drops:
