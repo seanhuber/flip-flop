@@ -1,1 +1,1 @@
-:water_buffalo:
+:hatched_chick:
