@@ -1,1 +1,1 @@
-:anchor:
+:slot_machine:
