@@ -1,1 +1,1 @@
-:orange_book:
+:water_buffalo:
