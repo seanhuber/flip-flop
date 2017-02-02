@@ -1,1 +1,1 @@
-:black_joker:
+:full_moon_with_face:
