@@ -1,1 +1,1 @@
-:blue_car:
+:horse_racing:
