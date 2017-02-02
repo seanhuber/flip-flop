@@ -1,1 +1,1 @@
-:shower:
+:blue_car:
