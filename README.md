@@ -1,1 +1,1 @@
-:bikini:
+:love_letter:
