@@ -1,1 +1,1 @@
-:mag_right:
+:small_red_triangle_down:
