@@ -1,1 +1,1 @@
-:clock7:
+:point_up:
