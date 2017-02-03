@@ -1,1 +1,1 @@
-:bread:
+:six_pointed_star:
