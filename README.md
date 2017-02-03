@@ -1,1 +1,1 @@
-:seven:
+:game_die:
