@@ -1,1 +1,1 @@
-:yen:
+:smiley:
