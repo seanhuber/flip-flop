@@ -1,1 +1,1 @@
-:grey_exclamation:
+:mailbox_with_no_mail:
