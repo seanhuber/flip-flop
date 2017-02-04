@@ -1,1 +1,1 @@
-:poultry_leg:
+:information_desk_person:
