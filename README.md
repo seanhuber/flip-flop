@@ -1,1 +1,1 @@
-:information_desk_person:
+:heavy_minus_sign:
