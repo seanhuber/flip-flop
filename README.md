@@ -1,1 +1,1 @@
-:handbag:
+:keycap_ten:
