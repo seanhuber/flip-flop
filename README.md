@@ -1,1 +1,1 @@
-:triumph:
+:smile_cat:
