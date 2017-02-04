@@ -1,1 +1,1 @@
-:point_up:
+:fork_and_knife:
