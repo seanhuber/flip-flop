@@ -1,1 +1,1 @@
-:microphone:
+:poultry_leg:
