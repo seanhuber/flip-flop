@@ -1,1 +1,1 @@
-:hearts:
+:copyright:
