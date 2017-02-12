@@ -1,1 +1,1 @@
-:doughnut:
+:ear_of_rice:
