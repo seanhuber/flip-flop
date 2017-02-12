@@ -1,1 +1,1 @@
-:golf:
+:school_satchel:
