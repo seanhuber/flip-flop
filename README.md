@@ -1,1 +1,1 @@
-:school_satchel:
+:cherry_blossom:
