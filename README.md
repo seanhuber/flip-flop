@@ -1,1 +1,1 @@
-:wheelchair:
+:black_medium_square:
