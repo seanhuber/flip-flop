@@ -1,1 +1,1 @@
-:spades:
+:bride_with_veil:
