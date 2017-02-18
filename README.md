@@ -1,1 +1,1 @@
-:pig_nose:
+:smiley_cat:
