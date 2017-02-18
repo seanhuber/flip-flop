@@ -1,1 +1,1 @@
-:bride_with_veil:
+:heavy_plus_sign:
