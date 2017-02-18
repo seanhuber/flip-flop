@@ -1,1 +1,1 @@
-:ferris_wheel:
+:small_orange_diamond:
