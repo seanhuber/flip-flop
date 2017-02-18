@@ -1,1 +1,1 @@
-:hand:
+:crying_cat_face:
