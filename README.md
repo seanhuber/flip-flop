@@ -1,1 +1,1 @@
-:copyright:
+:clock730:
