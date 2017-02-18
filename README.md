@@ -1,1 +1,1 @@
-:wine_glass:
+:electric_plug:
