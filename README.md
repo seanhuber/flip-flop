@@ -1,1 +1,1 @@
-:heavy_plus_sign:
+:wine_glass:
