@@ -1,1 +1,1 @@
-:volcano:
+:mountain_railway:
