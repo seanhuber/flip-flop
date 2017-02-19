@@ -1,1 +1,1 @@
-:mountain_railway:
+:outbox_tray:
