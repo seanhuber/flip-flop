@@ -1,1 +1,1 @@
-:whale2:
+:person_frowning:
