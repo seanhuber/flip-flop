@@ -1,1 +1,1 @@
-:outbox_tray:
+:heavy_plus_sign:
