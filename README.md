@@ -1,1 +1,1 @@
-:girl:
+:arrow_up_down:
