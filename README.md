@@ -1,1 +1,1 @@
-:recycle:
+:euro:
