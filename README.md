@@ -1,1 +1,1 @@
-:euro:
+:keycap_ten:
