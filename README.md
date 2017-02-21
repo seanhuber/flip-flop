@@ -1,1 +1,1 @@
-:dash:
+:recycle:
