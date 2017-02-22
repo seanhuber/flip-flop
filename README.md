@@ -1,1 +1,1 @@
-:sos:
+:purple_heart:
