@@ -1,1 +1,1 @@
-:cookie:
+:floppy_disk:
