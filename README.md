@@ -1,1 +1,1 @@
-:hamster:
+:passport_control:
