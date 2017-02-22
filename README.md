@@ -1,1 +1,1 @@
-:foggy:
+:ear_of_rice:
