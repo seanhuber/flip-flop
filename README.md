@@ -1,1 +1,1 @@
-:satisfied:
+:mount_fuji:
