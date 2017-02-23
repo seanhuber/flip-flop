@@ -1,1 +1,1 @@
-:raised_hands:
+:palm_tree:
