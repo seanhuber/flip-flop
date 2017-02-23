@@ -1,1 +1,1 @@
-:wc:
+:triangular_ruler:
