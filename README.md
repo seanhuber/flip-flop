@@ -1,1 +1,1 @@
-:eight_pointed_black_star:
+:u55b6:
