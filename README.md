@@ -1,1 +1,1 @@
-:mount_fuji:
+:poultry_leg:
