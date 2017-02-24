@@ -1,1 +1,1 @@
-:keycap_ten:
+:page_facing_up:
