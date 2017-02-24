@@ -1,1 +1,1 @@
-:page_facing_up:
+:lock_with_ink_pen:
