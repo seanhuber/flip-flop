@@ -1,1 +1,1 @@
-:paperclip:
+:o2:
