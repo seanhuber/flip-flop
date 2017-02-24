@@ -1,1 +1,1 @@
-:leopard:
+:articulated_lorry:
