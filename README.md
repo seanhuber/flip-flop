@@ -1,1 +1,1 @@
-:us:
+:musical_note:
