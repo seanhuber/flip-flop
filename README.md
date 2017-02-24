@@ -1,1 +1,1 @@
-:stew:
+:keycap_ten:
