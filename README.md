@@ -1,1 +1,1 @@
-:triumph:
+:kissing_closed_eyes:
