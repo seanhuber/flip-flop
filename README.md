@@ -1,1 +1,1 @@
-:heavy_exclamation_mark:
+:neutral_face:
