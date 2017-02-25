@@ -1,1 +1,1 @@
-:green_heart:
+:cow2:
