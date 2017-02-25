@@ -1,1 +1,1 @@
-:barber:
+:twisted_rightwards_arrows:
