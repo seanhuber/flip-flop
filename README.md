@@ -1,1 +1,1 @@
-:sweat:
+:waning_gibbous_moon:
