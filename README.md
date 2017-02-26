@@ -1,1 +1,1 @@
-:zap:
+:vertical_traffic_light:
