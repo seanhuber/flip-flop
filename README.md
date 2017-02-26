@@ -1,1 +1,1 @@
-:zap:
+:full_moon:
