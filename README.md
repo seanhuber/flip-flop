@@ -1,1 +1,1 @@
-:horse_racing:
+:tropical_drink:
