@@ -1,1 +1,1 @@
-:hamster:
+:vs:
