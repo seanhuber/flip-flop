@@ -1,1 +1,1 @@
-:es:
+:man_with_turban:
