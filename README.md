@@ -1,1 +1,1 @@
-:question:
+:tokyo_tower:
