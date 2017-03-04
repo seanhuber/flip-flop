@@ -1,1 +1,1 @@
-:snowflake:
+:postal_horn:
