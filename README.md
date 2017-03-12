@@ -1,1 +1,1 @@
-:facepunch:
+:ideograph_advantage:
