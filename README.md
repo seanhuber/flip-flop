@@ -1,1 +1,1 @@
-:bear:
+:no_bicycles:
