@@ -1,1 +1,1 @@
-:star2:
+:mailbox_with_no_mail:
