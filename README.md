@@ -1,1 +1,1 @@
-:pager:
+:school_satchel:
