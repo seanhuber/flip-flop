@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:bust_in_silhouette:
