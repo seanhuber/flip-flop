@@ -1,1 +1,1 @@
-:soccer:
+:partly_sunny:
