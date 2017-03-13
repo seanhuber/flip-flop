@@ -1,1 +1,1 @@
-:toilet:
+:scream_cat:
