@@ -1,1 +1,1 @@
-:minidisc:
+:tropical_drink:
