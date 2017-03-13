@@ -1,1 +1,1 @@
-:coffee:
+:keycap_ten:
