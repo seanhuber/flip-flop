@@ -1,1 +1,1 @@
-:8ball:
+:point_down:
