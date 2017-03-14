@@ -1,1 +1,1 @@
-:couplekiss:
+:point_left:
