@@ -1,1 +1,1 @@
-:raised_hand:
+:open_hands:
