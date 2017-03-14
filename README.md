@@ -1,1 +1,1 @@
-:candy:
+:heavy_multiplication_x:
