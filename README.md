@@ -1,1 +1,1 @@
-:hamster:
+:japanese_goblin:
