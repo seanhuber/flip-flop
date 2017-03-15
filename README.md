@@ -1,1 +1,1 @@
-:bomb:
+:neutral_face:
