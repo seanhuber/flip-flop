@@ -1,1 +1,1 @@
-:tophat:
+:mount_fuji:
