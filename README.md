@@ -1,1 +1,1 @@
-:bug:
+:white_medium_square:
