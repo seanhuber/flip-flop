@@ -1,1 +1,1 @@
-:railway_car:
+:milky_way:
