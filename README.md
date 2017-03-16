@@ -1,1 +1,1 @@
-:newspaper:
+:school_satchel:
