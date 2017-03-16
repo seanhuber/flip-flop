@@ -1,1 +1,1 @@
-:o2:
+:no_entry_sign:
