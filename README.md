@@ -1,1 +1,1 @@
-:sparkle:
+:globe_with_meridians:
