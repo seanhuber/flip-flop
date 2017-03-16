@@ -1,1 +1,1 @@
-:no_entry_sign:
+:blue_car:
