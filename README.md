@@ -1,1 +1,1 @@
-:headphones:
+:sparkle:
