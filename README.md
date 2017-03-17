@@ -1,1 +1,1 @@
-:mouse:
+:sweet_potato:
