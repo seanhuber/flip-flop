@@ -1,1 +1,1 @@
-:negative_squared_cross_mark:
+:baby_symbol:
