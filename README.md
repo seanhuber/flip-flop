@@ -1,1 +1,1 @@
-:raising_hand:
+:video_game:
