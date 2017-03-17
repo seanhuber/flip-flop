@@ -1,1 +1,1 @@
-:deciduous_tree:
+:dromedary_camel:
