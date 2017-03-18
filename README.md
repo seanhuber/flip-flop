@@ -1,1 +1,1 @@
-:car:
+:red_car:
