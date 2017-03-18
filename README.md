@@ -1,1 +1,1 @@
-:potable_water:
+:aerial_tramway:
