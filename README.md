@@ -1,1 +1,1 @@
-:massage:
+:potable_water:
