@@ -1,1 +1,1 @@
-:dog:
+:no_smoking:
