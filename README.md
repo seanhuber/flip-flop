@@ -1,1 +1,1 @@
-:seat:
+:sweet_potato:
