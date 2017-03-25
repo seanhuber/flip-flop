@@ -1,1 +1,1 @@
-:mouse:
+:rice_ball:
