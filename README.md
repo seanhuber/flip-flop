@@ -1,1 +1,1 @@
-:tent:
+:steam_locomotive:
