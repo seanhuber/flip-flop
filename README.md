@@ -1,1 +1,1 @@
-:hash:
+:raised_hands:
