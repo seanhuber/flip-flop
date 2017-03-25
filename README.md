@@ -1,1 +1,1 @@
-:sweet_potato:
+:arrow_upper_left:
