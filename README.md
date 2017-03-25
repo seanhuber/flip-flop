@@ -1,1 +1,1 @@
-:egg:
+:european_castle:
