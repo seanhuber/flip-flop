@@ -1,1 +1,1 @@
-:railway_car:
+:tired_face:
