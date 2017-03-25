@@ -1,1 +1,1 @@
-:bangbang:
+:tropical_drink:
