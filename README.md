@@ -1,1 +1,1 @@
-:clap:
+:arrows_counterclockwise:
