@@ -1,1 +1,1 @@
-:octocat:
+:ski:
