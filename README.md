@@ -1,1 +1,1 @@
-:green_apple:
+:running_shirt_with_sash:
