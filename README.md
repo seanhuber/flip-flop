@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:high_heel:
