@@ -1,1 +1,1 @@
-:dizzy_face:
+:baby_symbol:
