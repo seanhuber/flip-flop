@@ -1,1 +1,1 @@
-:bomb:
+:sun_with_face:
