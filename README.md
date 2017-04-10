@@ -1,1 +1,1 @@
-:department_store:
+:dizzy_face:
