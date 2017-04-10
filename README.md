@@ -1,1 +1,1 @@
-:rice:
+:princess:
