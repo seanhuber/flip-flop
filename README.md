@@ -1,1 +1,1 @@
-:grey_exclamation:
+:bullettrain_side:
