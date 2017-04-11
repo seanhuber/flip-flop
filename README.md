@@ -1,1 +1,1 @@
-:checkered_flag:
+:person_with_blond_hair:
