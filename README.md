@@ -1,1 +1,1 @@
-:ok_hand:
+:leftwards_arrow_with_hook:
