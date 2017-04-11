@@ -1,1 +1,1 @@
-:bullettrain_side:
+:ok_hand:
