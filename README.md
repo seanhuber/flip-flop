@@ -1,1 +1,1 @@
-:zap:
+:ok_woman:
