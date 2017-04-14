@@ -1,1 +1,1 @@
-:racehorse:
+:straight_ruler:
