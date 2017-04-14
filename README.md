@@ -1,1 +1,1 @@
-:fire:
+:white_medium_square:
