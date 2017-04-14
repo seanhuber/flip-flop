@@ -1,1 +1,1 @@
-:blue_car:
+:u7a7a:
