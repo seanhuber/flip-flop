@@ -1,1 +1,1 @@
-:soccer:
+:currency_exchange:
