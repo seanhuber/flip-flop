@@ -1,1 +1,1 @@
-:seat:
+:space_invader:
