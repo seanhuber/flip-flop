@@ -1,1 +1,1 @@
-:radio:
+:articulated_lorry:
