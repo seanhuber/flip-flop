@@ -1,1 +1,1 @@
-:necktie:
+:point_right:
