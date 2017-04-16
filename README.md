@@ -1,1 +1,1 @@
-:space_invader:
+:negative_squared_cross_mark:
