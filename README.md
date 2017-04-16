@@ -1,1 +1,1 @@
-:handbag:
+:palm_tree:
