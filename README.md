@@ -1,1 +1,1 @@
-:poultry_leg:
+:arrow_heading_up:
