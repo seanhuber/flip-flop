@@ -1,1 +1,1 @@
-:shirt:
+:poultry_leg:
