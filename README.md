@@ -1,1 +1,1 @@
-:circus_tent:
+:money_with_wings:
