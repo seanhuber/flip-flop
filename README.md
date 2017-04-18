@@ -1,1 +1,1 @@
-:couplekiss:
+:waning_gibbous_moon:
