@@ -1,1 +1,1 @@
-:mag:
+:couplekiss:
