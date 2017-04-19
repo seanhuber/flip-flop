@@ -1,1 +1,1 @@
-:cake:
+:waning_gibbous_moon:
