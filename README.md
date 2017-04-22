@@ -1,1 +1,1 @@
-:fu:
+:jack_o_lantern:
