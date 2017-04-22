@@ -1,1 +1,1 @@
-:sweat:
+:green_book:
