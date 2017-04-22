@@ -1,1 +1,1 @@
-:camel:
+:sparkling_heart:
