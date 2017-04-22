@@ -1,1 +1,1 @@
-:horse_racing:
+:mailbox_closed:
