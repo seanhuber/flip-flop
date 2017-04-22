@@ -1,1 +1,1 @@
-:telephone:
+:repeat_one:
