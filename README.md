@@ -1,1 +1,1 @@
-:green_book:
+:partly_sunny:
