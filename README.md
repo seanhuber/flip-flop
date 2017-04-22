@@ -1,1 +1,1 @@
-:restroom:
+:mans_shoe:
