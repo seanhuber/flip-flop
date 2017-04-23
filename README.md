@@ -1,1 +1,1 @@
-:candy:
+:truck:
