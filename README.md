@@ -1,1 +1,1 @@
-:airplane:
+:satellite:
