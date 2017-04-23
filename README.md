@@ -1,1 +1,1 @@
-:thought_balloon:
+:globe_with_meridians:
