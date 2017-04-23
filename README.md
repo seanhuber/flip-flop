@@ -1,1 +1,1 @@
-:apple:
+:thought_balloon:
