@@ -1,1 +1,1 @@
-:mans_shoe:
+:two_hearts:
