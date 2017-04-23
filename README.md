@@ -1,1 +1,1 @@
-:man:
+:kissing:
