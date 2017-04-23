@@ -1,1 +1,1 @@
-:truck:
+:oncoming_police_car:
