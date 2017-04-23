@@ -1,1 +1,1 @@
-:kissing:
+:mans_shoe:
