@@ -1,1 +1,1 @@
-:bell:
+:no_good:
