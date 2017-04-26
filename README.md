@@ -1,1 +1,1 @@
-:circus_tent:
+:hatching_chick:
