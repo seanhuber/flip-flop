@@ -1,1 +1,1 @@
-:football:
+:heavy_division_sign:
