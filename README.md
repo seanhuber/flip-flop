@@ -1,1 +1,1 @@
-:shell:
+:aerial_tramway:
