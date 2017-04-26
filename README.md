@@ -1,1 +1,1 @@
-:u6307:
+:mountain_cableway:
