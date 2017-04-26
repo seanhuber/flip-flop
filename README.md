@@ -1,1 +1,1 @@
-:es:
+:heavy_division_sign:
