@@ -1,1 +1,1 @@
-:lipstick:
+:circus_tent:
