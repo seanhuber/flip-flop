@@ -1,1 +1,1 @@
-:lock_with_ink_pen:
+:leftwards_arrow_with_hook:
