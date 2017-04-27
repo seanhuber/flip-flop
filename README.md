@@ -1,1 +1,1 @@
-:snowboarder:
+:no_bell:
