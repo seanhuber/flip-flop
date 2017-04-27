@@ -1,1 +1,1 @@
-:cd:
+:department_store:
