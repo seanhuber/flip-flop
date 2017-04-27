@@ -1,1 +1,1 @@
-:japanese_goblin:
+:white_medium_square:
