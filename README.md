@@ -1,1 +1,1 @@
-:telescope:
+:open_mouth:
