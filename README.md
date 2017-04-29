@@ -1,1 +1,1 @@
-:pencil:
+:bikini:
