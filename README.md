@@ -1,1 +1,1 @@
-:bookmark_tabs:
+:electric_plug:
