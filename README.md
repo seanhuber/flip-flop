@@ -1,1 +1,1 @@
-:smirk_cat:
+:fire_engine:
