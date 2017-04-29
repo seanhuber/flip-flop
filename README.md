@@ -1,1 +1,1 @@
-:closed_lock_with_key:
+:small_orange_diamond:
