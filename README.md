@@ -1,1 +1,1 @@
-:football:
+:kimono:
