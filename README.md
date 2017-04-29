@@ -1,1 +1,1 @@
-:icecream:
+:lollipop:
