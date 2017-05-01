@@ -1,1 +1,1 @@
-:shaved_ice:
+:bar_chart:
