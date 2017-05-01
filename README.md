@@ -1,1 +1,1 @@
-:cloud:
+:shaved_ice:
