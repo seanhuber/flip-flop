@@ -1,1 +1,1 @@
-:pineapple:
+:cocktail:
