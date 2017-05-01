@@ -1,1 +1,1 @@
-:bullettrain_side:
+:first_quarter_moon:
