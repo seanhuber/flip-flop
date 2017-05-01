@@ -1,1 +1,1 @@
-:smiley:
+:open_mouth:
