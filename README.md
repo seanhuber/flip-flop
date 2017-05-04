@@ -1,1 +1,1 @@
-:icecream:
+:straight_ruler:
