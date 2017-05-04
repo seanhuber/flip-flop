@@ -1,1 +1,1 @@
-:bowling:
+:fireworks:
