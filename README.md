@@ -1,1 +1,1 @@
-:wolf:
+:black_large_square:
