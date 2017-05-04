@@ -1,1 +1,1 @@
-:dolphin:
+:arrow_lower_left:
