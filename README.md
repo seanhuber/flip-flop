@@ -1,1 +1,1 @@
-:candy:
+:tokyo_tower:
