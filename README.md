@@ -1,1 +1,1 @@
-:office:
+:closed_umbrella:
