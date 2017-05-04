@@ -1,1 +1,1 @@
-:gift_heart:
+:money_with_wings:
