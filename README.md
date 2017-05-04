@@ -1,1 +1,1 @@
-:fireworks:
+:fallen_leaf:
