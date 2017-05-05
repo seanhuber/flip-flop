@@ -1,1 +1,1 @@
-:bread:
+:open_hands:
