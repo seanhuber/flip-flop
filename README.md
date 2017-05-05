@@ -1,1 +1,1 @@
-:honey_pot:
+:shaved_ice:
