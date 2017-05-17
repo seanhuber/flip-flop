@@ -1,1 +1,1 @@
-:no_entry:
+:two_men_holding_hands:
