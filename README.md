@@ -1,1 +1,1 @@
-:ghost:
+:mouse2:
