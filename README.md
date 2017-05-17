@@ -1,1 +1,1 @@
-:satellite:
+:city_sunrise:
