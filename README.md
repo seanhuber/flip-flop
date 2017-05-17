@@ -1,1 +1,1 @@
-:mask:
+:ghost:
