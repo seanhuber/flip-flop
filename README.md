@@ -1,1 +1,1 @@
-:postbox:
+:satellite:
