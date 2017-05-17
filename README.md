@@ -1,1 +1,1 @@
-:cactus:
+:no_entry:
