@@ -1,1 +1,1 @@
-:ticket:
+:game_die:
