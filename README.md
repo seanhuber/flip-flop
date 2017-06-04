@@ -1,1 +1,1 @@
-:stuck_out_tongue:
+:black_square_button:
