@@ -1,1 +1,1 @@
-:strawberry:
+:rotating_light:
