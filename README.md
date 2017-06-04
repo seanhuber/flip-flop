@@ -1,1 +1,1 @@
-:santa:
+:sweat_smile:
