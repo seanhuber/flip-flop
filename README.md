@@ -1,1 +1,1 @@
-:red_circle:
+:lock_with_ink_pen:
