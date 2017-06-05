@@ -1,1 +1,1 @@
-:dragon_face:
+:mag_right:
