@@ -1,1 +1,1 @@
-:melon:
+:blue_book:
