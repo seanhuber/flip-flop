@@ -1,1 +1,1 @@
-:camera:
+:battery:
