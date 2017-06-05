@@ -1,1 +1,1 @@
-:sweet_potato:
+:pig2:
