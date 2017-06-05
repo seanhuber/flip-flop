@@ -1,1 +1,1 @@
-:battery:
+:paw_prints:
