@@ -1,1 +1,1 @@
-:sweet_potato:
+:four_leaf_clover:
