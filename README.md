@@ -1,1 +1,1 @@
-:pill:
+:chart_with_downwards_trend:
