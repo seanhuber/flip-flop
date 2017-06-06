@@ -1,1 +1,1 @@
-:fire_engine:
+:large_blue_diamond:
