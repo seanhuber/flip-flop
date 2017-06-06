@@ -1,1 +1,1 @@
-:bell:
+:crystal_ball:
