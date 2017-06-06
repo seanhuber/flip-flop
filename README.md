@@ -1,1 +1,1 @@
-:japanese_ogre:
+:grey_question:
