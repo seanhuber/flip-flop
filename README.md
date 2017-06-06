@@ -1,1 +1,1 @@
-:notebook_with_decorative_cover:
+:money_with_wings:
