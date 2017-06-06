@@ -1,1 +1,1 @@
-:telephone_receiver:
+:chart_with_downwards_trend:
