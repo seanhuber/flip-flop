@@ -1,1 +1,1 @@
-:kissing_closed_eyes:
+:ballot_box_with_check:
