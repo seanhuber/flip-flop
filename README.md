@@ -1,1 +1,1 @@
-:squirrel:
+:green_book:
