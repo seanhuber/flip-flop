@@ -1,1 +1,1 @@
-:monkey:
+:earth_asia:
