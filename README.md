@@ -1,1 +1,1 @@
-:pisces:
+:red_circle:
