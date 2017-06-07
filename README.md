@@ -1,1 +1,1 @@
-:beetle:
+:articulated_lorry:
