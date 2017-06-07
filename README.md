@@ -1,1 +1,1 @@
-:rowboat:
+:orange_book:
