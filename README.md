@@ -1,1 +1,1 @@
-:tea:
+:izakaya_lantern:
