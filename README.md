@@ -1,1 +1,1 @@
-:open_hands:
+:small_orange_diamond:
