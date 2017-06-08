@@ -1,1 +1,1 @@
-:tent:
+:open_hands:
