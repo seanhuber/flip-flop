@@ -1,1 +1,1 @@
-:mag:
+:black_nib:
