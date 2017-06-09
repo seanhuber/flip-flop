@@ -1,1 +1,1 @@
-:dash:
+:oncoming_taxi:
