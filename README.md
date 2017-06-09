@@ -1,1 +1,1 @@
-:woman:
+:ear_of_rice:
