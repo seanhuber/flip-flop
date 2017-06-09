@@ -1,1 +1,1 @@
-:hospital:
+:globe_with_meridians:
