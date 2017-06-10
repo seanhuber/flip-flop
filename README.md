@@ -1,1 +1,1 @@
-:open_mouth:
+:ballot_box_with_check:
