@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:triangular_flag_on_post:
