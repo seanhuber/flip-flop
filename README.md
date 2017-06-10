@@ -1,1 +1,1 @@
-:last_quarter_moon_with_face:
+:black_small_square:
