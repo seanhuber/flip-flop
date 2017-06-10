@@ -1,1 +1,1 @@
-:two_women_holding_hands:
+:heavy_multiplication_x:
