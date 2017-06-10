@@ -1,1 +1,1 @@
-:abc:
+:point_left:
