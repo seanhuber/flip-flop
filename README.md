@@ -1,1 +1,1 @@
-:point_left:
+:two_women_holding_hands:
