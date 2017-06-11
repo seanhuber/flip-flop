@@ -1,1 +1,1 @@
-:bow:
+:fried_shrimp:
