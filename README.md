@@ -1,1 +1,1 @@
-:clap:
+:high_heel:
