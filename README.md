@@ -1,1 +1,1 @@
-:running:
+:no_entry_sign:
