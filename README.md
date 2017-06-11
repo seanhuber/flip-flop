@@ -1,1 +1,1 @@
-:high_heel:
+:capital_abcd:
