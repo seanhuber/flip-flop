@@ -1,1 +1,1 @@
-:suspect:
+:aerial_tramway:
