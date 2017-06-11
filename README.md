@@ -1,1 +1,1 @@
-:clapper:
+:bow:
