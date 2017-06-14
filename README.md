@@ -1,1 +1,1 @@
-:taurus:
+:circus_tent:
