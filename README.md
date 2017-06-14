@@ -1,1 +1,1 @@
-:keycap_ten:
+:two_women_holding_hands:
