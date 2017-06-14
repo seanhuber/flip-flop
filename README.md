@@ -1,1 +1,1 @@
-:wedding:
+:strawberry:
