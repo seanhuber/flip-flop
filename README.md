@@ -1,1 +1,1 @@
-:headphones:
+:chocolate_bar:
