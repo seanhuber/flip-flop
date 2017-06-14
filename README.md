@@ -1,1 +1,1 @@
-:panda_face:
+:nail_care:
