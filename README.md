@@ -1,1 +1,1 @@
-:chocolate_bar:
+:keycap_ten:
