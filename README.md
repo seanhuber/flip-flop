@@ -1,1 +1,1 @@
-:tiger2:
+:large_orange_diamond:
