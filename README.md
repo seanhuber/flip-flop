@@ -1,1 +1,1 @@
-:ru:
+:no_entry:
