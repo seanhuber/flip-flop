@@ -1,1 +1,1 @@
-:monkey_face:
+:fast_forward:
