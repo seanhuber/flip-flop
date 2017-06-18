@@ -1,1 +1,1 @@
-:older_woman:
+:two_women_holding_hands:
