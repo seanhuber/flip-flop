@@ -1,1 +1,1 @@
-:joy:
+:black_small_square:
