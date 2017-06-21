@@ -1,1 +1,1 @@
-:video_camera:
+:closed_lock_with_key:
