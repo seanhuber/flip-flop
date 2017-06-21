@@ -1,1 +1,1 @@
-:see_no_evil:
+:black_small_square:
