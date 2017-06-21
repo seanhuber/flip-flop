@@ -1,1 +1,1 @@
-:fries:
+:dromedary_camel:
