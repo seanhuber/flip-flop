@@ -1,1 +1,1 @@
-:stuck_out_tongue_winking_eye:
+:see_no_evil:
