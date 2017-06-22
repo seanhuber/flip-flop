@@ -1,1 +1,1 @@
-:turtle:
+:dromedary_camel:
