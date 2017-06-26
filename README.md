@@ -1,1 +1,1 @@
-:notebook:
+:inbox_tray:
