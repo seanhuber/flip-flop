@@ -1,1 +1,1 @@
-:parking:
+:ferris_wheel:
