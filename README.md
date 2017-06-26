@@ -1,1 +1,1 @@
-:inbox_tray:
+:wavy_dash:
