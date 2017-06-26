@@ -1,1 +1,1 @@
-:birthday:
+:ok_woman:
