@@ -1,1 +1,1 @@
-:newspaper:
+:cold_sweat:
