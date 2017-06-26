@@ -1,1 +1,1 @@
-:ship:
+:flower_playing_cards:
