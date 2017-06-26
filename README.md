@@ -1,1 +1,1 @@
-:dash:
+:blue_book:
