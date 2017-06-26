@@ -1,1 +1,1 @@
-:octopus:
+:twisted_rightwards_arrows:
