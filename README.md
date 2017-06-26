@@ -1,1 +1,1 @@
-:blue_book:
+:meat_on_bone:
