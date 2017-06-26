@@ -1,1 +1,1 @@
-:hamster:
+:love_hotel:
