@@ -1,1 +1,1 @@
-:cancer:
+:palm_tree:
