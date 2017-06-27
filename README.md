@@ -1,1 +1,1 @@
-:banana:
+:joy:
