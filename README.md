@@ -1,1 +1,1 @@
-:tongue:
+:department_store:
