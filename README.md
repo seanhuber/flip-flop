@@ -1,1 +1,1 @@
-:scissors:
+:point_right:
