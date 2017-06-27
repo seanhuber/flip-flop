@@ -1,1 +1,1 @@
-:camel:
+:card_index:
