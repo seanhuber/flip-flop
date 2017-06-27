@@ -1,1 +1,1 @@
-:smoking:
+:cancer:
