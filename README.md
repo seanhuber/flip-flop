@@ -1,1 +1,1 @@
-:bell:
+:last_quarter_moon:
