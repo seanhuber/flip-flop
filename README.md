@@ -1,1 +1,1 @@
-:sparkling_heart:
+:new_moon:
