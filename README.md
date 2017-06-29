@@ -1,1 +1,1 @@
-:tokyo_tower:
+:arrows_counterclockwise:
