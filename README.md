@@ -1,1 +1,1 @@
-:curly_loop:
+:white_medium_square:
