@@ -1,1 +1,1 @@
-:fax:
+:japanese_ogre:
