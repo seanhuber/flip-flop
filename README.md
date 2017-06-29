@@ -1,1 +1,1 @@
-:heartpulse:
+:curly_loop:
