@@ -1,1 +1,1 @@
-:capricorn:
+:hocho:
