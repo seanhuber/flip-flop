@@ -1,1 +1,1 @@
-:dizzy_face:
+:mortar_board:
