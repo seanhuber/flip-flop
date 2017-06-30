@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:heavy_dollar_sign:
