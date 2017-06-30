@@ -1,1 +1,1 @@
-:mobile_phone_off:
+:arrow_down_small:
