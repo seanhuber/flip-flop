@@ -1,1 +1,1 @@
-:mortar_board:
+:low_brightness:
