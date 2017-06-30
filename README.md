@@ -1,1 +1,1 @@
-:dragon_face:
+:statue_of_liberty:
