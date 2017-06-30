@@ -1,1 +1,1 @@
-:pound:
+:mobile_phone_off:
