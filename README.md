@@ -1,1 +1,1 @@
-:zzz:
+:tired_face:
