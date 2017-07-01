@@ -1,1 +1,1 @@
-:pushpin:
+:convenience_store:
