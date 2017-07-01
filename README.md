@@ -1,1 +1,1 @@
-:hotel:
+:arrows_counterclockwise:
