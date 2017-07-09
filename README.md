@@ -1,1 +1,1 @@
-:wink:
+:orange_book:
