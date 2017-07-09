@@ -1,1 +1,1 @@
-:tired_face:
+:heavy_division_sign:
