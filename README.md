@@ -1,1 +1,1 @@
-:point_down:
+:convenience_store:
