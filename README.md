@@ -1,1 +1,1 @@
-:lollipop:
+:arrow_up:
