@@ -1,1 +1,1 @@
-:sunflower:
+:poultry_leg:
