@@ -1,1 +1,1 @@
-:hamster:
+:fish_cake:
