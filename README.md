@@ -1,1 +1,1 @@
-:christmas_tree:
+:black_small_square:
