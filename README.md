@@ -1,1 +1,1 @@
-:hotsprings:
+:orange_book:
