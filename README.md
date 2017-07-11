@@ -1,1 +1,1 @@
-:hamster:
+:vertical_traffic_light:
