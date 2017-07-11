@@ -1,1 +1,1 @@
-:one:
+:arrow_upper_right:
