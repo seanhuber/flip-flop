@@ -1,1 +1,1 @@
-:rage3:
+:waning_gibbous_moon:
