@@ -1,1 +1,1 @@
-:dizzy:
+:information_desk_person:
