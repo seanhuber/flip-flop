@@ -1,1 +1,1 @@
-:horse_racing:
+:mans_shoe:
