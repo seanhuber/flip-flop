@@ -1,1 +1,1 @@
-:dizzy:
+:shaved_ice:
