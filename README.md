@@ -1,1 +1,1 @@
-:spaghetti:
+:deciduous_tree:
