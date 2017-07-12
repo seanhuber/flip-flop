@@ -1,1 +1,1 @@
-:book:
+:eight_spoked_asterisk:
