@@ -1,1 +1,1 @@
-:gb:
+:heavy_minus_sign:
