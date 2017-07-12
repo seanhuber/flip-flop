@@ -1,1 +1,1 @@
-:black_joker:
+:left_luggage:
