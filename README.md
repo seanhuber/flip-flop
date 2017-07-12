@@ -1,1 +1,1 @@
-:capital_abcd:
+:mailbox_closed:
