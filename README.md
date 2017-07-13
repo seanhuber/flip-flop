@@ -1,1 +1,1 @@
-:arrow_down_small:
+:two_men_holding_hands:
