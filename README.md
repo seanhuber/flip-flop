@@ -1,1 +1,1 @@
-:camera:
+:flashlight:
