@@ -1,1 +1,1 @@
-:mailbox_closed:
+:whale2:
