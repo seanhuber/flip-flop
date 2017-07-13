@@ -1,1 +1,1 @@
-:flashlight:
+:fast_forward:
