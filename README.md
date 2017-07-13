@@ -1,1 +1,1 @@
-:arrow_down:
+:vertical_traffic_light:
