@@ -1,1 +1,1 @@
-:whale2:
+:arrow_down_small:
