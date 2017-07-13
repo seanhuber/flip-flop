@@ -1,1 +1,1 @@
-:hatched_chick:
+:bullettrain_side:
