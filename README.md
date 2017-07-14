@@ -1,1 +1,1 @@
-:muscle:
+:european_castle:
