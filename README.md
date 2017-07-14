@@ -1,1 +1,1 @@
-:bank:
+:cold_sweat:
