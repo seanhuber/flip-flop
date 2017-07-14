@@ -1,1 +1,1 @@
-:cry:
+:last_quarter_moon:
