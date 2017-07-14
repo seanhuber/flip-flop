@@ -1,1 +1,1 @@
-:european_castle:
+:japanese_goblin:
