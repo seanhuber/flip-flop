@@ -1,1 +1,1 @@
-:crown:
+:school_satchel:
