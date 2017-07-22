@@ -1,1 +1,1 @@
-:hamburger:
+:low_brightness:
