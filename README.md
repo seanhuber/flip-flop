@@ -1,1 +1,1 @@
-:black_circle:
+:raised_hand:
