@@ -1,1 +1,1 @@
-:no_smoking:
+:inbox_tray:
