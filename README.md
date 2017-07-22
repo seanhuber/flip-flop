@@ -1,1 +1,1 @@
-:free:
+:no_smoking:
