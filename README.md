@@ -1,1 +1,1 @@
-:ticket:
+:no_smoking:
