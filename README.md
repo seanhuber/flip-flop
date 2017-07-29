@@ -1,1 +1,1 @@
-:hatching_chick:
+:busts_in_silhouette:
