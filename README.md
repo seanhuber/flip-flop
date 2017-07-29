@@ -1,1 +1,1 @@
-:jeans:
+:statue_of_liberty:
