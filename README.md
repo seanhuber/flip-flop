@@ -1,1 +1,1 @@
-:cat:
+:hatching_chick:
