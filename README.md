@@ -1,1 +1,1 @@
-:100:
+:hatching_chick:
