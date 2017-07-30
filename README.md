@@ -1,1 +1,1 @@
-:rugby_football:
+:man_with_turban:
