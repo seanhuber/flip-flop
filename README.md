@@ -1,1 +1,1 @@
-:monkey:
+:rugby_football:
