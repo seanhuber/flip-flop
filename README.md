@@ -1,1 +1,1 @@
-:tram:
+:pager:
