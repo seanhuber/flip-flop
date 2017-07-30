@@ -1,1 +1,1 @@
-:mailbox:
+:bust_in_silhouette:
