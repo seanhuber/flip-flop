@@ -1,1 +1,1 @@
-:six:
+:outbox_tray:
