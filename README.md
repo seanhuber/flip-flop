@@ -1,1 +1,1 @@
-:bird:
+:telephone:
