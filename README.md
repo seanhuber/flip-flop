@@ -1,1 +1,1 @@
-:ski:
+:waning_crescent_moon:
