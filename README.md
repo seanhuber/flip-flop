@@ -1,1 +1,1 @@
-:fr:
+:outbox_tray:
