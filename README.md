@@ -1,1 +1,1 @@
-:lips:
+:currency_exchange:
