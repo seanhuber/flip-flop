@@ -1,1 +1,1 @@
-:sos:
+:yellow_heart:
