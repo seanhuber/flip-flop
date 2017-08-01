@@ -1,1 +1,1 @@
-:sleeping:
+:milky_way:
