@@ -1,1 +1,1 @@
-:gift:
+:izakaya_lantern:
