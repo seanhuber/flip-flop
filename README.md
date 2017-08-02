@@ -1,1 +1,1 @@
-:trollface:
+:white_medium_square:
