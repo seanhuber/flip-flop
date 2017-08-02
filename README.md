@@ -1,1 +1,1 @@
-:white_medium_square:
+:milky_way:
