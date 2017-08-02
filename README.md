@@ -1,1 +1,1 @@
-:handbag:
+:point_right:
