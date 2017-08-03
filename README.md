@@ -1,1 +1,1 @@
-:articulated_lorry:
+:heart_decoration:
