@@ -1,1 +1,1 @@
-:8ball:
+:performing_arts:
