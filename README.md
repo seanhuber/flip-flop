@@ -1,1 +1,1 @@
-:sleeping:
+:articulated_lorry:
