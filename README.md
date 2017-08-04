@@ -1,1 +1,1 @@
-:monorail:
+:man_with_turban:
