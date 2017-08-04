@@ -1,1 +1,1 @@
-:diamonds:
+:black_square_button:
