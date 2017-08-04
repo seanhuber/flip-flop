@@ -1,1 +1,1 @@
-:symbols:
+:carousel_horse:
