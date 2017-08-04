@@ -1,1 +1,1 @@
-:carousel_horse:
+:pouting_cat:
