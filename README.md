@@ -1,1 +1,1 @@
-:man_with_turban:
+:white_square_button:
