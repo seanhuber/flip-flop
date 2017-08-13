@@ -1,1 +1,1 @@
-:cow2:
+:hear_no_evil:
