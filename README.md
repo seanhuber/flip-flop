@@ -1,1 +1,1 @@
-:earth_africa:
+:roller_coaster:
