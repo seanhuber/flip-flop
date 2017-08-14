@@ -1,1 +1,1 @@
-:punch:
+:black_joker:
