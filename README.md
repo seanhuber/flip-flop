@@ -1,1 +1,1 @@
-:blue_car:
+:flower_playing_cards:
