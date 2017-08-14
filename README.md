@@ -1,1 +1,1 @@
-:angry:
+:blue_car:
