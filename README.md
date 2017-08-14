@@ -1,1 +1,1 @@
-:black_joker:
+:rugby_football:
