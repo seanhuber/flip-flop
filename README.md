@@ -1,1 +1,1 @@
-:scream:
+:smiley_cat:
