@@ -1,1 +1,1 @@
-:volcano:
+:mount_fuji:
