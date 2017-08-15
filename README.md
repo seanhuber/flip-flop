@@ -1,1 +1,1 @@
-:wavy_dash:
+:man_with_gua_pi_mao:
