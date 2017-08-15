@@ -1,1 +1,1 @@
-:shirt:
+:bar_chart:
