@@ -1,1 +1,1 @@
-:kimono:
+:vibration_mode:
