@@ -1,1 +1,1 @@
-:aries:
+:no_bell:
