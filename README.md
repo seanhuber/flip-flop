@@ -1,1 +1,1 @@
-:ok_woman:
+:white_large_square:
