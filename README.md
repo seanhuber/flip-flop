@@ -1,1 +1,1 @@
-:scissors:
+:floppy_disk:
