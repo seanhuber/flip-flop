@@ -1,1 +1,1 @@
-:evergreen_tree:
+:two_men_holding_hands:
