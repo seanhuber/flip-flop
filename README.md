@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:white_flower:
