@@ -1,1 +1,1 @@
-:seat:
+:signal_strength:
