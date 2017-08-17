@@ -1,1 +1,1 @@
-:simple_smile:
+:paw_prints:
