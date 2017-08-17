@@ -1,1 +1,1 @@
-:name_badge:
+:no_entry_sign:
