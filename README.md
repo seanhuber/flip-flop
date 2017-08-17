@@ -1,1 +1,1 @@
-:loop:
+:no_pedestrians:
