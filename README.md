@@ -1,1 +1,1 @@
-:tanabata_tree:
+:heavy_multiplication_x:
