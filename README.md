@@ -1,1 +1,1 @@
-:no_pedestrians:
+:sun_with_face:
