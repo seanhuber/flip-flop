@@ -1,1 +1,1 @@
-:hand:
+:dolphin:
