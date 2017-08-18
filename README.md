@@ -1,1 +1,1 @@
-:u7a7a:
+:ok_woman:
