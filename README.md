@@ -1,1 +1,1 @@
-:lollipop:
+:earth_asia:
