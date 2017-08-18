@@ -1,1 +1,1 @@
-:ok_woman:
+:bar_chart:
