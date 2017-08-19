@@ -1,1 +1,1 @@
-:book:
+:partly_sunny:
