@@ -1,1 +1,1 @@
-:computer:
+:telescope:
