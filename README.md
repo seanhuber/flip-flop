@@ -1,1 +1,1 @@
-:bank:
+:department_store:
