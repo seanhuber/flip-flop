@@ -1,1 +1,1 @@
-:station:
+:tropical_drink:
