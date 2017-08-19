@@ -1,1 +1,1 @@
-:high_heel:
+:waxing_crescent_moon:
