@@ -1,1 +1,1 @@
-:ribbon:
+:black_large_square:
