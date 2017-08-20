@@ -1,1 +1,1 @@
-:chocolate_bar:
+:fried_shrimp:
