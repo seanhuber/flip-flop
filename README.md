@@ -1,1 +1,1 @@
-:sparkling_heart:
+:money_with_wings:
