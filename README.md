@@ -1,1 +1,1 @@
-:roller_coaster:
+:arrow_up:
