@@ -1,1 +1,1 @@
-:football:
+:mag_right:
