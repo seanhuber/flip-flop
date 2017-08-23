@@ -1,1 +1,1 @@
-:bus:
+:page_facing_up:
