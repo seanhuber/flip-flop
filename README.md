@@ -1,1 +1,1 @@
-:tshirt:
+:monkey:
