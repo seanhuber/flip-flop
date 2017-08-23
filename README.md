@@ -1,1 +1,1 @@
-:watch:
+:white_large_square:
