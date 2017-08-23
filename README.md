@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:no_entry_sign:
