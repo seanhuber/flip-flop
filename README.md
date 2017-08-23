@@ -1,1 +1,1 @@
-:large_blue_circle:
+:leftwards_arrow_with_hook:
