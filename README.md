@@ -1,1 +1,1 @@
-:banana:
+:large_blue_circle:
