@@ -1,1 +1,1 @@
-:koko:
+:waning_gibbous_moon:
