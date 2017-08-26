@@ -1,1 +1,1 @@
-:snake:
+:crying_cat_face:
