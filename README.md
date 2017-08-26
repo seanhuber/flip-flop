@@ -1,1 +1,1 @@
-:doughnut:
+:sweat_drops:
