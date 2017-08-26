@@ -1,1 +1,1 @@
-:aerial_tramway:
+:city_sunset:
