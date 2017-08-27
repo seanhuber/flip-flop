@@ -1,1 +1,1 @@
-:shit:
+:raised_hands:
