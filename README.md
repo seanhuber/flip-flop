@@ -1,1 +1,1 @@
-:car:
+:waxing_crescent_moon:
