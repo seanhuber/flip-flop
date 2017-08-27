@@ -1,1 +1,1 @@
-:bento:
+:statue_of_liberty:
