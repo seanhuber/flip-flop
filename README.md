@@ -1,1 +1,1 @@
-:raised_hand:
+:baby_chick:
