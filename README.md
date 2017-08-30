@@ -1,1 +1,1 @@
-:earth_africa:
+:chart_with_upwards_trend:
