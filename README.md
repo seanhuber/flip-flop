@@ -1,1 +1,1 @@
-:candy:
+:icecream:
