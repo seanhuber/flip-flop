@@ -1,1 +1,1 @@
-:snake:
+:arrow_heading_down:
