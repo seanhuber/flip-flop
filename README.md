@@ -1,1 +1,1 @@
-:musical_note:
+:simple_smile:
