@@ -1,1 +1,1 @@
-:rat:
+:triangular_ruler:
