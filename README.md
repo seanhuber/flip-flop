@@ -1,1 +1,1 @@
-:loudspeaker:
+:orange_book:
