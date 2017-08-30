@@ -1,1 +1,1 @@
-:hibiscus:
+:waning_gibbous_moon:
