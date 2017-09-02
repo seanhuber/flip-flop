@@ -1,1 +1,1 @@
-:exclamation:
+:monkey_face:
