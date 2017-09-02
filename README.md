@@ -1,1 +1,1 @@
-:bangbang:
+:point_up:
