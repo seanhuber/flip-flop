@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:fishing_pole_and_fish:
