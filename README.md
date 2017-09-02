@@ -1,1 +1,1 @@
-:busstop:
+:part_alternation_mark:
