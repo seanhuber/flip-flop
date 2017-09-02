@@ -1,1 +1,1 @@
-:rage:
+:department_store:
