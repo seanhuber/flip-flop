@@ -1,1 +1,1 @@
-:iphone:
+:electric_plug:
