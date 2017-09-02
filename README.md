@@ -1,1 +1,1 @@
-:space_invader:
+:smiley_cat:
