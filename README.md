@@ -1,1 +1,1 @@
-:satellite:
+:kissing_smiling_eyes:
