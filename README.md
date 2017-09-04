@@ -1,1 +1,1 @@
-:page_facing_up:
+:bust_in_silhouette:
