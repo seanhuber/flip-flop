@@ -1,1 +1,1 @@
-:syringe:
+:barber:
