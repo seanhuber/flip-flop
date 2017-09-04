@@ -1,1 +1,1 @@
-:ab:
+:white_medium_square:
