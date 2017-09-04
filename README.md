@@ -1,1 +1,1 @@
-:facepunch:
+:wine_glass:
