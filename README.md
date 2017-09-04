@@ -1,1 +1,1 @@
-:barber:
+:page_facing_up:
