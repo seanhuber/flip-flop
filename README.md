@@ -1,1 +1,1 @@
-:sunny:
+:fallen_leaf:
