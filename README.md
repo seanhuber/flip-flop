@@ -1,1 +1,1 @@
-:clubs:
+:video_camera:
