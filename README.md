@@ -1,1 +1,1 @@
-:dash:
+:closed_umbrella:
