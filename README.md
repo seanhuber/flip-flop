@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:high_brightness:
