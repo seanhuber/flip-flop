@@ -1,1 +1,1 @@
-:yum:
+:shaved_ice:
