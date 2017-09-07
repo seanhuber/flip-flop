@@ -1,1 +1,1 @@
-:straight_ruler:
+:older_man:
