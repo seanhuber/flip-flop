@@ -1,1 +1,1 @@
-:cow2:
+:straight_ruler:
