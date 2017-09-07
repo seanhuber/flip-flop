@@ -1,1 +1,1 @@
-:soccer:
+:page_facing_up:
