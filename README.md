@@ -1,1 +1,1 @@
-:watermelon:
+:smiley_cat:
