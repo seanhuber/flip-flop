@@ -1,1 +1,1 @@
-:headphones:
+:white_check_mark:
