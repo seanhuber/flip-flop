@@ -1,1 +1,1 @@
-:candy:
+:computer:
