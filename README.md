@@ -1,1 +1,1 @@
-:clock1:
+:love_hotel:
