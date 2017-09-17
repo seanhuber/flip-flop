@@ -1,1 +1,1 @@
-:snowman:
+:cherries:
