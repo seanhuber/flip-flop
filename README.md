@@ -1,1 +1,1 @@
-:punch:
+:no_mobile_phones:
