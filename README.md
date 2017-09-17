@@ -1,1 +1,1 @@
-:waning_crescent_moon:
+:open_hands:
