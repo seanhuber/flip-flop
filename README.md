@@ -1,1 +1,1 @@
-:sparkler:
+:heavy_dollar_sign:
