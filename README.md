@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:six_pointed_star:
