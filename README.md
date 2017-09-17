@@ -1,1 +1,1 @@
-:crossed_flags:
+:ideograph_advantage:
