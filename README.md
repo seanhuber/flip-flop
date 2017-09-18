@@ -1,1 +1,1 @@
-:laughing:
+:checkered_flag:
