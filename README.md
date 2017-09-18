@@ -1,1 +1,1 @@
-:four_leaf_clover:
+:smiling_imp:
