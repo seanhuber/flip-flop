@@ -1,1 +1,1 @@
-:snail:
+:simple_smile:
