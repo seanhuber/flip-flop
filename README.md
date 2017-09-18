@@ -1,1 +1,1 @@
-:simple_smile:
+:four_leaf_clover:
