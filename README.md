@@ -1,1 +1,1 @@
-:arrow_double_down:
+:bride_with_veil:
