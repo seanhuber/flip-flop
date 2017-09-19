@@ -1,1 +1,1 @@
-:man_with_turban:
+:mailbox_with_no_mail:
