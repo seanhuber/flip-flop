@@ -1,1 +1,1 @@
-:shower:
+:man_with_turban:
