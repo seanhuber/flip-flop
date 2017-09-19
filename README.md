@@ -1,1 +1,1 @@
-:ophiuchus:
+:suspension_railway:
