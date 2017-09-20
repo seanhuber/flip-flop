@@ -1,1 +1,1 @@
-:camera:
+:smirk_cat:
