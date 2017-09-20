@@ -1,1 +1,1 @@
-:man:
+:strawberry:
