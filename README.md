@@ -1,1 +1,1 @@
-:strawberry:
+:snake:
