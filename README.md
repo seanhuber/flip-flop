@@ -1,1 +1,1 @@
-:mountain_cableway:
+:heavy_plus_sign:
