@@ -1,1 +1,1 @@
-:mahjong:
+:left_right_arrow:
