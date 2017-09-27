@@ -1,1 +1,1 @@
-:newspaper:
+:persevere:
