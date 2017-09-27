@@ -1,1 +1,1 @@
-:bicyclist:
+:heavy_division_sign:
