@@ -1,1 +1,1 @@
-:umbrella:
+:curly_loop:
