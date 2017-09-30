@@ -1,1 +1,1 @@
-:first_quarter_moon:
+:fish_cake:
