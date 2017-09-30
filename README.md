@@ -1,1 +1,1 @@
-:man:
+:mountain_bicyclist:
