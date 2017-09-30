@@ -1,1 +1,1 @@
-:fish_cake:
+:fishing_pole_and_fish:
