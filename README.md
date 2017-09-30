@@ -1,1 +1,1 @@
-:airplane:
+:capricorn:
