@@ -1,1 +1,1 @@
-:key:
+:heavy_dollar_sign:
