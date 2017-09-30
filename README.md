@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:white_medium_small_square:
