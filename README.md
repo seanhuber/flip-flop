@@ -1,1 +1,1 @@
-:ophiuchus:
+:crying_cat_face:
