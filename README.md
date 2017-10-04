@@ -1,1 +1,1 @@
-:princess:
+:keycap_ten:
