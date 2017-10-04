@@ -1,1 +1,1 @@
-:grey_exclamation:
+:ok_hand:
