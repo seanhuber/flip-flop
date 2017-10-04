@@ -1,1 +1,1 @@
-:tomato:
+:mailbox_closed:
