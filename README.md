@@ -1,1 +1,1 @@
-:crying_cat_face:
+:black_large_square:
