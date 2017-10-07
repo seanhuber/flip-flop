@@ -1,1 +1,1 @@
-:bike:
+:trophy:
