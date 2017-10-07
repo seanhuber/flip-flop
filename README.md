@@ -1,1 +1,1 @@
-:rice:
+:eyeglasses:
