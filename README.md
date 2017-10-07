@@ -1,1 +1,1 @@
-:no_bell:
+:speech_balloon:
