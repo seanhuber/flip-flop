@@ -1,1 +1,1 @@
-:snail:
+:no_bell:
