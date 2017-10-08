@@ -1,1 +1,1 @@
-:rage:
+:bar_chart:
