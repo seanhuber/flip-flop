@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:black_nib:
