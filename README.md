@@ -1,1 +1,1 @@
-:jeans:
+:open_mouth:
