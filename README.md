@@ -1,1 +1,1 @@
-:question:
+:mailbox_closed:
