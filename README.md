@@ -1,1 +1,1 @@
-:rage2:
+:blue_book:
