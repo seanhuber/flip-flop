@@ -1,1 +1,1 @@
-:u55b6:
+:money_with_wings:
