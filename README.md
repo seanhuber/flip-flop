@@ -1,1 +1,1 @@
-:man:
+:satisfied:
