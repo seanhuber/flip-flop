@@ -1,1 +1,1 @@
-:open_mouth:
+:white_check_mark:
