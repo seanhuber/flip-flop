@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:nut_and_bolt:
