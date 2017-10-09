@@ -1,1 +1,1 @@
-:sailboat:
+:bicyclist:
