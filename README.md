@@ -1,1 +1,1 @@
-:pencil:
+:arrow_left:
