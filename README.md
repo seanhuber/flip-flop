@@ -1,1 +1,1 @@
-:raised_hand:
+:telephone_receiver:
