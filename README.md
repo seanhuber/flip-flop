@@ -1,1 +1,1 @@
-:large_orange_diamond:
+:notebook_with_decorative_cover:
