@@ -1,1 +1,1 @@
-:thumbsup:
+:large_orange_diamond:
