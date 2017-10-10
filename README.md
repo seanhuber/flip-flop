@@ -1,1 +1,1 @@
-:large_blue_circle:
+:point_left:
