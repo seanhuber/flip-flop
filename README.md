@@ -1,1 +1,1 @@
-:clock8:
+:raised_hand:
