@@ -1,1 +1,1 @@
-:u55b6:
+:aerial_tramway:
