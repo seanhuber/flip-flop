@@ -1,1 +1,1 @@
-:black_medium_small_square:
+:bridge_at_night:
