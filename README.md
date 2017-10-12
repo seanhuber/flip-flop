@@ -1,1 +1,1 @@
-:notebook_with_decorative_cover:
+:mailbox_with_no_mail:
