@@ -1,1 +1,1 @@
-:movie_camera:
+:chart_with_upwards_trend:
