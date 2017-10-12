@@ -1,1 +1,1 @@
-:camel:
+:necktie:
