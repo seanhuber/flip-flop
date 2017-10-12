@@ -1,1 +1,1 @@
-:ambulance:
+:camel:
