@@ -1,1 +1,1 @@
-:airplane:
+:simple_smile:
