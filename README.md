@@ -1,1 +1,1 @@
-:bomb:
+:white_check_mark:
