@@ -1,1 +1,1 @@
-:simple_smile:
+:bullettrain_side:
