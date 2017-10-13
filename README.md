@@ -1,1 +1,1 @@
-:bullettrain_side:
+:negative_squared_cross_mark:
