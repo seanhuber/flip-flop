@@ -1,1 +1,1 @@
-:fries:
+:crying_cat_face:
