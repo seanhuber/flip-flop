@@ -1,1 +1,1 @@
-:small_blue_diamond:
+:heavy_multiplication_x:
