@@ -1,1 +1,1 @@
-:apple:
+:traffic_light:
