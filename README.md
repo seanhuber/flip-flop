@@ -1,1 +1,1 @@
-:sound:
+:signal_strength:
