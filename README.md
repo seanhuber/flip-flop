@@ -1,1 +1,1 @@
-:whale:
+:hamburger:
