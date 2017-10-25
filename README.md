@@ -1,1 +1,1 @@
-:apple:
+:guitar:
