@@ -1,1 +1,1 @@
-:guitar:
+:tired_face:
