@@ -1,1 +1,1 @@
-:mail:
+:neutral_face:
