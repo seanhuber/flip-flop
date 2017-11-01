@@ -1,1 +1,1 @@
-:rice:
+:heavy_dollar_sign:
