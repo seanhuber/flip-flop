@@ -1,1 +1,1 @@
-:nine:
+:heavy_minus_sign:
