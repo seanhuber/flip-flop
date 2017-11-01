@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:running_shirt_with_sash:
