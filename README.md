@@ -1,1 +1,1 @@
-:chart:
+:panda_face:
