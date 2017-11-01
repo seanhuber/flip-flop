@@ -1,1 +1,1 @@
-:black_medium_square:
+:eight_spoked_asterisk:
