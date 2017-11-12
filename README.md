@@ -1,1 +1,1 @@
-:snake:
+:point_up_2:
