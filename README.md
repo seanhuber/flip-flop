@@ -1,1 +1,1 @@
-:meat_on_bone:
+:no_entry_sign:
