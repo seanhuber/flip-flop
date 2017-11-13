@@ -1,1 +1,1 @@
-:thought_balloon:
+:green_heart:
