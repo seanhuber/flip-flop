@@ -1,1 +1,1 @@
-:bike:
+:no_mobile_phones:
