@@ -1,1 +1,1 @@
-:interrobang:
+:palm_tree:
