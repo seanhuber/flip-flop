@@ -1,1 +1,1 @@
-:exclamation:
+:black_nib:
