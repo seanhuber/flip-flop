@@ -1,1 +1,1 @@
-:factory:
+:japanese_ogre:
