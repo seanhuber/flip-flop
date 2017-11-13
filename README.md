@@ -1,1 +1,1 @@
-:japanese_ogre:
+:information_desk_person:
