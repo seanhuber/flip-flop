@@ -1,1 +1,1 @@
-:no_mobile_phones:
+:black_medium_square:
