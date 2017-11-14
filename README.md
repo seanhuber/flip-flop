@@ -1,1 +1,1 @@
-:bathtub:
+:rice_scene:
