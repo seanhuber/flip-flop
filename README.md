@@ -1,1 +1,1 @@
-:bell:
+:blue_heart:
