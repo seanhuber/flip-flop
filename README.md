@@ -1,1 +1,1 @@
-:virgo:
+:kissing_heart:
