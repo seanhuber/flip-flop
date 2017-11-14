@@ -1,1 +1,1 @@
-:strawberry:
+:person_frowning:
