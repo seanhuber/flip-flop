@@ -1,1 +1,1 @@
-:rooster:
+:steam_locomotive:
