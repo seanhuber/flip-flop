@@ -1,1 +1,1 @@
-:anchor:
+:japanese_castle:
