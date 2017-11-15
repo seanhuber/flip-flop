@@ -1,1 +1,1 @@
-:wheelchair:
+:point_left:
