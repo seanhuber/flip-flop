@@ -1,1 +1,1 @@
-:bar_chart:
+:potable_water:
