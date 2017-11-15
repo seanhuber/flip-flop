@@ -1,1 +1,1 @@
-:zap:
+:older_woman:
