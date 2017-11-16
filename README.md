@@ -1,1 +1,1 @@
-:ribbon:
+:closed_umbrella:
