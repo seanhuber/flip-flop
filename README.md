@@ -1,1 +1,1 @@
-:rice_scene:
+:no_mobile_phones:
