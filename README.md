@@ -1,1 +1,1 @@
-:slot_machine:
+:rice_scene:
