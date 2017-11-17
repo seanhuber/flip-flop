@@ -1,1 +1,1 @@
-:arrow_lower_right:
+:hatched_chick:
