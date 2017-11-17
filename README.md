@@ -1,1 +1,1 @@
-:ledger:
+:slot_machine:
