@@ -1,1 +1,1 @@
-:penguin:
+:black_small_square:
