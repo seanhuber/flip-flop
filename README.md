@@ -1,1 +1,1 @@
-:telephone:
+:globe_with_meridians:
