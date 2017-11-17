@@ -1,1 +1,1 @@
-:small_orange_diamond:
+:nut_and_bolt:
