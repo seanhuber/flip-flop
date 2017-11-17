@@ -1,1 +1,1 @@
-:paw_prints:
+:arrow_lower_right:
