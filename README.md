@@ -1,1 +1,1 @@
-:newspaper:
+:paw_prints:
