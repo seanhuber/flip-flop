@@ -1,1 +1,1 @@
-:pouch:
+:penguin:
