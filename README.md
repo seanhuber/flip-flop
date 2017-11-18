@@ -1,1 +1,1 @@
-:diamonds:
+:ok_woman:
