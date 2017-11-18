@@ -1,1 +1,1 @@
-:arrow_up:
+:eight_spoked_asterisk:
