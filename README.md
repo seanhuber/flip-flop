@@ -1,1 +1,1 @@
-:pushpin:
+:scissors:
