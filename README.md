@@ -1,1 +1,1 @@
-:pig:
+:bust_in_silhouette:
