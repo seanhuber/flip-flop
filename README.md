@@ -1,1 +1,1 @@
-:curry:
+:arrow_double_down:
