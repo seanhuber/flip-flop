@@ -1,1 +1,1 @@
-:four:
+:no_entry_sign:
