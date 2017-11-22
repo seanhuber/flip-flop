@@ -1,1 +1,1 @@
-:euro:
+:ok_hand:
