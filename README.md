@@ -1,1 +1,1 @@
-:hospital:
+:no_mobile_phones:
