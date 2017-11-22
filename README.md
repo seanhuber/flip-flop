@@ -1,1 +1,1 @@
-:crocodile:
+:no_bell:
