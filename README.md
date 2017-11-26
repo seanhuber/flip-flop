@@ -1,1 +1,1 @@
-:baby:
+:closed_book:
