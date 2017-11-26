@@ -1,1 +1,1 @@
-:light_rail:
+:curly_loop:
