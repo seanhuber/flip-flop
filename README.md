@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:light_rail:
