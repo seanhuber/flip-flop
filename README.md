@@ -1,1 +1,1 @@
-:melon:
+:traffic_light:
