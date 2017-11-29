@@ -1,1 +1,1 @@
-:scissors:
+:sunrise_over_mountains:
