@@ -1,1 +1,1 @@
-:sunrise_over_mountains:
+:bride_with_veil:
