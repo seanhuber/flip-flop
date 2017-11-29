@@ -1,1 +1,1 @@
-:boom:
+:rice_ball:
