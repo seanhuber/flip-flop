@@ -1,1 +1,1 @@
-:cupid:
+:smiley_cat:
