@@ -1,1 +1,1 @@
-:rice_cracker:
+:large_blue_diamond:
