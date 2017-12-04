@@ -1,1 +1,1 @@
-:white_circle:
+:crown:
