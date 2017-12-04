@@ -1,1 +1,1 @@
-:bulb:
+:baby_symbol:
