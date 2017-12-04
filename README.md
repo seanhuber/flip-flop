@@ -1,1 +1,1 @@
-:minibus:
+:rice_cracker:
