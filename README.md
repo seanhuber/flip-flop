@@ -1,1 +1,1 @@
-:cat2:
+:white_circle:
