@@ -1,1 +1,1 @@
-:gb:
+:video_camera:
