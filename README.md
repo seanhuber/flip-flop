@@ -1,1 +1,1 @@
-:construction_worker:
+:arrow_down_small:
