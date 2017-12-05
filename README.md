@@ -1,1 +1,1 @@
-:no_entry:
+:white_square_button:
