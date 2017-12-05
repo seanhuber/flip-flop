@@ -1,1 +1,1 @@
-:arrow_lower_right:
+:no_entry:
