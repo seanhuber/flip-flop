@@ -1,1 +1,1 @@
-:ship:
+:construction_worker:
