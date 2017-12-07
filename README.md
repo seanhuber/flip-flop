@@ -1,1 +1,1 @@
-:kissing_cat:
+:japanese_goblin:
