@@ -1,1 +1,1 @@
-:umbrella:
+:baby_chick:
