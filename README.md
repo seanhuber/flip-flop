@@ -1,1 +1,1 @@
-:paperclip:
+:tent:
