@@ -1,1 +1,1 @@
-:clock1130:
+:slot_machine:
