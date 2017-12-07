@@ -1,1 +1,1 @@
-:hotsprings:
+:paperclip:
