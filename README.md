@@ -1,1 +1,1 @@
-:tent:
+:kissing_cat:
