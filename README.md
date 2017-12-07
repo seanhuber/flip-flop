@@ -1,1 +1,1 @@
-:left_luggage:
+:vibration_mode:
