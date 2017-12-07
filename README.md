@@ -1,1 +1,1 @@
-:vibration_mode:
+:mouse2:
