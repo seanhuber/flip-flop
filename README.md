@@ -1,1 +1,1 @@
-:clap:
+:hatched_chick:
