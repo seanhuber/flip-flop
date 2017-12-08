@@ -1,1 +1,1 @@
-:heartbeat:
+:sunrise_over_mountains:
