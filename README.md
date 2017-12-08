@@ -1,1 +1,1 @@
-:back:
+:earth_americas:
