@@ -1,1 +1,1 @@
-:cake:
+:checkered_flag:
