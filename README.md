@@ -1,1 +1,1 @@
-:sparkler:
+:bear:
