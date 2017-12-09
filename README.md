@@ -1,1 +1,1 @@
-:jeans:
+:crossed_flags:
