@@ -1,1 +1,1 @@
-:smoking:
+:musical_score:
