@@ -1,1 +1,1 @@
-:crossed_flags:
+:house_with_garden:
