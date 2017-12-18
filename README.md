@@ -1,1 +1,1 @@
-:house_with_garden:
+:maple_leaf:
