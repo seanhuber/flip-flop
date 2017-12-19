@@ -1,1 +1,1 @@
-:door:
+:waning_crescent_moon:
