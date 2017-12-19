@@ -1,1 +1,1 @@
-:koko:
+:convenience_store:
