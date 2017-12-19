@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:cow2:
