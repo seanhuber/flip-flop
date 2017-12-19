@@ -1,1 +1,1 @@
-:wink:
+:european_castle:
