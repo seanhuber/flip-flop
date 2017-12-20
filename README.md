@@ -1,1 +1,1 @@
-:moneybag:
+:sweat_smile:
