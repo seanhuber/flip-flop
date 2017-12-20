@@ -1,1 +1,1 @@
-:haircut:
+:tanabata_tree:
