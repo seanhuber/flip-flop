@@ -1,1 +1,1 @@
-:sweat_smile:
+:scream_cat:
