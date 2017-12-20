@@ -1,1 +1,1 @@
-:birthday:
+:mailbox_closed:
