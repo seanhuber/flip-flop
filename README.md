@@ -1,1 +1,1 @@
-:baseball:
+:six_pointed_star:
