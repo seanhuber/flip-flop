@@ -1,1 +1,1 @@
-:neckbeard:
+:white_check_mark:
