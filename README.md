@@ -1,1 +1,1 @@
-:mouse:
+:simple_smile:
