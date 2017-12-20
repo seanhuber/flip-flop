@@ -1,1 +1,1 @@
-:simple_smile:
+:telephone_receiver:
