@@ -1,1 +1,1 @@
-:girl:
+:sun_with_face:
