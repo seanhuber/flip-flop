@@ -1,1 +1,1 @@
-:closed_book:
+:mountain_cableway:
