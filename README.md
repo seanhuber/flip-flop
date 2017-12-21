@@ -1,1 +1,1 @@
-:shoe:
+:tokyo_tower:
