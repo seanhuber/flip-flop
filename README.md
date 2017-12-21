@@ -1,1 +1,1 @@
-:sun_with_face:
+:closed_book:
