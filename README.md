@@ -1,1 +1,1 @@
-:baby_bottle:
+:closed_umbrella:
