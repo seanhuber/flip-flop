@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:kissing_cat:
