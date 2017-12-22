@@ -1,1 +1,1 @@
-:kissing_cat:
+:arrow_up:
