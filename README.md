@@ -1,1 +1,1 @@
-:doughnut:
+:large_blue_circle:
