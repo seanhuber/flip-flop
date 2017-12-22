@@ -1,1 +1,1 @@
-:sparkles:
+:wind_chime:
