@@ -1,1 +1,1 @@
-:pound:
+:money_with_wings:
