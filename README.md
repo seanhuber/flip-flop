@@ -1,1 +1,1 @@
-:sheep:
+:first_quarter_moon:
