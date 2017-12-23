@@ -1,1 +1,1 @@
-:blue_book:
+:heavy_minus_sign:
