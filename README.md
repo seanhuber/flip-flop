@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:new_moon:
