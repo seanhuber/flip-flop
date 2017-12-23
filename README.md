@@ -1,1 +1,1 @@
-:dragon_face:
+:traffic_light:
