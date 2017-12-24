@@ -1,1 +1,1 @@
-:haircut:
+:snail:
