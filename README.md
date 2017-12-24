@@ -1,1 +1,1 @@
-:snail:
+:toilet:
