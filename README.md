@@ -1,1 +1,1 @@
-:person_with_pouting_face:
+:floppy_disk:
