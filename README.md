@@ -1,1 +1,1 @@
-:toilet:
+:page_facing_up:
