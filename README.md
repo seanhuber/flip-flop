@@ -1,1 +1,1 @@
-:art:
+:baby_symbol:
