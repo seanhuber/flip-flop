@@ -1,1 +1,1 @@
-:ferris_wheel:
+:sweat_drops:
