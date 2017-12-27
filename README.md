@@ -1,1 +1,1 @@
-:ramen:
+:smoking:
