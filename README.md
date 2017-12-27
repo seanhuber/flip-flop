@@ -1,1 +1,1 @@
-:u7a7a:
+:japanese_goblin:
