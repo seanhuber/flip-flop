@@ -1,1 +1,1 @@
-:mag_right:
+:love_hotel:
