@@ -1,1 +1,1 @@
-:dragon:
+:rice_scene:
