@@ -1,1 +1,1 @@
-:fire:
+:mag_right:
