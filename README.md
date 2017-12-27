@@ -1,1 +1,1 @@
-:smoking:
+:waxing_crescent_moon:
