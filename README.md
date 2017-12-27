@@ -1,1 +1,1 @@
-:minidisc:
+:mail:
