@@ -1,1 +1,1 @@
-:grin:
+:ok_woman:
