@@ -1,1 +1,1 @@
-:sa:
+:shaved_ice:
