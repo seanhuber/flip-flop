@@ -1,1 +1,1 @@
-:bear:
+:white_large_square:
