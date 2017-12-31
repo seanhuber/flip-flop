@@ -1,1 +1,1 @@
-:ambulance:
+:heavy_minus_sign:
