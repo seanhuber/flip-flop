@@ -1,1 +1,1 @@
-:horse:
+:bear:
