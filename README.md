@@ -1,1 +1,1 @@
-:curly_loop:
+:twisted_rightwards_arrows:
