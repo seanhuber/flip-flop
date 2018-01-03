@@ -1,1 +1,1 @@
-:gun:
+:mobile_phone_off:
