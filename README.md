@@ -1,1 +1,1 @@
-:eyeglasses:
+:crossed_flags:
