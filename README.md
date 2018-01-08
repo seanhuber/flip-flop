@@ -1,1 +1,1 @@
-:waning_gibbous_moon:
+:mailbox_with_mail:
