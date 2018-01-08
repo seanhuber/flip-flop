@@ -1,1 +1,1 @@
-:hear_no_evil:
+:partly_sunny:
