@@ -1,1 +1,1 @@
-:tada:
+:smiley:
