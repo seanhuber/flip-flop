@@ -1,1 +1,1 @@
-:open_hands:
+:telephone_receiver:
