@@ -1,1 +1,1 @@
-:pizza:
+:open_hands:
