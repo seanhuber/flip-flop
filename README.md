@@ -1,1 +1,1 @@
-:no_entry:
+:waning_gibbous_moon:
