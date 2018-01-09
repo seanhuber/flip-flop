@@ -1,1 +1,1 @@
-:sheep:
+:smiling_imp:
