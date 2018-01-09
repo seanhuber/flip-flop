@@ -1,1 +1,1 @@
-:grapes:
+:small_orange_diamond:
