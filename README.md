@@ -1,1 +1,1 @@
-:steam_locomotive:
+:light_rail:
