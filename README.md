@@ -1,1 +1,1 @@
-:ear:
+:european_castle:
