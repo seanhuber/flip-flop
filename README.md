@@ -1,1 +1,1 @@
-:sagittarius:
+:kissing_heart:
