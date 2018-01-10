@@ -1,1 +1,1 @@
-:mouse2:
+:arrows_counterclockwise:
