@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:chart_with_upwards_trend:
