@@ -1,1 +1,1 @@
-:gun:
+:first_quarter_moon:
