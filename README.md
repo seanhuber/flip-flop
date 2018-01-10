@@ -1,1 +1,1 @@
-:symbols:
+:jp:
