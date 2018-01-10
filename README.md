@@ -1,1 +1,1 @@
-:pouting_cat:
+:sunrise_over_mountains:
