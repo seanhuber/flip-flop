@@ -1,1 +1,1 @@
-:earth_africa:
+:clock6:
