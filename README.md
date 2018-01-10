@@ -1,1 +1,1 @@
-:banana:
+:earth_africa:
