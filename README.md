@@ -1,1 +1,1 @@
-:nail_care:
+:statue_of_liberty:
