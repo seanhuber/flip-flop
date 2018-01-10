@@ -1,1 +1,1 @@
-:first_quarter_moon:
+:pouting_cat:
