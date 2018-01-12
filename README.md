@@ -1,1 +1,1 @@
-:weary:
+:sparkler:
