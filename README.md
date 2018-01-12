@@ -1,1 +1,1 @@
-:poop:
+:milky_way:
