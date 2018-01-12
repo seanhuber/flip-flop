@@ -1,1 +1,1 @@
-:restroom:
+:twisted_rightwards_arrows:
