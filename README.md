@@ -1,1 +1,1 @@
-:anger:
+:sweat_smile:
