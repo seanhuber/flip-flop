@@ -1,1 +1,1 @@
-:girl:
+:slot_machine:
