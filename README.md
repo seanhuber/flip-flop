@@ -1,1 +1,1 @@
-:lollipop:
+:department_store:
