@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:low_brightness:
