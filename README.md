@@ -1,1 +1,1 @@
-:wc:
+:arrows_clockwise:
