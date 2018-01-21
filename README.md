@@ -1,1 +1,1 @@
-:paperclip:
+:tired_face:
