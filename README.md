@@ -1,1 +1,1 @@
-:worried:
+:last_quarter_moon:
