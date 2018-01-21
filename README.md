@@ -1,1 +1,1 @@
-:eggplant:
+:triumph:
