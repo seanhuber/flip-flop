@@ -1,1 +1,1 @@
-:triumph:
+:ru:
