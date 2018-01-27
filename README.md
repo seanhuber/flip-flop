@@ -1,1 +1,1 @@
-:unlock:
+:point_up:
