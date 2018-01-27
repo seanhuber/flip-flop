@@ -1,1 +1,1 @@
-:ledger:
+:small_orange_diamond:
