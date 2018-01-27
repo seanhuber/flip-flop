@@ -1,1 +1,1 @@
-:sparkle:
+:arrow_heading_up:
