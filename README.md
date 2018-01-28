@@ -1,1 +1,1 @@
-:no_bicycles:
+:large_blue_diamond:
