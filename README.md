@@ -1,1 +1,1 @@
-:flashlight:
+:telephone:
