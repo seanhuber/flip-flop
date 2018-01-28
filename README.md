@@ -1,1 +1,1 @@
-:sushi:
+:repeat_one:
