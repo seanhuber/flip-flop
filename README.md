@@ -1,1 +1,1 @@
-:o:
+:flashlight:
