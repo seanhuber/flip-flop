@@ -1,1 +1,1 @@
-:moyai:
+:bust_in_silhouette:
