@@ -1,1 +1,1 @@
-:mouse2:
+:musical_score:
