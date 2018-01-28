@@ -1,1 +1,1 @@
-:pill:
+:sweat_smile:
