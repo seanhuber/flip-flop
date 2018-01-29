@@ -1,1 +1,1 @@
-:satellite:
+:carousel_horse:
