@@ -1,1 +1,1 @@
-:clock2:
+:hatching_chick:
