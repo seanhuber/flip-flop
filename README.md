@@ -1,1 +1,1 @@
-:rooster:
+:panda_face:
