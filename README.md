@@ -1,1 +1,1 @@
-:diamonds:
+:waxing_crescent_moon:
