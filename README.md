@@ -1,1 +1,1 @@
-:mahjong:
+:crossed_flags:
