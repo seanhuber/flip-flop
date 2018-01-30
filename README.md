@@ -1,1 +1,1 @@
-:milky_way:
+:grey_question:
