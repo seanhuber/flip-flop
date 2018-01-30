@@ -1,1 +1,1 @@
-:tanabata_tree:
+:speech_balloon:
