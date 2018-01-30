@@ -1,1 +1,1 @@
-:shirt:
+:simple_smile:
