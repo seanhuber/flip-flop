@@ -1,1 +1,1 @@
-:sunflower:
+:information_source:
