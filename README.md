@@ -1,1 +1,1 @@
-:name_badge:
+:curly_loop:
