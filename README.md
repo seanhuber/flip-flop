@@ -1,1 +1,1 @@
-:japanese_castle:
+:left_luggage:
