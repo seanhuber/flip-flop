@@ -1,1 +1,1 @@
-:japanese_castle:
+:name_badge:
