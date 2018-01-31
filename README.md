@@ -1,1 +1,1 @@
-:trolleybus:
+:japanese_castle:
