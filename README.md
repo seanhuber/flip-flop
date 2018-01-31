@@ -1,1 +1,1 @@
-:left_luggage:
+:globe_with_meridians:
