@@ -1,1 +1,1 @@
-:curly_loop:
+:mans_shoe:
