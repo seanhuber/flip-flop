@@ -1,1 +1,1 @@
-:gb:
+:bookmark_tabs:
