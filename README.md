@@ -1,1 +1,1 @@
-:briefcase:
+:blue_book:
