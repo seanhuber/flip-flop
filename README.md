@@ -1,1 +1,1 @@
-:boot:
+:electric_plug:
