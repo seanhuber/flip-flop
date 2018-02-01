@@ -1,1 +1,1 @@
-:blue_book:
+:mobile_phone_off:
