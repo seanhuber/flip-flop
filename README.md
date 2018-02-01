@@ -1,1 +1,1 @@
-:koala:
+:speech_balloon:
