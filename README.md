@@ -1,1 +1,1 @@
-:electric_plug:
+:musical_keyboard:
