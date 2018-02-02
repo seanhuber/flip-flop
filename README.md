@@ -1,1 +1,1 @@
-:fu:
+:musical_keyboard:
