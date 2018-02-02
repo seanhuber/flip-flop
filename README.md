@@ -1,1 +1,1 @@
-:minidisc:
+:radio_button:
