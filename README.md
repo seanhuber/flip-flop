@@ -1,1 +1,1 @@
-:free:
+:palm_tree:
