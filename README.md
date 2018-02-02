@@ -1,1 +1,1 @@
-:ambulance:
+:ok_woman:
