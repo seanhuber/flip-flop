@@ -1,1 +1,1 @@
-:metro:
+:slot_machine:
