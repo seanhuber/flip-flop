@@ -1,1 +1,1 @@
-:palm_tree:
+:blue_book:
