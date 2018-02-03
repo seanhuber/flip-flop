@@ -1,1 +1,1 @@
-:bank:
+:arrow_right:
