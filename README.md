@@ -1,1 +1,1 @@
-:mag:
+:confetti_ball:
