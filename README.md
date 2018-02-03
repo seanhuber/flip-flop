@@ -1,1 +1,1 @@
-:godmode:
+:high_brightness:
