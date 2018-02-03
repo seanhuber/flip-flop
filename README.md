@@ -1,1 +1,1 @@
-:scorpius:
+:scissors:
