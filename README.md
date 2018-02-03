@@ -1,1 +1,1 @@
-:scissors:
+:congratulations:
