@@ -1,1 +1,1 @@
-:disappointed:
+:hatched_chick:
