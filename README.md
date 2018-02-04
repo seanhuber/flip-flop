@@ -1,1 +1,1 @@
-:copyright:
+:moyai:
