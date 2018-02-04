@@ -1,1 +1,1 @@
-:man_with_turban:
+:round_pushpin:
