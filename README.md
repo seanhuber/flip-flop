@@ -1,1 +1,1 @@
-:moyai:
+:high_brightness:
