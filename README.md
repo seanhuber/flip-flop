@@ -1,1 +1,1 @@
-:arrow_heading_down:
+:speak_no_evil:
