@@ -1,1 +1,1 @@
-:arrow_left:
+:confetti_ball:
