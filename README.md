@@ -1,1 +1,1 @@
-:boom:
+:page_with_curl:
