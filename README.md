@@ -1,1 +1,1 @@
-:capricorn:
+:fish_cake:
