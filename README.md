@@ -1,1 +1,1 @@
-:love_letter:
+:european_castle:
