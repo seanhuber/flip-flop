@@ -1,1 +1,1 @@
-:pensive:
+:purple_heart:
