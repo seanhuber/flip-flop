@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:person_with_blond_hair:
