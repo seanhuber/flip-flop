@@ -1,1 +1,1 @@
-:couple:
+:crescent_moon:
