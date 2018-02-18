@@ -1,1 +1,1 @@
-:smoking:
+:rice_scene:
