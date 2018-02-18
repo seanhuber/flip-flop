@@ -1,1 +1,1 @@
-:eyeglasses:
+:dromedary_camel:
