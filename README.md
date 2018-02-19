@@ -1,1 +1,1 @@
-:tulip:
+:smile_cat:
