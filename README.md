@@ -1,1 +1,1 @@
-:do_not_litter:
+:arrow_heading_down:
