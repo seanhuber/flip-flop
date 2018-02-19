@@ -1,1 +1,1 @@
-:cake:
+:do_not_litter:
