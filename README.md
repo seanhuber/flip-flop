@@ -1,1 +1,1 @@
-:tennis:
+:water_buffalo:
