@@ -1,1 +1,1 @@
-:grey_question:
+:high_heel:
