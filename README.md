@@ -1,1 +1,1 @@
-:poultry_leg:
+:tropical_drink:
