@@ -1,1 +1,1 @@
-:mortar_board:
+:monkey_face:
