@@ -1,1 +1,1 @@
-:thought_balloon:
+:arrow_lower_left:
