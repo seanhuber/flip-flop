@@ -1,1 +1,1 @@
-:monkey_face:
+:radio_button:
