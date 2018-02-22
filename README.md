@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:traffic_light:
