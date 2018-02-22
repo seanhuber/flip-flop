@@ -1,1 +1,1 @@
-:smiley:
+:aquarius:
