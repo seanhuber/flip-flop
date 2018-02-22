@@ -1,1 +1,1 @@
-:aquarius:
+:oncoming_taxi:
