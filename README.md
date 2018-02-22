@@ -1,1 +1,1 @@
-:purse:
+:thought_balloon:
