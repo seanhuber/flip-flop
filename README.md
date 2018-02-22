@@ -1,1 +1,1 @@
-:leaves:
+:sun_with_face:
