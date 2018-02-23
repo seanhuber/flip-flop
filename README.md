@@ -1,1 +1,1 @@
-:sound:
+:smiley_cat:
