@@ -1,1 +1,1 @@
-:weary:
+:arrow_upper_left:
