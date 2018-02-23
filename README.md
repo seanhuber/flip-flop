@@ -1,1 +1,1 @@
-:boar:
+:smirk_cat:
