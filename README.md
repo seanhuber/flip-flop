@@ -1,1 +1,1 @@
-:flushed:
+:arrow_right:
