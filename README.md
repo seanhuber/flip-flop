@@ -1,1 +1,1 @@
-:hammer:
+:japanese_ogre:
