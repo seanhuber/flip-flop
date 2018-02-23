@@ -1,1 +1,1 @@
-:japanese_ogre:
+:water_buffalo:
