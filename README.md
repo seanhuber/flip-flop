@@ -1,1 +1,1 @@
-:aquarius:
+:mountain_railway:
