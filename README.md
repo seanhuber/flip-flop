@@ -1,1 +1,1 @@
-:ear_of_rice:
+:couple_with_heart:
