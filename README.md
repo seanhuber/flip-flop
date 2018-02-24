@@ -1,1 +1,1 @@
-:wc:
+:closed_book:
