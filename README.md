@@ -1,1 +1,1 @@
-:clock12:
+:ear_of_rice:
