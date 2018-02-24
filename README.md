@@ -1,1 +1,1 @@
-:arrow_right:
+:clock12:
