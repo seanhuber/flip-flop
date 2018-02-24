@@ -1,1 +1,1 @@
-:ribbon:
+:aquarius:
