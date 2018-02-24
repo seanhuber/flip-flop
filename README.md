@@ -1,1 +1,1 @@
-:closed_book:
+:city_sunrise:
