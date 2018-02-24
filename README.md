@@ -1,1 +1,1 @@
-:japan:
+:card_index:
