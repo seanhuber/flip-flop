@@ -1,1 +1,1 @@
-:angel:
+:palm_tree:
