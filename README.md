@@ -1,1 +1,1 @@
-:arrow_heading_down:
+:large_blue_diamond:
