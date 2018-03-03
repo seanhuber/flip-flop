@@ -1,1 +1,1 @@
-:copyright:
+:carousel_horse:
