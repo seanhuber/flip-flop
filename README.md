@@ -1,1 +1,1 @@
-:tada:
+:japanese_goblin:
