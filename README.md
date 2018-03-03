@@ -1,1 +1,1 @@
-:santa:
+:telephone:
