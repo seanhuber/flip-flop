@@ -1,1 +1,1 @@
-:honeybee:
+:inbox_tray:
