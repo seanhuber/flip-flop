@@ -1,1 +1,1 @@
-:couple_with_heart:
+:heavy_check_mark:
