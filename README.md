@@ -1,1 +1,1 @@
-:new:
+:no_pedestrians:
