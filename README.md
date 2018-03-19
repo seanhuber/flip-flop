@@ -1,1 +1,1 @@
-:elephant:
+:last_quarter_moon:
