@@ -1,1 +1,1 @@
-:baggage_claim:
+:do_not_litter:
