@@ -1,1 +1,1 @@
-:electric_plug:
+:stuck_out_tongue:
