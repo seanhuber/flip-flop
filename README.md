@@ -1,1 +1,1 @@
-:angry:
+:smiley_cat:
