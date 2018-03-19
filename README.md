@@ -1,1 +1,1 @@
-:no_pedestrians:
+:heavy_check_mark:
