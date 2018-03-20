@@ -1,1 +1,1 @@
-:shoe:
+:department_store:
