@@ -1,1 +1,1 @@
-:file_folder:
+:no_pedestrians:
