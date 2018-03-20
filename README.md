@@ -1,1 +1,1 @@
-:no_pedestrians:
+:lock_with_ink_pen:
