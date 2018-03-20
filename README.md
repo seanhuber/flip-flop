@@ -1,1 +1,1 @@
-:purse:
+:waxing_gibbous_moon:
