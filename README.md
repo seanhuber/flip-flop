@@ -1,1 +1,1 @@
-:smile_cat:
+:scissors:
