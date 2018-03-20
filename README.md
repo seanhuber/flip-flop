@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:running_shirt_with_sash:
