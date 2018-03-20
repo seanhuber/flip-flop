@@ -1,1 +1,1 @@
-:scissors:
+:up:
