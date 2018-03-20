@@ -1,1 +1,1 @@
-:smiley_cat:
+:heavy_exclamation_mark:
