@@ -1,1 +1,1 @@
-:star:
+:orange_book:
