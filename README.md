@@ -1,1 +1,1 @@
-:cake:
+:vibration_mode:
