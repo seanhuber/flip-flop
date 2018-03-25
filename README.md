@@ -1,1 +1,1 @@
-:collision:
+:mailbox_closed:
