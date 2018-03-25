@@ -1,1 +1,1 @@
-:sweat:
+:green_apple:
