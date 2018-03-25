@@ -1,1 +1,1 @@
-:waning_crescent_moon:
+:do_not_litter:
