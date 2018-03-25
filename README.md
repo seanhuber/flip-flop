@@ -1,1 +1,1 @@
-:uk:
+:mag_right:
