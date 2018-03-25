@@ -1,1 +1,1 @@
-:it:
+:waning_crescent_moon:
