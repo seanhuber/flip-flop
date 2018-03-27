@@ -1,1 +1,1 @@
-:eight_spoked_asterisk:
+:rugby_football:
