@@ -1,1 +1,1 @@
-:mans_shoe:
+:leftwards_arrow_with_hook:
