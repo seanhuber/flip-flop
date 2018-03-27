@@ -1,1 +1,1 @@
-:arrow_right_hook:
+:trident:
