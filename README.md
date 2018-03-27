@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:eight_spoked_asterisk:
