@@ -1,1 +1,1 @@
-:name_badge:
+:mans_shoe:
