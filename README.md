@@ -1,1 +1,1 @@
-:musical_keyboard:
+:arrow_right_hook:
