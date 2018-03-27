@@ -1,1 +1,1 @@
-:white_medium_small_square:
+:potable_water:
