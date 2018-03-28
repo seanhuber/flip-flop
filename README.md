@@ -1,1 +1,1 @@
-:headphones:
+:video_camera:
