@@ -1,1 +1,1 @@
-:green_apple:
+:heart_decoration:
