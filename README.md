@@ -1,1 +1,1 @@
-:neckbeard:
+:heavy_multiplication_x:
