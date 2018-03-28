@@ -1,1 +1,1 @@
-:books:
+:articulated_lorry:
