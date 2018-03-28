@@ -1,1 +1,1 @@
-:blue_book:
+:headphones:
