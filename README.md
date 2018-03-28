@@ -1,1 +1,1 @@
-:sweat:
+:waxing_crescent_moon:
