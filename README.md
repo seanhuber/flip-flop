@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:blue_book:
