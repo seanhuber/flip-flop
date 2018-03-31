@@ -1,1 +1,1 @@
-:rice_ball:
+:cold_sweat:
