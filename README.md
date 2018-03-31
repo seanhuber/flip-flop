@@ -1,1 +1,1 @@
-:relaxed:
+:curry:
