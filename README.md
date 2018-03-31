@@ -1,1 +1,1 @@
-:sleeping:
+:curry:
