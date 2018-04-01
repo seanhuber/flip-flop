@@ -1,1 +1,1 @@
-:smoking:
+:restroom:
