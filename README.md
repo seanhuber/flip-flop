@@ -1,1 +1,1 @@
-:computer:
+:electric_plug:
