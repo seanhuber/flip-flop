@@ -1,1 +1,1 @@
-:electric_plug:
+:honey_pot:
