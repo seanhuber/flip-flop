@@ -1,1 +1,1 @@
-:melon:
+:monkey_face:
