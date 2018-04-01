@@ -1,1 +1,1 @@
-:monkey_face:
+:new_moon_with_face:
