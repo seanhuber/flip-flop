@@ -1,1 +1,1 @@
-:fountain:
+:arrow_up_small:
