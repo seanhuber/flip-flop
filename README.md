@@ -1,1 +1,1 @@
-:frog:
+:moyai:
