@@ -1,1 +1,1 @@
-:honey_pot:
+:black_circle:
