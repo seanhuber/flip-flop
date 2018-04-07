@@ -1,1 +1,1 @@
-:balloon:
+:game_die:
