@@ -1,1 +1,1 @@
-:minibus:
+:bullettrain_side:
