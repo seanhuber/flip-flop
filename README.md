@@ -1,1 +1,1 @@
-:no_bicycles:
+:arrows_counterclockwise:
