@@ -1,1 +1,1 @@
-:roller_coaster:
+:heavy_dollar_sign:
