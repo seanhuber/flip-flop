@@ -1,1 +1,1 @@
-:taurus:
+:alarm_clock:
