@@ -1,1 +1,1 @@
-:construction:
+:hatched_chick:
