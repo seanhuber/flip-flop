@@ -1,1 +1,1 @@
-:octocat:
+:low_brightness:
