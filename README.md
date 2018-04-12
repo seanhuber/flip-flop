@@ -1,1 +1,1 @@
-:leo:
+:dromedary_camel:
