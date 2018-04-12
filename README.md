@@ -1,1 +1,1 @@
-:curly_loop:
+:ok_woman:
