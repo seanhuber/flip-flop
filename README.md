@@ -1,1 +1,1 @@
-:kiss:
+:potable_water:
