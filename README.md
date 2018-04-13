@@ -1,1 +1,1 @@
-:cinema:
+:mailbox_with_mail:
