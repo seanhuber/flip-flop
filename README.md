@@ -1,1 +1,1 @@
-:radio:
+:no_entry_sign:
