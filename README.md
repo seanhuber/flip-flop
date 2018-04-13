@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:smirk_cat:
