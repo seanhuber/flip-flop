@@ -1,1 +1,1 @@
-:japan:
+:two_hearts:
