@@ -1,1 +1,1 @@
-:japan:
+:candy:
