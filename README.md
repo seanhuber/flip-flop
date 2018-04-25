@@ -1,1 +1,1 @@
-:raised_hands:
+:ice_cream:
