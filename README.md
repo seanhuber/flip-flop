@@ -1,1 +1,1 @@
-:older_woman:
+:arrow_lower_left:
