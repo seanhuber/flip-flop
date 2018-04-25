@@ -1,1 +1,1 @@
-:heavy_check_mark:
+:earth_americas:
