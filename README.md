@@ -1,1 +1,1 @@
-:kiss:
+:heavy_check_mark:
