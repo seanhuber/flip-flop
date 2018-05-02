@@ -1,1 +1,1 @@
-:pencil2:
+:earth_asia:
