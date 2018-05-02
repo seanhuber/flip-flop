@@ -1,1 +1,1 @@
-:art:
+:crying_cat_face:
