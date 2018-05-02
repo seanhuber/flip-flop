@@ -1,1 +1,1 @@
-:earth_asia:
+:european_post_office:
