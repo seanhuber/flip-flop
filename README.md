@@ -1,1 +1,1 @@
-:rugby_football:
+:statue_of_liberty:
