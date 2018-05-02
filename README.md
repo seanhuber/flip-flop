@@ -1,1 +1,1 @@
-:shirt:
+:rugby_football:
