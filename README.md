@@ -1,1 +1,1 @@
-:telephone:
+:waning_gibbous_moon:
