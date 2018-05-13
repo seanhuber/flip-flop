@@ -1,1 +1,1 @@
-:sailboat:
+:four_leaf_clover:
