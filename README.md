@@ -1,1 +1,1 @@
-:recycle:
+:space_invader:
