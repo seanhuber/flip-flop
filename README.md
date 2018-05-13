@@ -1,1 +1,1 @@
-:a:
+:point_left:
