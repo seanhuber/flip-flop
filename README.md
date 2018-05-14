@@ -1,1 +1,1 @@
-:us:
+:video_game:
