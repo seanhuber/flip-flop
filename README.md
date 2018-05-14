@@ -1,1 +1,1 @@
-:video_game:
+:large_blue_diamond:
