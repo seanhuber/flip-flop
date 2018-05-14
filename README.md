@@ -1,1 +1,1 @@
-:six_pointed_star:
+:full_moon_with_face:
