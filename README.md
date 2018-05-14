@@ -1,1 +1,1 @@
-:wine_glass:
+:baby_symbol:
