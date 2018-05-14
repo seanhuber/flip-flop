@@ -1,1 +1,1 @@
-:dizzy:
+:aerial_tramway:
