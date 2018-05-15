@@ -1,1 +1,1 @@
-:full_moon_with_face:
+:raised_hand:
