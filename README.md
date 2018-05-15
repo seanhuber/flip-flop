@@ -1,1 +1,1 @@
-:computer:
+:page_with_curl:
