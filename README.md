@@ -1,1 +1,1 @@
-:syringe:
+:baby_chick:
