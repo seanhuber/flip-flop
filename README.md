@@ -1,1 +1,1 @@
-:airplane:
+:movie_camera:
