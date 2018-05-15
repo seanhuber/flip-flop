@@ -1,1 +1,1 @@
-:signal_strength:
+:green_heart:
