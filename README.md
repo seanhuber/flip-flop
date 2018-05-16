@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:eight_pointed_black_star:
