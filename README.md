@@ -1,1 +1,1 @@
-:sagittarius:
+:green_heart:
