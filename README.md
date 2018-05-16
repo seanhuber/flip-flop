@@ -1,1 +1,1 @@
-:sleeping:
+:white_large_square:
