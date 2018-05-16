@@ -1,1 +1,1 @@
-:round_pushpin:
+:point_right:
