@@ -1,1 +1,1 @@
-:bowtie:
+:tropical_fish:
