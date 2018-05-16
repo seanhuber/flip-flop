@@ -1,1 +1,1 @@
-:flashlight:
+:no_good:
