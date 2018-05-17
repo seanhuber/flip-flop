@@ -1,1 +1,1 @@
-:persevere:
+:four_leaf_clover:
