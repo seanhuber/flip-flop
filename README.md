@@ -1,1 +1,1 @@
-:white_circle:
+:christmas_tree:
