@@ -1,1 +1,1 @@
-:bus:
+:white_circle:
