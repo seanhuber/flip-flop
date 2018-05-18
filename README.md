@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:earth_africa:
