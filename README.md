@@ -1,1 +1,1 @@
-:clock630:
+:heavy_dollar_sign:
