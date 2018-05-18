@@ -1,1 +1,1 @@
-:innocent:
+:waxing_crescent_moon:
