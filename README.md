@@ -1,1 +1,1 @@
-:sparkles:
+:postal_horn:
