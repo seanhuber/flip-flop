@@ -1,1 +1,1 @@
-:tshirt:
+:no_bell:
