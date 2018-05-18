@@ -1,1 +1,1 @@
-:cyclone:
+:poultry_leg:
