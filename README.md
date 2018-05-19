@@ -1,1 +1,1 @@
-:cl:
+:japanese_goblin:
