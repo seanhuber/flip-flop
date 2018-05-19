@@ -1,1 +1,1 @@
-:slot_machine:
+:dizzy_face:
