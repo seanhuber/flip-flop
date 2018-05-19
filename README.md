@@ -1,1 +1,1 @@
-:scissors:
+:white_medium_square:
