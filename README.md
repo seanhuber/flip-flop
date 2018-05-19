@@ -1,1 +1,1 @@
-:japanese_goblin:
+:tm:
