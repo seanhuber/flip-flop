@@ -1,1 +1,1 @@
-:angel:
+:arrow_left:
