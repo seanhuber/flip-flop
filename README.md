@@ -1,1 +1,1 @@
-:japanese_castle:
+:icecream:
