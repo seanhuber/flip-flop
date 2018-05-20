@@ -1,1 +1,1 @@
-:calendar:
+:no_mouth:
