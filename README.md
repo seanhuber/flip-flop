@@ -1,1 +1,1 @@
-:sleeping:
+:japanese_castle:
