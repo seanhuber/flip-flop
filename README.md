@@ -1,1 +1,1 @@
-:gem:
+:mans_shoe:
