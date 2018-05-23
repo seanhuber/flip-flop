@@ -1,1 +1,1 @@
-:golf:
+:small_red_triangle:
