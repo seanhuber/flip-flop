@@ -1,1 +1,1 @@
-:volcano:
+:kissing_cat:
