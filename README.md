@@ -1,1 +1,1 @@
-:water_buffalo:
+:musical_note:
