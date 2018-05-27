@@ -1,1 +1,1 @@
-:musical_note:
+:ballot_box_with_check:
