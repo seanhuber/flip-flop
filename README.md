@@ -1,1 +1,1 @@
-:small_red_triangle_down:
+:closed_lock_with_key:
