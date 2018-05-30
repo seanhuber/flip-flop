@@ -1,1 +1,1 @@
-:grinning:
+:rice:
