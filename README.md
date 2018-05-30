@@ -1,1 +1,1 @@
-:book:
+:rice_scene:
