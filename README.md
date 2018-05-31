@@ -1,1 +1,1 @@
-:couple_with_heart:
+:person_with_pouting_face:
