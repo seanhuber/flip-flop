@@ -1,1 +1,1 @@
-:mushroom:
+:tanabata_tree:
