@@ -1,1 +1,1 @@
-:tram:
+:heavy_division_sign:
