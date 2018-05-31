@@ -1,1 +1,1 @@
-:kimono:
+:couple_with_heart:
