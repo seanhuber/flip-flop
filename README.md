@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:chart_with_upwards_trend:
