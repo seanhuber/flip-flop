@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:mailbox_with_mail:
