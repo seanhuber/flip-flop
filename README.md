@@ -1,1 +1,1 @@
-:triangular_flag_on_post:
+:new_moon_with_face:
