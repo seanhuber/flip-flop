@@ -1,1 +1,1 @@
-:taxi:
+:mailbox_with_mail:
