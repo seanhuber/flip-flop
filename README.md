@@ -1,1 +1,1 @@
-:mount_fuji:
+:jack_o_lantern:
