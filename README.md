@@ -1,1 +1,1 @@
-:arrow_down:
+:mount_fuji:
