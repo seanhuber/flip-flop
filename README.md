@@ -1,1 +1,1 @@
-:lipstick:
+:bank:
