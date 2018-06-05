@@ -1,1 +1,1 @@
-:pager:
+:hear_no_evil:
