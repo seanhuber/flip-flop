@@ -1,1 +1,1 @@
-:gem:
+:closed_book:
