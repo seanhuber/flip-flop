@@ -1,1 +1,1 @@
-:link:
+:lipstick:
