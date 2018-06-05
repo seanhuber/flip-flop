@@ -1,1 +1,1 @@
-:open_hands:
+:inbox_tray:
