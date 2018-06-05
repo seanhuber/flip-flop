@@ -1,1 +1,1 @@
-:atm:
+:potable_water:
