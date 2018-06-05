@@ -1,1 +1,1 @@
-:lock:
+:joy_cat:
