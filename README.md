@@ -1,1 +1,1 @@
-:yum:
+:open_hands:
