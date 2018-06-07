@@ -1,1 +1,1 @@
-:scroll:
+:mouse2:
