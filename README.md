@@ -1,1 +1,1 @@
-:spaghetti:
+:snowman:
