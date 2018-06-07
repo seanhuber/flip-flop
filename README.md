@@ -1,1 +1,1 @@
-:lock:
+:vertical_traffic_light:
