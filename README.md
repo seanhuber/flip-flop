@@ -1,1 +1,1 @@
-:barber:
+:moneybag:
