@@ -1,1 +1,1 @@
-:fish:
+:school_satchel:
