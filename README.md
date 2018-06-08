@@ -1,1 +1,1 @@
-:star:
+:statue_of_liberty:
