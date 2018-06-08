@@ -1,1 +1,1 @@
-:tropical_fish:
+:ring:
