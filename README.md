@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:two_men_holding_hands:
