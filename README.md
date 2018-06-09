@@ -1,1 +1,1 @@
-:bear:
+:earth_africa:
