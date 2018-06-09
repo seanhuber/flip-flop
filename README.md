@@ -1,1 +1,1 @@
-:large_blue_circle:
+:chart_with_downwards_trend:
