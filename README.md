@@ -1,1 +1,1 @@
-:earth_africa:
+:crystal_ball:
