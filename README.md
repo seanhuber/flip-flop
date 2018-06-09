@@ -1,1 +1,1 @@
-:corn:
+:partly_sunny:
