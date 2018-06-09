@@ -1,1 +1,1 @@
-:mailbox:
+:no_smoking:
