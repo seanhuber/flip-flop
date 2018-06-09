@@ -1,1 +1,1 @@
-:triangular_ruler:
+:waxing_crescent_moon:
