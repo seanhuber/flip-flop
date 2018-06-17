@@ -1,1 +1,1 @@
-:x:
+:vibration_mode:
