@@ -1,1 +1,1 @@
-:bowtie:
+:honey_pot:
