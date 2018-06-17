@@ -1,1 +1,1 @@
-:smirk:
+:joy_cat:
