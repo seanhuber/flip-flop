@@ -1,1 +1,1 @@
-:virgo:
+:bowtie:
