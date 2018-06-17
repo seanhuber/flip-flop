@@ -1,1 +1,1 @@
-:monkey_face:
+:raising_hand:
