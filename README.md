@@ -1,1 +1,1 @@
-:scream_cat:
+:shaved_ice:
