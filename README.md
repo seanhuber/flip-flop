@@ -1,1 +1,1 @@
-:rat:
+:minibus:
