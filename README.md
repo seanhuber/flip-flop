@@ -1,1 +1,1 @@
-:post_office:
+:white_medium_square:
