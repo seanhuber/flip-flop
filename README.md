@@ -1,1 +1,1 @@
-:facepunch:
+:scream_cat:
