@@ -1,1 +1,1 @@
-:trident:
+:scream_cat:
