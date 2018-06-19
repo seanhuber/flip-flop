@@ -1,1 +1,1 @@
-:honey_pot:
+:heavy_minus_sign:
