@@ -1,1 +1,1 @@
-:steam_locomotive:
+:baby_chick:
