@@ -1,1 +1,1 @@
-:lips:
+:school_satchel:
