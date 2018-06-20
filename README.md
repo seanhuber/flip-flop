@@ -1,1 +1,1 @@
-:school_satchel:
+:mag_right:
