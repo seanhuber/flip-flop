@@ -1,1 +1,1 @@
-:mag_right:
+:incoming_envelope:
