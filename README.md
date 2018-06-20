@@ -1,1 +1,1 @@
-:hamster:
+:hourglass_flowing_sand:
