@@ -1,1 +1,1 @@
-:hankey:
+:kissing_closed_eyes:
