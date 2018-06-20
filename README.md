@@ -1,1 +1,1 @@
-:hourglass_flowing_sand:
+:no_mobile_phones:
