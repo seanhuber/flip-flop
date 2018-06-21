@@ -1,1 +1,1 @@
-:office:
+:izakaya_lantern:
