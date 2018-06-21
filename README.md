@@ -1,1 +1,1 @@
-:confetti_ball:
+:honey_pot:
