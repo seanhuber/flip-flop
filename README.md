@@ -1,1 +1,1 @@
-:satellite:
+:maple_leaf:
