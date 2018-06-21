@@ -1,1 +1,1 @@
-:maple_leaf:
+:signal_strength:
