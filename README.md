@@ -1,1 +1,1 @@
-:warning:
+:open_hands:
