@@ -1,1 +1,1 @@
-:monkey:
+:kissing_cat:
