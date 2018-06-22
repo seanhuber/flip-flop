@@ -1,1 +1,1 @@
-:de:
+:blue_heart:
