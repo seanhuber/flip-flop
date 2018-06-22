@@ -1,1 +1,1 @@
-:green_apple:
+:heavy_division_sign:
