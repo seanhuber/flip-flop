@@ -1,1 +1,1 @@
-:volcano:
+:green_apple:
