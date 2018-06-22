@@ -1,1 +1,1 @@
-:bamboo:
+:european_post_office:
