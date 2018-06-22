@@ -1,1 +1,1 @@
-:ring:
+:moyai:
