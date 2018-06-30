@@ -1,1 +1,1 @@
-:oncoming_bus:
+:thought_balloon:
