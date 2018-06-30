@@ -1,1 +1,1 @@
-:bus:
+:no_mouth:
