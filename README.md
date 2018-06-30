@@ -1,1 +1,1 @@
-:meat_on_bone:
+:large_orange_diamond:
