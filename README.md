@@ -1,1 +1,1 @@
-:no_mouth:
+:statue_of_liberty:
