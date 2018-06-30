@@ -1,1 +1,1 @@
-:passport_control:
+:eight_spoked_asterisk:
