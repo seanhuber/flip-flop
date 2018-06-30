@@ -1,1 +1,1 @@
-:dromedary_camel:
+:oncoming_bus:
