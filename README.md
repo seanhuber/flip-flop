@@ -1,1 +1,1 @@
-:small_blue_diamond:
+:ideograph_advantage:
