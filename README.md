@@ -1,1 +1,1 @@
-:wc:
+:european_post_office:
