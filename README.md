@@ -1,1 +1,1 @@
-:revolving_hearts:
+:chart_with_downwards_trend:
