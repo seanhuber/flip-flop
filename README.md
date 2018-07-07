@@ -1,1 +1,1 @@
-:parking:
+:sagittarius:
