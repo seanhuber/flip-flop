@@ -1,1 +1,1 @@
-:swimmer:
+:thought_balloon:
