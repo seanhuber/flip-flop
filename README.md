@@ -1,1 +1,1 @@
-:handbag:
+:sparkles:
