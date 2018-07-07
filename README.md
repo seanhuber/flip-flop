@@ -1,1 +1,1 @@
-:school:
+:arrows_clockwise:
