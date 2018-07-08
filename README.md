@@ -1,1 +1,1 @@
-:lollipop:
+:hatched_chick:
