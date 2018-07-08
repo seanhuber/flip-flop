@@ -1,1 +1,1 @@
-:swimmer:
+:mag:
