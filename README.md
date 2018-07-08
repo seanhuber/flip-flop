@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:stuck_out_tongue_closed_eyes:
