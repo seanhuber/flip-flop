@@ -1,1 +1,1 @@
-:mag:
+:bust_in_silhouette:
