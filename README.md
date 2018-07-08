@@ -1,1 +1,1 @@
-:peach:
+:white_check_mark:
