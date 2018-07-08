@@ -1,1 +1,1 @@
-:cupid:
+:do_not_litter:
