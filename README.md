@@ -1,1 +1,1 @@
-:helicopter:
+:rice_cracker:
