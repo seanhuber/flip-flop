@@ -1,1 +1,1 @@
-:revolving_hearts:
+:slot_machine:
