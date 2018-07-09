@@ -1,1 +1,1 @@
-:slot_machine:
+:incoming_envelope:
