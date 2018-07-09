@@ -1,1 +1,1 @@
-:bus:
+:house_with_garden:
