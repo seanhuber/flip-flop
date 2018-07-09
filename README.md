@@ -1,1 +1,1 @@
-:shaved_ice:
+:white_small_square:
