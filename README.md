@@ -1,1 +1,1 @@
-:bear:
+:smiling_imp:
