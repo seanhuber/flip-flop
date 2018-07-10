@@ -1,1 +1,1 @@
-:open_hands:
+:moyai:
