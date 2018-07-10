@@ -1,1 +1,1 @@
-:full_moon_with_face:
+:smiley_cat:
