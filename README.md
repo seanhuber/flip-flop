@@ -1,1 +1,1 @@
-:clock12:
+:new_moon_with_face:
