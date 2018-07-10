@@ -1,1 +1,1 @@
-:key:
+:open_hands:
