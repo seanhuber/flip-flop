@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:outbox_tray:
