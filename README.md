@@ -1,1 +1,1 @@
-:dragon:
+:point_right:
