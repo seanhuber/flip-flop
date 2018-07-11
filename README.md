@@ -1,1 +1,1 @@
-:egg:
+:busts_in_silhouette:
