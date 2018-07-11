@@ -1,1 +1,1 @@
-:monkey_face:
+:u6e80:
