@@ -1,1 +1,1 @@
-:taxi:
+:last_quarter_moon:
