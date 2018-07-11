@@ -1,1 +1,1 @@
-:no_bell:
+:partly_sunny:
