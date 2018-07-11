@@ -1,1 +1,1 @@
-:left_luggage:
+:mag_right:
