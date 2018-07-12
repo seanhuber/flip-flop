@@ -1,1 +1,1 @@
-:blue_car:
+:suspension_railway:
