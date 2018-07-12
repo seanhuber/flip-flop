@@ -1,1 +1,1 @@
-:anchor:
+:open_hands:
