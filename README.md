@@ -1,1 +1,1 @@
-:kissing_heart:
+:thought_balloon:
