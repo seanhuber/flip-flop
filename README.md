@@ -1,1 +1,1 @@
-:kissing_cat:
+:chart_with_upwards_trend:
