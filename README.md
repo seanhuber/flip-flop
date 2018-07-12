@@ -1,1 +1,1 @@
-:open_hands:
+:kissing_cat:
