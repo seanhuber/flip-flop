@@ -1,1 +1,1 @@
-:thought_balloon:
+:blue_car:
