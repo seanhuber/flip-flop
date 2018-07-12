@@ -1,1 +1,1 @@
-:vs:
+:kissing_heart:
