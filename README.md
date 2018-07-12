@@ -1,1 +1,1 @@
-:abcd:
+:ferris_wheel:
