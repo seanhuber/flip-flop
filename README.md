@@ -1,1 +1,1 @@
-:high_heel:
+:heavy_check_mark:
