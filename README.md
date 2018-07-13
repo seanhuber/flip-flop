@@ -1,1 +1,1 @@
-:pouting_cat:
+:raising_hand:
