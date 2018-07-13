@@ -1,1 +1,1 @@
-:stew:
+:waxing_gibbous_moon:
