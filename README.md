@@ -1,1 +1,1 @@
-:leopard:
+:checkered_flag:
