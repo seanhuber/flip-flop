@@ -1,1 +1,1 @@
-:baby_symbol:
+:revolving_hearts:
