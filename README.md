@@ -1,1 +1,1 @@
-:a:
+:large_blue_diamond:
