@@ -1,1 +1,1 @@
-:checkered_flag:
+:baby_symbol:
