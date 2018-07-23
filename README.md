@@ -1,1 +1,1 @@
-:chicken:
+:cool:
