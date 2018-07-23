@@ -1,1 +1,1 @@
-:cool:
+:negative_squared_cross_mark:
