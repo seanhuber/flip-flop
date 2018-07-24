@@ -1,1 +1,1 @@
-:green_apple:
+:white_square_button:
