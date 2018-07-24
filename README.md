@@ -1,1 +1,1 @@
-:candy:
+:mountain_bicyclist:
