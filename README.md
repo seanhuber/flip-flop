@@ -1,1 +1,1 @@
-:anger:
+:dromedary_camel:
