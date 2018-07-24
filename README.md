@@ -1,1 +1,1 @@
-:tongue:
+:electric_plug:
