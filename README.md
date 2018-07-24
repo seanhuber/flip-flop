@@ -1,1 +1,1 @@
-:koko:
+:point_up:
