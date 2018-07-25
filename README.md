@@ -1,1 +1,1 @@
-:punch:
+:palm_tree:
