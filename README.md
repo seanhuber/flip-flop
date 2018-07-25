@@ -1,1 +1,1 @@
-:ear:
+:pencil:
