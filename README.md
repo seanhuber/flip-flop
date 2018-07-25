@@ -1,1 +1,1 @@
-:bridge_at_night:
+:potable_water:
