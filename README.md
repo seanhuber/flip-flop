@@ -1,1 +1,1 @@
-:palm_tree:
+:keycap_ten:
