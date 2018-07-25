@@ -1,1 +1,1 @@
-:kissing_closed_eyes:
+:no_entry_sign:
