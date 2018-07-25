@@ -1,1 +1,1 @@
-:fax:
+:arrow_heading_up:
