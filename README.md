@@ -1,1 +1,1 @@
-:ship:
+:page_with_curl:
