@@ -1,1 +1,1 @@
-:speedboat:
+:checkered_flag:
