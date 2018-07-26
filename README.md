@@ -1,1 +1,1 @@
-:seven:
+:capricorn:
