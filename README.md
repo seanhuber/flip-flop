@@ -1,1 +1,1 @@
-:fu:
+:kissing_heart:
