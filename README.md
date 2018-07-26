@@ -1,1 +1,1 @@
-:mobile_phone_off:
+:womans_hat:
