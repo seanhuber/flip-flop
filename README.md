@@ -1,1 +1,1 @@
-:heavy_division_sign:
+:arrow_heading_up:
