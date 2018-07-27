@@ -1,1 +1,1 @@
-:bike:
+:vertical_traffic_light:
