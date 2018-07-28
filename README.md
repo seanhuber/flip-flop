@@ -1,1 +1,1 @@
-:taurus:
+:point_up:
