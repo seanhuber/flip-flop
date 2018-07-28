@@ -1,1 +1,1 @@
-:mega:
+:small_red_triangle:
