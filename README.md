@@ -1,1 +1,1 @@
-:two:
+:ok_hand:
