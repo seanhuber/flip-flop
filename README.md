@@ -1,1 +1,1 @@
-:ox:
+:information_desk_person:
