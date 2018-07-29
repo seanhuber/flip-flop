@@ -1,1 +1,1 @@
-:wedding:
+:ideograph_advantage:
