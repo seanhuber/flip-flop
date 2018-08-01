@@ -1,1 +1,1 @@
-:lock:
+:no_mouth:
