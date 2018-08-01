@@ -1,1 +1,1 @@
-:barber:
+:diamonds:
