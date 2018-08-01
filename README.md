@@ -1,1 +1,1 @@
-:book:
+:repeat_one:
