@@ -1,1 +1,1 @@
-:telephone_receiver:
+:older_woman:
