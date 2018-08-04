@@ -1,1 +1,1 @@
-:clapper:
+:fried_shrimp:
