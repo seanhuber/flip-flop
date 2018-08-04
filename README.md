@@ -1,1 +1,1 @@
-:baby_symbol:
+:page_with_curl:
