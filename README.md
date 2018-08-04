@@ -1,1 +1,1 @@
-:shell:
+:baby_symbol:
