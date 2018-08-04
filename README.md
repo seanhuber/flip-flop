@@ -1,1 +1,1 @@
-:bell:
+:mobile_phone_off:
