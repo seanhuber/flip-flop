@@ -1,1 +1,1 @@
-:four:
+:waxing_gibbous_moon:
