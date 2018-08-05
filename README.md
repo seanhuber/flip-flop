@@ -1,1 +1,1 @@
-:princess:
+:paw_prints:
