@@ -1,1 +1,1 @@
-:squirrel:
+:closed_book:
