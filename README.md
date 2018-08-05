@@ -1,1 +1,1 @@
-:closed_book:
+:heart_eyes:
