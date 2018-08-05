@@ -1,1 +1,1 @@
-:grin:
+:weary:
