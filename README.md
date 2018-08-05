@@ -1,1 +1,1 @@
-:facepunch:
+:large_orange_diamond:
