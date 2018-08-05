@@ -1,1 +1,1 @@
-:princess:
+:waning_gibbous_moon:
