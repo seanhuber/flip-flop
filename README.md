@@ -1,1 +1,1 @@
-:no_bell:
+:heart_eyes_cat:
