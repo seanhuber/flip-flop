@@ -1,1 +1,1 @@
-:dog:
+:scream_cat:
