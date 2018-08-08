@@ -1,1 +1,1 @@
-:telephone:
+:monkey_face:
