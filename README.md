@@ -1,1 +1,1 @@
-:rice_scene:
+:no_bell:
