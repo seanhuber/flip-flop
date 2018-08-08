@@ -1,1 +1,1 @@
-:ear_of_rice:
+:rice_scene:
