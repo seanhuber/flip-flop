@@ -1,1 +1,1 @@
-:fax:
+:keycap_ten:
