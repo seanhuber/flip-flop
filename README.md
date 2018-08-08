@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:straight_ruler:
