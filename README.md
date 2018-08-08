@@ -1,1 +1,1 @@
-:straight_ruler:
+:negative_squared_cross_mark:
