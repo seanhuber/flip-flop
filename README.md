@@ -1,1 +1,1 @@
-:guitar:
+:ear_of_rice:
