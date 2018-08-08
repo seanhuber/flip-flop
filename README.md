@@ -1,1 +1,1 @@
-:maple_leaf:
+:white_medium_square:
