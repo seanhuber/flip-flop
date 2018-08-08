@@ -1,1 +1,1 @@
-:monkey:
+:cocktail:
