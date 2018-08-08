@@ -1,1 +1,1 @@
-:scream_cat:
+:red_circle:
