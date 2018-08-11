@@ -1,1 +1,1 @@
-:birthday:
+:earth_asia:
