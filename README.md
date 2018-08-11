@@ -1,1 +1,1 @@
-:goat:
+:white_flower:
