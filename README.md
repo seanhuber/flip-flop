@@ -1,1 +1,1 @@
-:telescope:
+:heavy_dollar_sign:
