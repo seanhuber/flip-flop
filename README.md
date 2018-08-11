@@ -1,1 +1,1 @@
-:feelsgood:
+:mag_right:
