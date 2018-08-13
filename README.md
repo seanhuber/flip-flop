@@ -1,1 +1,1 @@
-:minidisc:
+:kissing_cat:
