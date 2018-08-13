@@ -1,1 +1,1 @@
-:tropical_fish:
+:mount_fuji:
