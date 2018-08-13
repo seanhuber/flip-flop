@@ -1,1 +1,1 @@
-:computer:
+:sagittarius:
