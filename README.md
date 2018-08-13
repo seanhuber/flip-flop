@@ -1,1 +1,1 @@
-:sagittarius:
+:post_office:
