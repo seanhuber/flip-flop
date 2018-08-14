@@ -1,1 +1,1 @@
-:pisces:
+:fish_cake:
