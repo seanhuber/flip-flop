@@ -1,1 +1,1 @@
-:eight:
+:cold_sweat:
