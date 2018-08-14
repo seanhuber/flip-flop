@@ -1,1 +1,1 @@
-:wolf:
+:chocolate_bar:
