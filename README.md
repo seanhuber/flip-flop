@@ -1,1 +1,1 @@
-:warning:
+:new_moon:
