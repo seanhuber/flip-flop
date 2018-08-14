@@ -1,1 +1,1 @@
-:trolleybus:
+:lock:
