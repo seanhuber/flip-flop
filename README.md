@@ -1,1 +1,1 @@
-:top:
+:point_left:
