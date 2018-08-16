@@ -1,1 +1,1 @@
-:dancers:
+:mortar_board:
