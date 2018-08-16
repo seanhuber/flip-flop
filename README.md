@@ -1,1 +1,1 @@
-:volcano:
+:oncoming_bus:
