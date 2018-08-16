@@ -1,1 +1,1 @@
-:sandal:
+:light_rail:
