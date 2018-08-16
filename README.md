@@ -1,1 +1,1 @@
-:sheep:
+:chicken:
