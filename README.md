@@ -1,1 +1,1 @@
-:capricorn:
+:joy:
