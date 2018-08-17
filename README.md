@@ -1,1 +1,1 @@
-:two_hearts:
+:waxing_gibbous_moon:
