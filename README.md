@@ -1,1 +1,1 @@
-:telephone:
+:two_hearts:
