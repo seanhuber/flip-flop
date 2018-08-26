@@ -1,1 +1,1 @@
-:rice_ball:
+:full_moon_with_face:
