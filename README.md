@@ -1,1 +1,1 @@
-:warning:
+:rice_ball:
