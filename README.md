@@ -1,1 +1,1 @@
-:angel:
+:blue_book:
