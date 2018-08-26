@@ -1,1 +1,1 @@
-:girl:
+:crescent_moon:
