@@ -1,1 +1,1 @@
-:skull:
+:umbrella:
