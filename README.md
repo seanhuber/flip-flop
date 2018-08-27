@@ -1,1 +1,1 @@
-:yen:
+:new_moon:
