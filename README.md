@@ -1,1 +1,1 @@
-:honey_pot:
+:eight_spoked_asterisk:
