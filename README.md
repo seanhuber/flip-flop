@@ -1,1 +1,1 @@
-:new_moon:
+:honey_pot:
