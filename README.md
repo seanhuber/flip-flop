@@ -1,1 +1,1 @@
-:guardsman:
+:barber:
