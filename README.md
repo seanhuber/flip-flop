@@ -1,1 +1,1 @@
-:mushroom:
+:full_moon:
