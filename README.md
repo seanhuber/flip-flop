@@ -1,1 +1,1 @@
-:tiger2:
+:tired_face:
