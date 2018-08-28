@@ -1,1 +1,1 @@
-:chicken:
+:person_frowning:
