@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:waxing_gibbous_moon:
