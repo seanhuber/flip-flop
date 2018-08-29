@@ -1,1 +1,1 @@
-:pensive:
+:bullettrain_side:
