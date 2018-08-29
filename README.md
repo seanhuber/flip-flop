@@ -1,1 +1,1 @@
-:gift:
+:crystal_ball:
