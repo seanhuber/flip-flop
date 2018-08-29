@@ -1,1 +1,1 @@
-:phone:
+:minidisc:
