@@ -1,1 +1,1 @@
-:closed_umbrella:
+:person_with_blond_hair:
