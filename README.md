@@ -1,1 +1,1 @@
-:monorail:
+:closed_umbrella:
