@@ -1,1 +1,1 @@
-:rainbow:
+:curly_loop:
