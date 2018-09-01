@@ -1,1 +1,1 @@
-:clock530:
+:articulated_lorry:
