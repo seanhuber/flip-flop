@@ -1,1 +1,1 @@
-:articulated_lorry:
+:heavy_minus_sign:
