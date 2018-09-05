@@ -1,1 +1,1 @@
-:loop:
+:six_pointed_star:
