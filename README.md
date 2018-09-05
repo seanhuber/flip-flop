@@ -1,1 +1,1 @@
-:sparkles:
+:paw_prints:
