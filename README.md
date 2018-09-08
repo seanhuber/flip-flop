@@ -1,1 +1,1 @@
-:lemon:
+:recycle:
