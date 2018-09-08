@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:small_orange_diamond:
