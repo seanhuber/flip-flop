@@ -1,1 +1,1 @@
-:beetle:
+:clapper:
