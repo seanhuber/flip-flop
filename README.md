@@ -1,1 +1,1 @@
-:capricorn:
+:arrow_double_up:
