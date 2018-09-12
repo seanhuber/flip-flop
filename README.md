@@ -1,1 +1,1 @@
-:traffic_light:
+:house_with_garden:
