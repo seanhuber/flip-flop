@@ -1,1 +1,1 @@
-:goat:
+:mailbox_with_mail:
