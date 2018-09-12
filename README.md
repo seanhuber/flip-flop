@@ -1,1 +1,1 @@
-:new:
+:traffic_light:
