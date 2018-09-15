@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:musical_note:
