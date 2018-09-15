@@ -1,1 +1,1 @@
-:fish_cake:
+:new_moon:
