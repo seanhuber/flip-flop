@@ -1,1 +1,1 @@
-:kissing_heart:
+:earth_africa:
