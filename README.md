@@ -1,1 +1,1 @@
-:earth_africa:
+:police_car:
