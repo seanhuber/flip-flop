@@ -1,1 +1,1 @@
-:swimmer:
+:ear_of_rice:
