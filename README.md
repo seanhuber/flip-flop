@@ -1,1 +1,1 @@
-:libra:
+:heavy_plus_sign:
