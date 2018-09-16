@@ -1,1 +1,1 @@
-:smoking:
+:volcano:
