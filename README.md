@@ -1,1 +1,1 @@
-:poultry_leg:
+:waxing_gibbous_moon:
