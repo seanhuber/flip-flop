@@ -1,1 +1,1 @@
-:running:
+:poultry_leg:
