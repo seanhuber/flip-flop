@@ -1,1 +1,1 @@
-:vertical_traffic_light:
+:ballot_box_with_check:
