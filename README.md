@@ -1,1 +1,1 @@
-:haircut:
+:microphone:
