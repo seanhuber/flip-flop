@@ -1,1 +1,1 @@
-:ambulance:
+:ski:
