@@ -1,1 +1,1 @@
-:flashlight:
+:baby_symbol:
