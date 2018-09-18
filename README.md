@@ -1,1 +1,1 @@
-:pig:
+:arrows_counterclockwise:
