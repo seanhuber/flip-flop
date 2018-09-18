@@ -1,1 +1,1 @@
-:raised_hand:
+:bride_with_veil:
