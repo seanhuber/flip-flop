@@ -1,1 +1,1 @@
-:bride_with_veil:
+:black_small_square:
