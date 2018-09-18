@@ -1,1 +1,1 @@
-:dancer:
+:black_small_square:
