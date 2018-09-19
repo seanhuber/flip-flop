@@ -1,1 +1,1 @@
-:waning_crescent_moon:
+:man_with_turban:
