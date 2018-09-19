@@ -1,1 +1,1 @@
-:european_castle:
+:waning_crescent_moon:
