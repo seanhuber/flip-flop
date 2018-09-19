@@ -1,1 +1,1 @@
-:man_with_turban:
+:two_men_holding_hands:
