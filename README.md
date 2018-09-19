@@ -1,1 +1,1 @@
-:new_moon_with_face:
+:passport_control:
