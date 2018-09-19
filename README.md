@@ -1,1 +1,1 @@
-:hotsprings:
+:european_castle:
