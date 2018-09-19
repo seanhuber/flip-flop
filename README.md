@@ -1,1 +1,1 @@
-:school:
+:page_with_curl:
