@@ -1,1 +1,1 @@
-:cyclone:
+:heavy_dollar_sign:
