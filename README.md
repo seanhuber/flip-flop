@@ -1,1 +1,1 @@
-:page_with_curl:
+:new_moon_with_face:
