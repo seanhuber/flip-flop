@@ -1,1 +1,1 @@
-:traffic_light:
+:white_square_button:
