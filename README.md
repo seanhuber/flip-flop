@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:slot_machine:
