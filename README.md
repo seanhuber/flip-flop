@@ -1,1 +1,1 @@
-:rabbit:
+:heavy_division_sign:
