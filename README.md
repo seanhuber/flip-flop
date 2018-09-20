@@ -1,1 +1,1 @@
-:zap:
+:point_down:
