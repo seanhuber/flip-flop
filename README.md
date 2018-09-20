@@ -1,1 +1,1 @@
-:hear_no_evil:
+:ear_of_rice:
