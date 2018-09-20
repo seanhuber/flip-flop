@@ -1,1 +1,1 @@
-:no_pedestrians:
+:mountain_railway:
