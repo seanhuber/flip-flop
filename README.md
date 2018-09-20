@@ -1,1 +1,1 @@
-:wind_chime:
+:no_pedestrians:
