@@ -1,1 +1,1 @@
-:grapes:
+:white_medium_square:
