@@ -1,1 +1,1 @@
-:ophiuchus:
+:earth_americas:
