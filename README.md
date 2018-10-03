@@ -1,1 +1,1 @@
-:kimono:
+:diamonds:
