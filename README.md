@@ -1,1 +1,1 @@
-:thought_balloon:
+:sweat_drops:
