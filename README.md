@@ -1,1 +1,1 @@
-:custard:
+:ear_of_rice:
