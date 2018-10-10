@@ -1,1 +1,1 @@
-:vertical_traffic_light:
+:do_not_litter:
