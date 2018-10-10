@@ -1,1 +1,1 @@
-:scorpius:
+:vertical_traffic_light:
