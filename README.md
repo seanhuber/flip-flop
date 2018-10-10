@@ -1,1 +1,1 @@
-:bus:
+:speech_balloon:
