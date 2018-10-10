@@ -1,1 +1,1 @@
-:tongue:
+:haircut:
