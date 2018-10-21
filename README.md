@@ -1,1 +1,1 @@
-:ant:
+:jack_o_lantern:
