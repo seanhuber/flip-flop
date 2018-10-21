@@ -1,1 +1,1 @@
-:haircut:
+:point_up:
