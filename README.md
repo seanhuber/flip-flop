@@ -1,1 +1,1 @@
-:earth_americas:
+:page_facing_up:
