@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:last_quarter_moon_with_face:
