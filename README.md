@@ -1,1 +1,1 @@
-:ok_hand:
+:rice_cracker:
