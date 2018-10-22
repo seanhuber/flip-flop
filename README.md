@@ -1,1 +1,1 @@
-:ghost:
+:thought_balloon:
