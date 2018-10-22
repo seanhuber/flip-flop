@@ -1,1 +1,1 @@
-:feelsgood:
+:checkered_flag:
