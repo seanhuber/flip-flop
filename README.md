@@ -1,1 +1,1 @@
-:no_bell:
+:arrow_down_small:
