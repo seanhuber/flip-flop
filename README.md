@@ -1,1 +1,1 @@
-:taurus:
+:statue_of_liberty:
