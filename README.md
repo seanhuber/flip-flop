@@ -1,1 +1,1 @@
-:cancer:
+:ok_hand:
