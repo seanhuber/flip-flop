@@ -1,1 +1,1 @@
-:jp:
+:baby_symbol:
