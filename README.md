@@ -1,1 +1,1 @@
-:sweat_drops:
+:vertical_traffic_light:
