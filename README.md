@@ -1,1 +1,1 @@
-:volcano:
+:mute:
