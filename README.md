@@ -1,1 +1,1 @@
-:bear:
+:heavy_exclamation_mark:
