@@ -1,1 +1,1 @@
-:truck:
+:bear:
