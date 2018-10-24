@@ -1,1 +1,1 @@
-:ok:
+:arrow_double_down:
