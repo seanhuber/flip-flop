@@ -1,1 +1,1 @@
-:boom:
+:potable_water:
