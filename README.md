@@ -1,1 +1,1 @@
-:smoking:
+:small_blue_diamond:
