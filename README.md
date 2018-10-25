@@ -1,1 +1,1 @@
-:tomato:
+:crescent_moon:
