@@ -1,1 +1,1 @@
-:post_office:
+:potable_water:
