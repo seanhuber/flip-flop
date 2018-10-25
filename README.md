@@ -1,1 +1,1 @@
-:small_blue_diamond:
+:lock_with_ink_pen:
