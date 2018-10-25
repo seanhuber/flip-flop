@@ -1,1 +1,1 @@
-:neckbeard:
+:smoking:
