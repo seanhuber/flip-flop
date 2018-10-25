@@ -1,1 +1,1 @@
-:8ball:
+:space_invader:
