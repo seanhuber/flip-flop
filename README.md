@@ -1,1 +1,1 @@
-:stars:
+:bar_chart:
