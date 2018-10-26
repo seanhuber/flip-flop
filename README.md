@@ -1,1 +1,1 @@
-:computer:
+:green_apple:
