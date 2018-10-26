@@ -1,1 +1,1 @@
-:tokyo_tower:
+:love_letter:
