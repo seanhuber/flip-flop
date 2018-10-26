@@ -1,1 +1,1 @@
-:briefcase:
+:part_alternation_mark:
