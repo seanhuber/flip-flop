@@ -1,1 +1,1 @@
-:poop:
+:stars:
