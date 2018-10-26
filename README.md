@@ -1,1 +1,1 @@
-:closed_lock_with_key:
+:heavy_division_sign:
