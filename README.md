@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:smirk_cat:
