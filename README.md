@@ -1,1 +1,1 @@
-:bulb:
+:four_leaf_clover:
