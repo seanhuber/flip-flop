@@ -1,1 +1,1 @@
-:gemini:
+:heavy_check_mark:
