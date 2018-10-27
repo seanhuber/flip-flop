@@ -1,1 +1,1 @@
-:chicken:
+:european_castle:
