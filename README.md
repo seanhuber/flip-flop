@@ -1,1 +1,1 @@
-:octocat:
+:white_medium_square:
