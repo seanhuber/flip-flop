@@ -1,1 +1,1 @@
-:smirk:
+:love_letter:
