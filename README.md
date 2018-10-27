@@ -1,1 +1,1 @@
-:squirrel:
+:earth_americas:
