@@ -1,1 +1,1 @@
-:horse:
+:squirrel:
