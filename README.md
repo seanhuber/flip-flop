@@ -1,1 +1,1 @@
-:notebook:
+:tired_face:
