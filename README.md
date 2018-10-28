@@ -1,1 +1,1 @@
-:whale:
+:dromedary_camel:
