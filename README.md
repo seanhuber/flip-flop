@@ -1,1 +1,1 @@
-:dromedary_camel:
+:red_car:
