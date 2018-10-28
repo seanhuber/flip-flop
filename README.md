@@ -1,1 +1,1 @@
-:rice:
+:arrows_clockwise:
