@@ -1,1 +1,1 @@
-:flashlight:
+:black_joker:
