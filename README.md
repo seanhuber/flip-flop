@@ -1,1 +1,1 @@
-:smiling_imp:
+:white_check_mark:
