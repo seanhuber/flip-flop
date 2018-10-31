@@ -1,1 +1,1 @@
-:grin:
+:left_luggage:
