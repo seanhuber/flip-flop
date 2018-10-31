@@ -1,1 +1,1 @@
-:pouting_cat:
+:tanabata_tree:
