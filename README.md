@@ -1,1 +1,1 @@
-:black_joker:
+:heavy_dollar_sign:
