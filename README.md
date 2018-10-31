@@ -1,1 +1,1 @@
-:confused:
+:dromedary_camel:
