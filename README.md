@@ -1,1 +1,1 @@
-:snowflake:
+:speech_balloon:
