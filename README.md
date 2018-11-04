@@ -1,1 +1,1 @@
-:rage4:
+:no_entry_sign:
