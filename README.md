@@ -1,1 +1,1 @@
-:mans_shoe:
+:white_medium_small_square:
