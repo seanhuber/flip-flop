@@ -1,1 +1,1 @@
-:fries:
+:doughnut:
