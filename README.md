@@ -1,1 +1,1 @@
-:mahjong:
+:handbag:
