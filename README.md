@@ -1,1 +1,1 @@
-:cherries:
+:video_camera:
