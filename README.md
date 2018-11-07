@@ -1,1 +1,1 @@
-:satellite:
+:heavy_dollar_sign:
