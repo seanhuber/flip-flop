@@ -1,1 +1,1 @@
-:ticket:
+:horse_racing:
