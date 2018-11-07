@@ -1,1 +1,1 @@
-:video_camera:
+:left_luggage:
