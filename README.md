@@ -1,1 +1,1 @@
-:ambulance:
+:ribbon:
