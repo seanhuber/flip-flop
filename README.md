@@ -1,1 +1,1 @@
-:zap:
+:two_hearts:
