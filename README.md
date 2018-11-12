@@ -1,1 +1,1 @@
-:bank:
+:bullettrain_front:
