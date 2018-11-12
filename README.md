@@ -1,1 +1,1 @@
-:fu:
+:arrow_down_small:
