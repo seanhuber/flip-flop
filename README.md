@@ -1,1 +1,1 @@
-:small_red_triangle_down:
+:stuck_out_tongue:
