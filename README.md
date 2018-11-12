@@ -1,1 +1,1 @@
-:two:
+:signal_strength:
