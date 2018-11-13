@@ -1,1 +1,1 @@
-:arrow_double_down:
+:bust_in_silhouette:
