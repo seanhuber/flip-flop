@@ -1,1 +1,1 @@
-:open_mouth:
+:large_blue_circle:
