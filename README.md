@@ -1,1 +1,1 @@
-:crown:
+:large_blue_circle:
