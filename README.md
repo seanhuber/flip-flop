@@ -1,1 +1,1 @@
-:blue_heart:
+:do_not_litter:
