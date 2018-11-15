@@ -1,1 +1,1 @@
-:shell:
+:wavy_dash:
