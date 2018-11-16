@@ -1,1 +1,1 @@
-:ticket:
+:mag_right:
