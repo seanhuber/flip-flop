@@ -1,1 +1,1 @@
-:tiger:
+:heavy_multiplication_x:
