@@ -1,1 +1,1 @@
-:bowling:
+:beers:
