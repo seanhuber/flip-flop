@@ -1,1 +1,1 @@
-:children_crossing:
+:poultry_leg:
