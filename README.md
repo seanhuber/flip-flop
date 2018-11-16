@@ -1,1 +1,1 @@
-:vibration_mode:
+:japanese_goblin:
