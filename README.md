@@ -1,1 +1,1 @@
-:pencil:
+:information_desk_person:
