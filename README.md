@@ -1,1 +1,1 @@
-:alarm_clock:
+:point_left:
