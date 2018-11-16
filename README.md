@@ -1,1 +1,1 @@
-:euro:
+:mans_shoe:
