@@ -1,1 +1,1 @@
-:necktie:
+:jack_o_lantern:
