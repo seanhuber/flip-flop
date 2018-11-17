@@ -1,1 +1,1 @@
-:mailbox_closed:
+:closed_lock_with_key:
