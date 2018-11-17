@@ -1,1 +1,1 @@
-:heavy_multiplication_x:
+:passport_control:
