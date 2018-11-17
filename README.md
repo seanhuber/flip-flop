@@ -1,1 +1,1 @@
-:fu:
+:mailbox_closed:
