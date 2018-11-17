@@ -1,1 +1,1 @@
-:x:
+:heavy_multiplication_x:
