@@ -1,1 +1,1 @@
-:sagittarius:
+:wine_glass:
