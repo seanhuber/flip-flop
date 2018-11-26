@@ -1,1 +1,1 @@
-:japanese_ogre:
+:game_die:
