@@ -1,1 +1,1 @@
-:cookie:
+:crescent_moon:
