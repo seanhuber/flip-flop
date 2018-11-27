@@ -1,1 +1,1 @@
-:birthday:
+:partly_sunny:
