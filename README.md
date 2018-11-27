@@ -1,1 +1,1 @@
-:pizza:
+:circus_tent:
