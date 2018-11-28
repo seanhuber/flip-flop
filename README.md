@@ -1,1 +1,1 @@
-:droplet:
+:curly_loop:
