@@ -1,1 +1,1 @@
-:chart:
+:open_file_folder:
