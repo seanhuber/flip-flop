@@ -1,1 +1,1 @@
-:curly_loop:
+:japanese_ogre:
