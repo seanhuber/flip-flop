@@ -1,1 +1,1 @@
-:cold_sweat:
+:high_brightness:
