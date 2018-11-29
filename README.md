@@ -1,1 +1,1 @@
-:boat:
+:ice_cream:
