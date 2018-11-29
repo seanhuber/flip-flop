@@ -1,1 +1,1 @@
-:clock430:
+:hatched_chick:
