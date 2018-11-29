@@ -1,1 +1,1 @@
-:hatched_chick:
+:aerial_tramway:
