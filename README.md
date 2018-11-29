@@ -1,1 +1,1 @@
-:ice_cream:
+:white_medium_square:
