@@ -1,1 +1,1 @@
-:car:
+:point_up_2:
