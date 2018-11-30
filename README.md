@@ -1,1 +1,1 @@
-:weary:
+:electric_plug:
