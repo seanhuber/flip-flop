@@ -1,1 +1,1 @@
-:bust_in_silhouette:
+:roller_coaster:
