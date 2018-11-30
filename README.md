@@ -1,1 +1,1 @@
-:cake:
+:chart_with_downwards_trend:
