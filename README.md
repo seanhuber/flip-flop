@@ -1,1 +1,1 @@
-:electric_plug:
+:mountain_railway:
