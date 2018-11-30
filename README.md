@@ -1,1 +1,1 @@
-:poodle:
+:mailbox_closed:
