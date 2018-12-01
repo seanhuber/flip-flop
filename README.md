@@ -1,1 +1,1 @@
-:fire:
+:outbox_tray:
