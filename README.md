@@ -1,1 +1,1 @@
-:gun:
+:point_up_2:
