@@ -1,1 +1,1 @@
-:sunflower:
+:japanese_castle:
