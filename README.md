@@ -1,1 +1,1 @@
-:copyright:
+:blue_book:
