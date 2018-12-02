@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:raised_hand:
