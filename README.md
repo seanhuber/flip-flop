@@ -1,1 +1,1 @@
-:checkered_flag:
+:small_red_triangle_down:
