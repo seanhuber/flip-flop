@@ -1,1 +1,1 @@
-:high_brightness:
+:mobile_phone_off:
