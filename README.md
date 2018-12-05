@@ -1,1 +1,1 @@
-:sob:
+:baby_symbol:
