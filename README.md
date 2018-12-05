@@ -1,1 +1,1 @@
-:name_badge:
+:raised_hand:
