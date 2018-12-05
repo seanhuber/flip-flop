@@ -1,1 +1,1 @@
-:boar:
+:arrow_up_down:
