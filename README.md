@@ -1,1 +1,1 @@
-:man:
+:ticket:
