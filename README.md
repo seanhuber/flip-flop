@@ -1,1 +1,1 @@
-:shit:
+:money_with_wings:
