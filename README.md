@@ -1,1 +1,1 @@
-:money_with_wings:
+:page_facing_up:
