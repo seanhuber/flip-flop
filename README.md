@@ -1,1 +1,1 @@
-:factory:
+:green_apple:
