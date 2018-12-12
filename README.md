@@ -1,1 +1,1 @@
-:libra:
+:black_circle:
