@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:arrow_heading_up:
