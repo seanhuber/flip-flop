@@ -1,1 +1,1 @@
-:metro:
+:mailbox_with_mail:
