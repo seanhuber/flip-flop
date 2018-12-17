@@ -1,1 +1,1 @@
-:cat:
+:sweat_drops:
