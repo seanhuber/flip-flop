@@ -1,1 +1,1 @@
-:black_joker:
+:inbox_tray:
