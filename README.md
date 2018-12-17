@@ -1,1 +1,1 @@
-:fr:
+:mailbox_with_mail:
