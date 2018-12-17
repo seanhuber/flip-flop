@@ -1,1 +1,1 @@
-:hash:
+:articulated_lorry:
