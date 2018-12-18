@@ -1,1 +1,1 @@
-:interrobang:
+:cold_sweat:
