@@ -1,1 +1,1 @@
-:water_buffalo:
+:arrow_double_down:
