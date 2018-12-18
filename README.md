@@ -1,1 +1,1 @@
-:bowtie:
+:light_rail:
