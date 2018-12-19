@@ -1,1 +1,1 @@
-:minibus:
+:horse_racing:
