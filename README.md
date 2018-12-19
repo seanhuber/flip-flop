@@ -1,1 +1,1 @@
-:credit_card:
+:ballot_box_with_check:
