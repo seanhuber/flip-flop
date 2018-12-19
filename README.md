@@ -1,1 +1,1 @@
-:high_brightness:
+:dog2:
