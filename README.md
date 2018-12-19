@@ -1,1 +1,1 @@
-:beer:
+:credit_card:
