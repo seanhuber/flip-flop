@@ -1,1 +1,1 @@
-:horse_racing:
+:waxing_gibbous_moon:
