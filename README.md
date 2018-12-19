@@ -1,1 +1,1 @@
-:clock1:
+:high_brightness:
