@@ -1,1 +1,1 @@
-:school:
+:kissing_cat:
