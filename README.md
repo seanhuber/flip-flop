@@ -1,1 +1,1 @@
-:telephone:
+:arrow_heading_up:
