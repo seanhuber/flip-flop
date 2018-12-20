@@ -1,1 +1,1 @@
-:crescent_moon:
+:smiling_imp:
