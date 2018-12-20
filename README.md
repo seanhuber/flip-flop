@@ -1,1 +1,1 @@
-:purse:
+:green_heart:
