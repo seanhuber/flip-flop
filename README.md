@@ -1,1 +1,1 @@
-:elephant:
+:earth_asia:
