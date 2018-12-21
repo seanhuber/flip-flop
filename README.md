@@ -1,1 +1,1 @@
-:jeans:
+:bookmark_tabs:
