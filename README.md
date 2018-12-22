@@ -1,1 +1,1 @@
-:candy:
+:arrow_up_down:
