@@ -1,1 +1,1 @@
-:swimmer:
+:slot_machine:
