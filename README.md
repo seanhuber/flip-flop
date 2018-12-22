@@ -1,1 +1,1 @@
-:blossom:
+:hatching_chick:
