@@ -1,1 +1,1 @@
-:hamburger:
+:smiling_imp:
