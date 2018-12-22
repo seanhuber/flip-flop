@@ -1,1 +1,1 @@
-:speedboat:
+:no_entry_sign:
