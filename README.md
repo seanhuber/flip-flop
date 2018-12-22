@@ -1,1 +1,1 @@
-:moyai:
+:house_with_garden:
