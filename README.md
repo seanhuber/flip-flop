@@ -1,1 +1,1 @@
-:meat_on_bone:
+:japanese_ogre:
