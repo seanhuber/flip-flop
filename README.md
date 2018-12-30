@@ -1,1 +1,1 @@
-:no_mobile_phones:
+:convenience_store:
