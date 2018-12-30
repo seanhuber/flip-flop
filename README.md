@@ -1,1 +1,1 @@
-:green_heart:
+:no_mobile_phones:
