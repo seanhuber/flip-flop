@@ -1,1 +1,1 @@
-:wedding:
+:arrow_up:
