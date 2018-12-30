@@ -1,1 +1,1 @@
-:diamonds:
+:high_heel:
