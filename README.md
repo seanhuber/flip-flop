@@ -1,1 +1,1 @@
-:ocean:
+:wedding:
