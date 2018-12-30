@@ -1,1 +1,1 @@
-:ring:
+:arrow_double_down:
