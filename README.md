@@ -1,1 +1,1 @@
-:unamused:
+:speak_no_evil:
