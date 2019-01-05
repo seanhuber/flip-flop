@@ -1,1 +1,1 @@
-:no_good:
+:grey_question:
