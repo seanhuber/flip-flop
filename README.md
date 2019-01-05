@@ -1,1 +1,1 @@
-:parking:
+:arrow_left:
