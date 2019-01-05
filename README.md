@@ -1,1 +1,1 @@
-:100:
+:mailbox_closed:
