@@ -1,1 +1,1 @@
-:blush:
+:no_good:
