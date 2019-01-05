@@ -1,1 +1,1 @@
-:mailbox_closed:
+:heavy_check_mark:
