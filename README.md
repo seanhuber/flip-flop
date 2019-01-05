@@ -1,1 +1,1 @@
-:stuck_out_tongue:
+:eight_pointed_black_star:
