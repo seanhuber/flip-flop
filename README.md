@@ -1,1 +1,1 @@
-:recycle:
+:blue_car:
