@@ -1,1 +1,1 @@
-:guitar:
+:name_badge:
