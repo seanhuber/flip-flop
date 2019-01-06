@@ -1,1 +1,1 @@
-:blowfish:
+:ideograph_advantage:
