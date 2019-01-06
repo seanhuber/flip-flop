@@ -1,1 +1,1 @@
-:gem:
+:arrow_lower_left:
