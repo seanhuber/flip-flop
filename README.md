@@ -1,1 +1,1 @@
-:icecream:
+:arrow_upper_left:
