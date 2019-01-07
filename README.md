@@ -1,1 +1,1 @@
-:pineapple:
+:japan:
