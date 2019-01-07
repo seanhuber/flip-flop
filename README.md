@@ -1,1 +1,1 @@
-:clock530:
+:white_circle:
