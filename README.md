@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:black_square_button:
