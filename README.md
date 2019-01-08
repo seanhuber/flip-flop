@@ -1,1 +1,1 @@
-:sunrise:
+:straight_ruler:
