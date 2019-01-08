@@ -1,1 +1,1 @@
-:doughnut:
+:open_hands:
