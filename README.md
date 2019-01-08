@@ -1,1 +1,1 @@
-:pencil2:
+:palm_tree:
