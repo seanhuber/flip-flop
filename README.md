@@ -1,1 +1,1 @@
-:snowman:
+:wine_glass:
