@@ -1,1 +1,1 @@
-:palm_tree:
+:rotating_light:
