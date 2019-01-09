@@ -1,1 +1,1 @@
-:pencil2:
+:information_source:
