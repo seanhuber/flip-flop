@@ -1,1 +1,1 @@
-:paperclip:
+:globe_with_meridians:
