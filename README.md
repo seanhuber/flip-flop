@@ -1,1 +1,1 @@
-:hatching_chick:
+:black_small_square:
