@@ -1,1 +1,1 @@
-:hotsprings:
+:hatching_chick:
