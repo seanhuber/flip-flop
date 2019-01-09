@@ -1,1 +1,1 @@
-:fire_engine:
+:new_moon:
