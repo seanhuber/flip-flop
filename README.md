@@ -1,1 +1,1 @@
-:fries:
+:carousel_horse:
