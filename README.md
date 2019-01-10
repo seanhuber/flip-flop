@@ -1,1 +1,1 @@
-:white_circle:
+:fried_shrimp:
