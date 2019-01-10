@@ -1,1 +1,1 @@
-:rice_scene:
+:currency_exchange:
