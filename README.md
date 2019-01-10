@@ -1,1 +1,1 @@
-:sunny:
+:rice_scene:
