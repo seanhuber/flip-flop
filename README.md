@@ -1,1 +1,1 @@
-:wc:
+:rotating_light:
