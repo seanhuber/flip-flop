@@ -1,1 +1,1 @@
-:ram:
+:smile_cat:
