@@ -1,1 +1,1 @@
-:telephone:
+:kissing_cat:
