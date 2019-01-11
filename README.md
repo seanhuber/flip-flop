@@ -1,1 +1,1 @@
-:facepunch:
+:ice_cream:
