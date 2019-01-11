@@ -1,1 +1,1 @@
-:japan:
+:point_left:
