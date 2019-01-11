@@ -1,1 +1,1 @@
-:new:
+:sweat_smile:
