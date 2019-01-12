@@ -1,1 +1,1 @@
-:melon:
+:sweat_smile:
