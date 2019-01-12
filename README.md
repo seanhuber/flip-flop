@@ -1,1 +1,1 @@
-:fr:
+:heavy_plus_sign:
