@@ -1,1 +1,1 @@
-:ramen:
+:page_with_curl:
