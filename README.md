@@ -1,1 +1,1 @@
-:man:
+:fire_engine:
