@@ -1,1 +1,1 @@
-:busts_in_silhouette:
+:small_red_triangle:
