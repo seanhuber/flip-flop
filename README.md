@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:sunrise_over_mountains:
