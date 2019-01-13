@@ -1,1 +1,1 @@
-:fire_engine:
+:poultry_leg:
