@@ -1,1 +1,1 @@
-:on:
+:low_brightness:
