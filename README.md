@@ -1,1 +1,1 @@
-:wink:
+:performing_arts:
