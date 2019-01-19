@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:small_red_triangle:
