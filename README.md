@@ -1,1 +1,1 @@
-:disappointed:
+:white_large_square:
