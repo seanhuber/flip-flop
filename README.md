@@ -1,1 +1,1 @@
-:grin:
+:bride_with_veil:
