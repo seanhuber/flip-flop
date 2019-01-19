@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:partly_sunny:
