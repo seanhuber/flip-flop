@@ -1,1 +1,1 @@
-:collision:
+:globe_with_meridians:
