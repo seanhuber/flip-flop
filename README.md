@@ -1,1 +1,1 @@
-:runner:
+:rice_scene:
