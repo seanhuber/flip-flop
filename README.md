@@ -1,1 +1,1 @@
-:lips:
+:ideograph_advantage:
