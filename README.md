@@ -1,1 +1,1 @@
-:zero:
+:potable_water:
