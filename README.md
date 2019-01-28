@@ -1,1 +1,1 @@
-:clipboard:
+:railway_car:
