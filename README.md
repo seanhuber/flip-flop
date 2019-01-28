@@ -1,1 +1,1 @@
-:o2:
+:slot_machine:
