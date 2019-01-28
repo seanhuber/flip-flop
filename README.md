@@ -1,1 +1,1 @@
-:tea:
+:black_small_square:
