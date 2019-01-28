@@ -1,1 +1,1 @@
-:wave:
+:japanese_ogre:
