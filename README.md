@@ -1,1 +1,1 @@
-:sweat_smile:
+:twisted_rightwards_arrows:
