@@ -1,1 +1,1 @@
-:cat:
+:japanese_castle:
