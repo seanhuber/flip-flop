@@ -1,1 +1,1 @@
-:japanese_castle:
+:neutral_face:
