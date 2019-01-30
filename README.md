@@ -1,1 +1,1 @@
-:sparkle:
+:dromedary_camel:
