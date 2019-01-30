@@ -1,1 +1,1 @@
-:horse:
+:sweat_smile:
