@@ -1,1 +1,1 @@
-:bamboo:
+:point_left:
