@@ -1,1 +1,1 @@
-:panda_face:
+:white_large_square:
