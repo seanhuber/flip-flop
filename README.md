@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:black_square_button:
