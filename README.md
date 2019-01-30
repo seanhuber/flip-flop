@@ -1,1 +1,1 @@
-:bowtie:
+:bamboo:
