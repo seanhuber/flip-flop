@@ -1,1 +1,1 @@
-:dromedary_camel:
+:heavy_minus_sign:
