@@ -1,1 +1,1 @@
-:raised_hands:
+:speech_balloon:
