@@ -1,1 +1,1 @@
-:deciduous_tree:
+:recycle:
