@@ -1,1 +1,1 @@
-:horse_racing:
+:mortar_board:
