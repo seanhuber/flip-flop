@@ -1,1 +1,1 @@
-:speech_balloon:
+:aerial_tramway:
