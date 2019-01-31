@@ -1,1 +1,1 @@
-:currency_exchange:
+:bust_in_silhouette:
