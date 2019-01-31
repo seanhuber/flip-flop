@@ -1,1 +1,1 @@
-:mortar_board:
+:ok_hand:
