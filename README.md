@@ -1,1 +1,1 @@
-:book:
+:no_good:
