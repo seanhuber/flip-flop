@@ -1,1 +1,1 @@
-:seat:
+:crossed_flags:
