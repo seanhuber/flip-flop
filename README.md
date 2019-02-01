@@ -1,1 +1,1 @@
-:tea:
+:mortar_board:
