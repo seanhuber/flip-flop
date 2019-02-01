@@ -1,1 +1,1 @@
-:sailboat:
+:japanese_ogre:
