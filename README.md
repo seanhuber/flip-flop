@@ -1,1 +1,1 @@
-:crossed_flags:
+:red_car:
