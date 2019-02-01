@@ -1,1 +1,1 @@
-:mortar_board:
+:train2:
