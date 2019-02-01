@@ -1,1 +1,1 @@
-:car:
+:no_mouth:
