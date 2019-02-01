@@ -1,1 +1,1 @@
-:red_car:
+:wavy_dash:
