@@ -1,1 +1,1 @@
-:eyeglasses:
+:orange_book:
