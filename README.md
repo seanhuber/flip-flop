@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:vertical_traffic_light:
