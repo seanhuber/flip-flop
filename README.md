@@ -1,1 +1,1 @@
-:musical_note:
+:japanese_ogre:
