@@ -1,1 +1,1 @@
-:snowboarder:
+:umbrella:
