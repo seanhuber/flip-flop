@@ -1,1 +1,1 @@
-:ru:
+:dizzy_face:
