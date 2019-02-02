@@ -1,1 +1,1 @@
-:lips:
+:snowboarder:
