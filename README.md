@@ -1,1 +1,1 @@
-:rice:
+:musical_note:
