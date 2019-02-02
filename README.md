@@ -1,1 +1,1 @@
-:pencil2:
+:globe_with_meridians:
