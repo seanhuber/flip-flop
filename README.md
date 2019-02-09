@@ -1,1 +1,1 @@
-:school:
+:japanese_ogre:
