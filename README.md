@@ -1,1 +1,1 @@
-:shaved_ice:
+:see_no_evil:
