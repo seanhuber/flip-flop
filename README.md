@@ -1,1 +1,1 @@
-:cool:
+:shaved_ice:
