@@ -1,1 +1,1 @@
-:see_no_evil:
+:ferris_wheel:
