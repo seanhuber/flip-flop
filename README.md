@@ -1,1 +1,1 @@
-:rice:
+:heart_decoration:
