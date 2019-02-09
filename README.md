@@ -1,1 +1,1 @@
-:bomb:
+:white_flower:
