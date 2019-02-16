@@ -1,1 +1,1 @@
-:pineapple:
+:light_rail:
