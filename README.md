@@ -1,1 +1,1 @@
-:briefcase:
+:white_small_square:
