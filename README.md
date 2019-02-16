@@ -1,1 +1,1 @@
-:no_bell:
+:vibration_mode:
