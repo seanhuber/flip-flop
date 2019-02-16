@@ -1,1 +1,1 @@
-:euro:
+:neutral_face:
