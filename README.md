@@ -1,1 +1,1 @@
-:camel:
+:meat_on_bone:
