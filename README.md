@@ -1,1 +1,1 @@
-:haircut:
+:pineapple:
