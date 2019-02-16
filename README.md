@@ -1,1 +1,1 @@
-:vibration_mode:
+:point_up_2:
