@@ -1,1 +1,1 @@
-:light_rail:
+:arrow_up_small:
