@@ -1,1 +1,1 @@
-:earth_africa:
+:heavy_division_sign:
