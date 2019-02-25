@@ -1,1 +1,1 @@
-:secret:
+:mount_fuji:
