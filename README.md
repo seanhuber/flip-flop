@@ -1,1 +1,1 @@
-:cookie:
+:fried_shrimp:
