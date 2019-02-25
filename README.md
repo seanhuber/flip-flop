@@ -1,1 +1,1 @@
-:fried_shrimp:
+:mountain_cableway:
