@@ -1,1 +1,1 @@
-:helicopter:
+:small_red_triangle:
