@@ -1,1 +1,1 @@
-:eyes:
+:eyeglasses:
