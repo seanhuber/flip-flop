@@ -1,1 +1,1 @@
-:mount_fuji:
+:waxing_crescent_moon:
