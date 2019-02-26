@@ -1,1 +1,1 @@
-:atm:
+:low_brightness:
