@@ -1,1 +1,1 @@
-:bar_chart:
+:high_brightness:
