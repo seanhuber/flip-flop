@@ -1,1 +1,1 @@
-:rocket:
+:waxing_gibbous_moon:
