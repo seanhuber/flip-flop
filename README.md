@@ -1,1 +1,1 @@
-:wink:
+:left_right_arrow:
