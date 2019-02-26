@@ -1,1 +1,1 @@
-:package:
+:bar_chart:
