@@ -1,1 +1,1 @@
-:wavy_dash:
+:no_bell:
