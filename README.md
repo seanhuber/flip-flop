@@ -1,1 +1,1 @@
-:do_not_litter:
+:triangular_ruler:
