@@ -1,1 +1,1 @@
-:pill:
+:hotel:
