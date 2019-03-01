@@ -1,1 +1,1 @@
-:mountain_railway:
+:do_not_litter:
