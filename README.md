@@ -1,1 +1,1 @@
-:speak_no_evil:
+:white_large_square:
