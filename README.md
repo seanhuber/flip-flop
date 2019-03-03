@@ -1,1 +1,1 @@
-:ski:
+:sandal:
