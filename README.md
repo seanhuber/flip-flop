@@ -1,1 +1,1 @@
-:chart:
+:department_store:
