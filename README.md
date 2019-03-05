@@ -1,1 +1,1 @@
-:pineapple:
+:baby_chick:
