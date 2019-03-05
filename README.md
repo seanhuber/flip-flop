@@ -1,1 +1,1 @@
-:art:
+:black_medium_square:
