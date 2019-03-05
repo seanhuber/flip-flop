@@ -1,1 +1,1 @@
-:euro:
+:clipboard:
