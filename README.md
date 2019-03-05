@@ -1,1 +1,1 @@
-:baby_chick:
+:full_moon:
