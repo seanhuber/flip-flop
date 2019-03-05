@@ -1,1 +1,1 @@
-:clipboard:
+:aerial_tramway:
