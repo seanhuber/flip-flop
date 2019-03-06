@@ -1,1 +1,1 @@
-:grey_question:
+:running_shirt_with_sash:
