@@ -1,1 +1,1 @@
-:ghost:
+:new_moon:
