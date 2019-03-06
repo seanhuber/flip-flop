@@ -1,1 +1,1 @@
-:feet:
+:statue_of_liberty:
