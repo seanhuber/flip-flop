@@ -1,1 +1,1 @@
-:running_shirt_with_sash:
+:large_orange_diamond:
