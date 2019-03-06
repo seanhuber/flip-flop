@@ -1,1 +1,1 @@
-:restroom:
+:ok_woman:
