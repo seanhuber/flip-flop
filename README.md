@@ -1,1 +1,1 @@
-:large_orange_diamond:
+:cloud:
