@@ -1,1 +1,1 @@
-:tomato:
+:aerial_tramway:
