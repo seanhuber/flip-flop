@@ -1,1 +1,1 @@
-:leopard:
+:ghost:
