@@ -1,1 +1,1 @@
-:clock1030:
+:no_pedestrians:
