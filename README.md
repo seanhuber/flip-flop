@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:last_quarter_moon_with_face:
