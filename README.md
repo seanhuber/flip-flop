@@ -1,1 +1,1 @@
-:seven:
+:negative_squared_cross_mark:
