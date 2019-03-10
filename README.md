@@ -1,1 +1,1 @@
-:post_office:
+:kissing_closed_eyes:
