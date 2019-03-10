@@ -1,1 +1,1 @@
-:aquarius:
+:post_office:
