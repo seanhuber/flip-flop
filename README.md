@@ -1,1 +1,1 @@
-:chocolate_bar:
+:full_moon:
