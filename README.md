@@ -1,1 +1,1 @@
-:tea:
+:panda_face:
