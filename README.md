@@ -1,1 +1,1 @@
-:elephant:
+:clock6:
