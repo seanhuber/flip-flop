@@ -1,1 +1,1 @@
-:arrow_right_hook:
+:small_red_triangle_down:
