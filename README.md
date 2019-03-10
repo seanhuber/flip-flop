@@ -1,1 +1,1 @@
-:panda_face:
+:ok_woman:
