@@ -1,1 +1,1 @@
-:symbols:
+:point_right:
