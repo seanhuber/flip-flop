@@ -1,1 +1,1 @@
-:five:
+:kissing_closed_eyes:
