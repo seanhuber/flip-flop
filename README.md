@@ -1,1 +1,1 @@
-:package:
+:rice_scene:
