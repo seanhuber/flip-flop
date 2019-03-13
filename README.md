@@ -1,1 +1,1 @@
-:white_large_square:
+:repeat_one:
