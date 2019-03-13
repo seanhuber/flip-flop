@@ -1,1 +1,1 @@
-:ring:
+:rowboat:
