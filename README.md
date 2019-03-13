@@ -1,1 +1,1 @@
-:meat_on_bone:
+:negative_squared_cross_mark:
