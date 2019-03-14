@@ -1,1 +1,1 @@
-:rugby_football:
+:curly_loop:
