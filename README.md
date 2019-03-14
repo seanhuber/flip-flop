@@ -1,1 +1,1 @@
-:sagittarius:
+:closed_umbrella:
