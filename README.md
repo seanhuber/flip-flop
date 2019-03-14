@@ -1,1 +1,1 @@
-:satisfied:
+:green_apple:
