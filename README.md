@@ -1,1 +1,1 @@
-:tada:
+:rotating_light:
