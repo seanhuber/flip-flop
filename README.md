@@ -1,1 +1,1 @@
-:shipit:
+:camera:
