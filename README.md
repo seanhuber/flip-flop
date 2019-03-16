@@ -1,1 +1,1 @@
-:bear:
+:cold_sweat:
