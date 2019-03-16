@@ -1,1 +1,1 @@
-:monkey_face:
+:roller_coaster:
