@@ -1,1 +1,1 @@
-:open_hands:
+:beetle:
