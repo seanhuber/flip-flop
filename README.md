@@ -1,1 +1,1 @@
-:beetle:
+:heavy_exclamation_mark:
