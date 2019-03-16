@@ -1,1 +1,1 @@
-:tangerine:
+:last_quarter_moon:
