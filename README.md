@@ -1,1 +1,1 @@
-:shower:
+:green_apple:
