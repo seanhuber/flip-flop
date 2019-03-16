@@ -1,1 +1,1 @@
-:trolleybus:
+:european_post_office:
