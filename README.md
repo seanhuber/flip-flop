@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:monkey_face:
