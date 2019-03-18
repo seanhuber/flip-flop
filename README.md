@@ -1,1 +1,1 @@
-:mushroom:
+:closed_book:
