@@ -1,1 +1,1 @@
-:snowflake:
+:inbox_tray:
