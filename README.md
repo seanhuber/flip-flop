@@ -1,1 +1,1 @@
-:kissing_cat:
+:kissing_closed_eyes:
