@@ -1,1 +1,1 @@
-:girl:
+:blue_car:
