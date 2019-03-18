@@ -1,1 +1,1 @@
-:man_with_turban:
+:kissing_cat:
