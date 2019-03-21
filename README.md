@@ -1,1 +1,1 @@
-:copyright:
+:video_camera:
