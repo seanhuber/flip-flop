@@ -1,1 +1,1 @@
-:smoking:
+:articulated_lorry:
