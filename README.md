@@ -1,1 +1,1 @@
-:pensive:
+:credit_card:
