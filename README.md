@@ -1,1 +1,1 @@
-:kiss:
+:carousel_horse:
