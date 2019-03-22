@@ -1,1 +1,1 @@
-:melon:
+:triangular_ruler:
