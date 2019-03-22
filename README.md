@@ -1,1 +1,1 @@
-:triangular_ruler:
+:milky_way:
