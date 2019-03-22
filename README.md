@@ -1,1 +1,1 @@
-:sunglasses:
+:large_blue_circle:
