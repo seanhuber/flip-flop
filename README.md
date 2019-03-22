@@ -1,1 +1,1 @@
-:speaker:
+:heart_eyes_cat:
