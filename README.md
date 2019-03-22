@@ -1,1 +1,1 @@
-:capital_abcd:
+:joy_cat:
