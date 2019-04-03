@@ -1,1 +1,1 @@
-:clock430:
+:closed_book:
