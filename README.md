@@ -1,1 +1,1 @@
-:closed_book:
+:information_desk_person:
