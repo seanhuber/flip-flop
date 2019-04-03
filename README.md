@@ -1,1 +1,1 @@
-:koala:
+:earth_americas:
