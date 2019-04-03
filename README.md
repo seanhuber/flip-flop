@@ -1,1 +1,1 @@
-:japanese_goblin:
+:whale2:
