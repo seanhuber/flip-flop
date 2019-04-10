@@ -1,1 +1,1 @@
-:mask:
+:sweet_potato:
