@@ -1,1 +1,1 @@
-:european_post_office:
+:mailbox_with_no_mail:
