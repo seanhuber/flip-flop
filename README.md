@@ -1,1 +1,1 @@
-:feet:
+:milky_way:
