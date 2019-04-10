@@ -1,1 +1,1 @@
-:angry:
+:no_entry:
