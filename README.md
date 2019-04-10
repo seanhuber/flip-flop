@@ -1,1 +1,1 @@
-:tada:
+:european_post_office:
