@@ -1,1 +1,1 @@
-:turtle:
+:mailbox_with_mail:
