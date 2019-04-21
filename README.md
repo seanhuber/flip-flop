@@ -1,1 +1,1 @@
-:angry:
+:black_joker:
