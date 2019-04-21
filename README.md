@@ -1,1 +1,1 @@
-:ski:
+:white_flower:
