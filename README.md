@@ -1,1 +1,1 @@
-:white_flower:
+:full_moon_with_face:
