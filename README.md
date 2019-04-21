@@ -1,1 +1,1 @@
-:black_joker:
+:u55b6:
