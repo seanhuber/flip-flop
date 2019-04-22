@@ -1,1 +1,1 @@
-:muscle:
+:construction_worker:
