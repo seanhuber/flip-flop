@@ -1,1 +1,1 @@
-:hammer:
+:fries:
