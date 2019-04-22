@@ -1,1 +1,1 @@
-:clock5:
+:heavy_minus_sign:
