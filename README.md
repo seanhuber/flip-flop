@@ -1,1 +1,1 @@
-:triumph:
+:cherry_blossom:
