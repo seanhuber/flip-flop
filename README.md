@@ -1,1 +1,1 @@
-:soccer:
+:raising_hand:
