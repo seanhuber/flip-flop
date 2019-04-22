@@ -1,1 +1,1 @@
-:raising_hand:
+:chart_with_upwards_trend:
