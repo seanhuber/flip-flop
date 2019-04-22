@@ -1,1 +1,1 @@
-:boot:
+:arrow_lower_left:
