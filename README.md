@@ -1,1 +1,1 @@
-:red_circle:
+:no_smoking:
