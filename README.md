@@ -1,1 +1,1 @@
-:bank:
+:no_mouth:
