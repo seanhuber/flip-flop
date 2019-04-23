@@ -1,1 +1,1 @@
-:no_smoking:
+:eight_spoked_asterisk:
