@@ -1,1 +1,1 @@
-:no_mouth:
+:repeat_one:
