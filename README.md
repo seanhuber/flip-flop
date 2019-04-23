@@ -1,1 +1,1 @@
-:vhs:
+:jack_o_lantern:
