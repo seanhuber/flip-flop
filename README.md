@@ -1,1 +1,1 @@
-:boot:
+:card_index:
