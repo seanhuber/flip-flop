@@ -1,1 +1,1 @@
-:card_index:
+:black_square_button:
