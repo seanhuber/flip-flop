@@ -1,1 +1,1 @@
-:eight_spoked_asterisk:
+:hear_no_evil:
