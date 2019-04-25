@@ -1,1 +1,1 @@
-:mushroom:
+:fu:
