@@ -1,1 +1,1 @@
-:iphone:
+:flags:
