@@ -1,1 +1,1 @@
-:flags:
+:vibration_mode:
