@@ -1,1 +1,1 @@
-:blowfish:
+:scream_cat:
