@@ -1,1 +1,1 @@
-:mortar_board:
+:black_medium_square:
