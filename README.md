@@ -1,1 +1,1 @@
-:heavy_division_sign:
+:clock1:
