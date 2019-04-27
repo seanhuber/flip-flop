@@ -1,1 +1,1 @@
-:palm_tree:
+:heavy_division_sign:
