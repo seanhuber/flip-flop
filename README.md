@@ -1,1 +1,1 @@
-:bikini:
+:statue_of_liberty:
