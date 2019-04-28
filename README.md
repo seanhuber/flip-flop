@@ -1,1 +1,1 @@
-:japanese_ogre:
+:heart_eyes:
