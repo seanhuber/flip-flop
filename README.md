@@ -1,1 +1,1 @@
-:orange_book:
+:crying_cat_face:
