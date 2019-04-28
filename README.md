@@ -1,1 +1,1 @@
-:heart_eyes:
+:rotating_light:
