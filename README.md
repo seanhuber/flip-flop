@@ -1,1 +1,1 @@
-:mortar_board:
+:large_blue_circle:
