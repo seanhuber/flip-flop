@@ -1,1 +1,1 @@
-:trollface:
+:monkey_face:
