@@ -1,1 +1,1 @@
-:monorail:
+:mortar_board:
