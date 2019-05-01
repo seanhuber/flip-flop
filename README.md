@@ -1,1 +1,1 @@
-:boy:
+:partly_sunny:
