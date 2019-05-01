@@ -1,1 +1,1 @@
-:warning:
+:tent:
