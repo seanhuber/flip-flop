@@ -1,1 +1,1 @@
-:monkey_face:
+:crescent_moon:
