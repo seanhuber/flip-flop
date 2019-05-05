@@ -1,1 +1,1 @@
-:tent:
+:bar_chart:
