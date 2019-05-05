@@ -1,1 +1,1 @@
-:tada:
+:hotel:
