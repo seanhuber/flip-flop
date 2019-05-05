@@ -1,1 +1,1 @@
-:violin:
+:mount_fuji:
