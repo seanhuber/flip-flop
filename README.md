@@ -1,1 +1,1 @@
-:crescent_moon:
+:fast_forward:
