@@ -1,1 +1,1 @@
-:name_badge:
+:hourglass_flowing_sand:
