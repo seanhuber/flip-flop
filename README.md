@@ -1,1 +1,1 @@
-:recycle:
+:sparkles:
