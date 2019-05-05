@@ -1,1 +1,1 @@
-:hotel:
+:fire_engine:
