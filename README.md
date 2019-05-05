@@ -1,1 +1,1 @@
-:bar_chart:
+:arrow_up_down:
