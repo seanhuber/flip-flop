@@ -1,1 +1,1 @@
-:door:
+:arrow_upper_left:
