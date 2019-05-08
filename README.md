@@ -1,1 +1,1 @@
-:no_smoking:
+:department_store:
