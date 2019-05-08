@@ -1,1 +1,1 @@
-:bikini:
+:no_smoking:
