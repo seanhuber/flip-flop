@@ -1,1 +1,1 @@
-:seedling:
+:candy:
