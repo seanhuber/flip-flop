@@ -1,1 +1,1 @@
-:blue_book:
+:six_pointed_star:
