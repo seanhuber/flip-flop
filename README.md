@@ -1,1 +1,1 @@
-:pound:
+:sweet_potato:
