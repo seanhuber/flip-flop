@@ -1,1 +1,1 @@
-:sailboat:
+:closed_book:
