@@ -1,1 +1,1 @@
-:department_store:
+:closed_umbrella:
