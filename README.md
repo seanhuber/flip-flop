@@ -1,1 +1,1 @@
-:bug:
+:warning:
