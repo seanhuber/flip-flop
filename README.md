@@ -1,1 +1,1 @@
-:heartbeat:
+:blue_book:
