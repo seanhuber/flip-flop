@@ -1,1 +1,1 @@
-:bicyclist:
+:sparkle:
