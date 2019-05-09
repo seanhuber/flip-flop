@@ -1,1 +1,1 @@
-:bust_in_silhouette:
+:eight_spoked_asterisk:
