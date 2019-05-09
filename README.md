@@ -1,1 +1,1 @@
-:sparkle:
+:milky_way:
