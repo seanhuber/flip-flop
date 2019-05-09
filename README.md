@@ -1,1 +1,1 @@
-:trollface:
+:information_desk_person:
