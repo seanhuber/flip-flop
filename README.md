@@ -1,1 +1,1 @@
-:pray:
+:currency_exchange:
