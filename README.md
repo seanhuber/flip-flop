@@ -1,1 +1,1 @@
-:dollar:
+:hearts:
