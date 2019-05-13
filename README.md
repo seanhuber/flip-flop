@@ -1,1 +1,1 @@
-:department_store:
+:panda_face:
