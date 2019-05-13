@@ -1,1 +1,1 @@
-:leo:
+:department_store:
