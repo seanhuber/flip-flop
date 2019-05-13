@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:ok_hand:
