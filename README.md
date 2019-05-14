@@ -1,1 +1,1 @@
-:passport_control:
+:negative_squared_cross_mark:
