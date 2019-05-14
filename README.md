@@ -1,1 +1,1 @@
-:wedding:
+:nail_care:
