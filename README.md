@@ -1,1 +1,1 @@
-:football:
+:computer:
