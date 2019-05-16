@@ -1,1 +1,1 @@
-:sushi:
+:bamboo:
