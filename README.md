@@ -1,1 +1,1 @@
-:loudspeaker:
+:video_camera:
