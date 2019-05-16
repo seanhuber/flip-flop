@@ -1,1 +1,1 @@
-:satellite:
+:confetti_ball:
