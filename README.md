@@ -1,1 +1,1 @@
-:point_up:
+:horse_racing:
