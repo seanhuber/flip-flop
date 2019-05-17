@@ -1,1 +1,1 @@
-:mail:
+:rugby_football:
