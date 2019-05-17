@@ -1,1 +1,1 @@
-:hourglass_flowing_sand:
+:person_with_blond_hair:
