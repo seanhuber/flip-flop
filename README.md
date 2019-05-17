@@ -1,1 +1,1 @@
-:neckbeard:
+:rice_ball:
