@@ -1,1 +1,1 @@
-:minibus:
+:arrow_down_small:
