@@ -1,1 +1,1 @@
-:passport_control:
+:triangular_ruler:
