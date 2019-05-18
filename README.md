@@ -1,1 +1,1 @@
-:clock6:
+:hourglass_flowing_sand:
