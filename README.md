@@ -1,1 +1,1 @@
-:arrow_left:
+:no_good:
