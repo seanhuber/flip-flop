@@ -1,1 +1,1 @@
-:cyclone:
+:black_circle:
