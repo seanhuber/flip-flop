@@ -1,1 +1,1 @@
-:crescent_moon:
+:purple_heart:
