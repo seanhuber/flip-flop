@@ -1,1 +1,1 @@
-:factory:
+:chocolate_bar:
