@@ -1,1 +1,1 @@
-:minibus:
+:closed_book:
