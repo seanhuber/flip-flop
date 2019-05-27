@@ -1,1 +1,1 @@
-:clipboard:
+:arrow_lower_right:
