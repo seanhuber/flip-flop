@@ -1,1 +1,1 @@
-:busstop:
+:clipboard:
