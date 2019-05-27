@@ -1,1 +1,1 @@
-:calendar:
+:camera:
