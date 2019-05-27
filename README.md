@@ -1,1 +1,1 @@
-:dolphin:
+:carousel_horse:
