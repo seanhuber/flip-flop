@@ -1,1 +1,1 @@
-:carousel_horse:
+:black_large_square:
