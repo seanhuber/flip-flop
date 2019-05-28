@@ -1,1 +1,1 @@
-:v:
+:black_joker:
