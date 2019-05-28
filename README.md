@@ -1,1 +1,1 @@
-:bride_with_veil:
+:school_satchel:
