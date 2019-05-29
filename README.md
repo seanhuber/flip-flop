@@ -1,1 +1,1 @@
-:mountain_railway:
+:globe_with_meridians:
