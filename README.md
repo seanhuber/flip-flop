@@ -1,1 +1,1 @@
-:speech_balloon:
+:neutral_face:
