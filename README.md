@@ -1,1 +1,1 @@
-:twisted_rightwards_arrows:
+:keycap_ten:
