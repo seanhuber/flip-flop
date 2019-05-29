@@ -1,1 +1,1 @@
-:koala:
+:large_blue_diamond:
