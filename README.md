@@ -1,1 +1,1 @@
-:gemini:
+:rice_cracker:
