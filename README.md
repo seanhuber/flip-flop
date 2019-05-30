@@ -1,1 +1,1 @@
-:bird:
+:thought_balloon:
