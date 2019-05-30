@@ -1,1 +1,1 @@
-:euro:
+:oncoming_police_car:
