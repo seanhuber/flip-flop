@@ -1,1 +1,1 @@
-:anger:
+:simple_smile:
