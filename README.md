@@ -1,1 +1,1 @@
-:ice_cream:
+:heavy_check_mark:
