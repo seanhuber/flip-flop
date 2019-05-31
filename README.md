@@ -1,1 +1,1 @@
-:dollar:
+:tropical_drink:
