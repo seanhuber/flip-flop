@@ -1,1 +1,1 @@
-:envelope:
+:black_small_square:
