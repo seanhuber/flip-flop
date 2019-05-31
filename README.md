@@ -1,1 +1,1 @@
-:moneybag:
+:palm_tree:
