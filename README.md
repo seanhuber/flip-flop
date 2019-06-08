@@ -1,1 +1,1 @@
-:dollar:
+:star2:
