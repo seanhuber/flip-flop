@@ -1,1 +1,1 @@
-:bear:
+:sparkling_heart:
