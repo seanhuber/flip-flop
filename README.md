@@ -1,1 +1,1 @@
-:hearts:
+:musical_note:
