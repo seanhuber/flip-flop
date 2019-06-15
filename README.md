@@ -1,1 +1,1 @@
-:heartpulse:
+:japanese_ogre:
