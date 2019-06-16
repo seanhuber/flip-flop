@@ -1,1 +1,1 @@
-:city_sunrise:
+:globe_with_meridians:
