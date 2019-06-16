@@ -1,1 +1,1 @@
-:bookmark_tabs:
+:statue_of_liberty:
