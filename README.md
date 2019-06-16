@@ -1,1 +1,1 @@
-:page_with_curl:
+:speak_no_evil:
