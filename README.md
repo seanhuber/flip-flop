@@ -1,1 +1,1 @@
-:bulb:
+:hatched_chick:
