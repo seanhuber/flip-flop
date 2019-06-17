@@ -1,1 +1,1 @@
-:monkey:
+:left_right_arrow:
