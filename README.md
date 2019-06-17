@@ -1,1 +1,1 @@
-:stew:
+:horse_racing:
