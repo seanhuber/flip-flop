@@ -1,1 +1,1 @@
-:high_brightness:
+:electric_plug:
