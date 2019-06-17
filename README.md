@@ -1,1 +1,1 @@
-:revolving_hearts:
+:arrow_down_small:
