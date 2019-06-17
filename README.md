@@ -1,1 +1,1 @@
-:sparkling_heart:
+:wavy_dash:
