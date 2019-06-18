@@ -1,1 +1,1 @@
-:minidisc:
+:four_leaf_clover:
