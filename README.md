@@ -1,1 +1,1 @@
-:cupid:
+:purple_heart:
