@@ -1,1 +1,1 @@
-:barber:
+:aerial_tramway:
