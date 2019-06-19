@@ -1,1 +1,1 @@
-:milky_way:
+:ice_cream:
