@@ -1,1 +1,1 @@
-:pouting_cat:
+:snowboarder:
