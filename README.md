@@ -1,1 +1,1 @@
-:sailboat:
+:point_left:
