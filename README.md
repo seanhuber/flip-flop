@@ -1,1 +1,1 @@
-:tropical_fish:
+:milky_way:
