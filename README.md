@@ -1,1 +1,1 @@
-:satellite:
+:japanese_castle:
