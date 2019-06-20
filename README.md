@@ -1,1 +1,1 @@
-:es:
+:keycap_ten:
