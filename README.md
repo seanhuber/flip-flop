@@ -1,1 +1,1 @@
-:shell:
+:package:
