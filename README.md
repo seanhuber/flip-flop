@@ -1,1 +1,1 @@
-:bow:
+:checkered_flag:
