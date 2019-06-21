@@ -1,1 +1,1 @@
-:microphone:
+:video_camera:
