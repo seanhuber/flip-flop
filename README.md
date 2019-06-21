@@ -1,1 +1,1 @@
-:tent:
+:european_castle:
