@@ -1,1 +1,1 @@
-:pig_nose:
+:no_entry:
