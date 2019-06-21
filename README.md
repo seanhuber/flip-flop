@@ -1,1 +1,1 @@
-:cactus:
+:sun_with_face:
