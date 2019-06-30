@@ -1,1 +1,1 @@
-:cinema:
+:love_hotel:
