@@ -1,1 +1,1 @@
-:love_hotel:
+:maple_leaf:
