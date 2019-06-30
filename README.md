@@ -1,1 +1,1 @@
-:rabbit:
+:purple_heart:
