@@ -1,1 +1,1 @@
-:necktie:
+:oncoming_taxi:
