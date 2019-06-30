@@ -1,1 +1,1 @@
-:satellite:
+:coffee:
