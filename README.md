@@ -1,1 +1,1 @@
-:carousel_horse:
+:whale2:
