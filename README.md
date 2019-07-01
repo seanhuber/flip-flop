@@ -1,1 +1,1 @@
-:football:
+:arrow_right:
