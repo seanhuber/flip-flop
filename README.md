@@ -1,1 +1,1 @@
-:moneybag:
+:milky_way:
