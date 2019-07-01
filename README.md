@@ -1,1 +1,1 @@
-:shaved_ice:
+:no_entry:
