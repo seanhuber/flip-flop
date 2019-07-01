@@ -1,1 +1,1 @@
-:necktie:
+:red_circle:
