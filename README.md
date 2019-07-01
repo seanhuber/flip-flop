@@ -1,1 +1,1 @@
-:shirt:
+:white_small_square:
