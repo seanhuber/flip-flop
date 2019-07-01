@@ -1,1 +1,1 @@
-:cold_sweat:
+:waxing_gibbous_moon:
