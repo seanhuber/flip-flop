@@ -1,1 +1,1 @@
-:high_heel:
+:heavy_plus_sign:
