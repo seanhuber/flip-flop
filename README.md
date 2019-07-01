@@ -1,1 +1,1 @@
-:red_circle:
+:potable_water:
