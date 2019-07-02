@@ -1,1 +1,1 @@
-:six_pointed_star:
+:house_with_garden:
