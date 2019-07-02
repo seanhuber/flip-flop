@@ -1,1 +1,1 @@
-:heart:
+:raised_hand:
