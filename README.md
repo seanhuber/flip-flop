@@ -1,1 +1,1 @@
-:mag_right:
+:six_pointed_star:
