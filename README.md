@@ -1,1 +1,1 @@
-:spaghetti:
+:mag_right:
