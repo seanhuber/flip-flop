@@ -1,1 +1,1 @@
-:rabbit2:
+:heavy_plus_sign:
