@@ -1,1 +1,1 @@
-:smiley_cat:
+:hourglass_flowing_sand:
