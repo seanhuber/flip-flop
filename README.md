@@ -1,1 +1,1 @@
-:coffee:
+:white_flower:
