@@ -1,1 +1,1 @@
-:oncoming_bus:
+:pig_nose:
