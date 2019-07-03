@@ -1,1 +1,1 @@
-:satellite:
+:diamonds:
