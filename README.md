@@ -1,1 +1,1 @@
-:memo:
+:left_right_arrow:
