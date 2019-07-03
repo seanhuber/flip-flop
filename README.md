@@ -1,1 +1,1 @@
-:wrench:
+:smiley_cat:
