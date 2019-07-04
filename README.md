@@ -1,1 +1,1 @@
-:suspension_railway:
+:smile_cat:
