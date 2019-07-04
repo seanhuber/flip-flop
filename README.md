@@ -1,1 +1,1 @@
-:dragon:
+:white_large_square:
