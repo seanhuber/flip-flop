@@ -1,1 +1,1 @@
-:smile_cat:
+:yellow_heart:
