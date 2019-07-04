@@ -1,1 +1,1 @@
-:bomb:
+:black_large_square:
