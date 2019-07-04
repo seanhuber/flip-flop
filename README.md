@@ -1,1 +1,1 @@
-:keycap_ten:
+:ear_of_rice:
