@@ -1,1 +1,1 @@
-:clock7:
+:new_moon:
