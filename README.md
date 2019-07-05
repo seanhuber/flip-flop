@@ -1,1 +1,1 @@
-:pig_nose:
+:shaved_ice:
