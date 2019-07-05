@@ -1,1 +1,1 @@
-:mag:
+:pig_nose:
