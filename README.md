@@ -1,1 +1,1 @@
-:bank:
+:alarm_clock:
