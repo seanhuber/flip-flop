@@ -1,1 +1,1 @@
-:seat:
+:arrow_right:
