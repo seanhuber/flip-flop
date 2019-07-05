@@ -1,1 +1,1 @@
-:heart_eyes_cat:
+:waning_gibbous_moon:
