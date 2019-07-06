@@ -1,1 +1,1 @@
-:eggplant:
+:mountain_cableway:
