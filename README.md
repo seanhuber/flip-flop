@@ -1,1 +1,1 @@
-:tropical_drink:
+:bullettrain_side:
