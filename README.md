@@ -1,1 +1,1 @@
-:mountain_cableway:
+:cow2:
