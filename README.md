@@ -1,1 +1,1 @@
-:boar:
+:tropical_drink:
