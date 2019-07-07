@@ -1,1 +1,1 @@
-:no_entry_sign:
+:musical_keyboard:
