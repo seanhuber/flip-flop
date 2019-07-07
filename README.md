@@ -1,1 +1,1 @@
-:page_facing_up:
+:white_medium_small_square:
