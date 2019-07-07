@@ -1,1 +1,1 @@
-:egg:
+:milky_way:
