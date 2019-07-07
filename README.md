@@ -1,1 +1,1 @@
-:heart:
+:no_mouth:
