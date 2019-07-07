@@ -1,1 +1,1 @@
-:wrench:
+:fast_forward:
