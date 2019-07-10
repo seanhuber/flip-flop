@@ -1,1 +1,1 @@
-:chestnut:
+:light_rail:
