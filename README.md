@@ -1,1 +1,1 @@
-:round_pushpin:
+:simple_smile:
