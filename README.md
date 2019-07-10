@@ -1,1 +1,1 @@
-:diamonds:
+:rabbit2:
