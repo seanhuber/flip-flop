@@ -1,1 +1,1 @@
-:leopard:
+:japanese_castle:
