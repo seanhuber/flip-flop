@@ -1,1 +1,1 @@
-:ski:
+:yellow_heart:
