@@ -1,1 +1,1 @@
-:pushpin:
+:white_medium_square:
