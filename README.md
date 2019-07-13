@@ -1,1 +1,1 @@
-:princess:
+:mailbox_with_mail:
