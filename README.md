@@ -1,1 +1,1 @@
-:sparkle:
+:waning_gibbous_moon:
