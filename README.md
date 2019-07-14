@@ -1,1 +1,1 @@
-:iphone:
+:man_with_turban:
