@@ -1,1 +1,1 @@
-:jeans:
+:sparkle:
