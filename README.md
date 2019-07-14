@@ -1,1 +1,1 @@
-:construction_worker:
+:part_alternation_mark:
