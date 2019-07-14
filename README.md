@@ -1,1 +1,1 @@
-:bowtie:
+:closed_book:
