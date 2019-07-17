@@ -1,1 +1,1 @@
-:hand:
+:airplane:
