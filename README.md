@@ -1,1 +1,1 @@
-:chart:
+:smiley:
