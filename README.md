@@ -1,1 +1,1 @@
-:beginner:
+:first_quarter_moon:
