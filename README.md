@@ -1,1 +1,1 @@
-:station:
+:telephone_receiver:
