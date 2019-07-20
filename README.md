@@ -1,1 +1,1 @@
-:beers:
+:busstop:
