@@ -1,1 +1,1 @@
-:leopard:
+:white_check_mark:
