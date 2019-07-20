@@ -1,1 +1,1 @@
-:headphones:
+:hourglass_flowing_sand:
