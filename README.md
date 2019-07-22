@@ -1,1 +1,1 @@
-:door:
+:small_red_triangle:
