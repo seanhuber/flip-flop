@@ -1,1 +1,1 @@
-:carousel_horse:
+:movie_camera:
