@@ -1,1 +1,1 @@
-:movie_camera:
+:mortar_board:
