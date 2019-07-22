@@ -1,1 +1,1 @@
-:mailbox:
+:curly_loop:
