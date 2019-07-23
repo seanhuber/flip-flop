@@ -1,1 +1,1 @@
-:crocodile:
+:horse_racing:
