@@ -1,1 +1,1 @@
-:speak_no_evil:
+:black_joker:
