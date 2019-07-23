@@ -1,1 +1,1 @@
-:baby_chick:
+:arrows_counterclockwise:
