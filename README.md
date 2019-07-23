@@ -1,1 +1,1 @@
-:gun:
+:european_post_office:
