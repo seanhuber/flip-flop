@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:crying_cat_face:
