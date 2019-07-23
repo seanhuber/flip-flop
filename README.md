@@ -1,1 +1,1 @@
-:crying_cat_face:
+:stuck_out_tongue:
