@@ -1,1 +1,1 @@
-:flags:
+:japanese_castle:
