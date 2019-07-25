@@ -1,1 +1,1 @@
-:atm:
+:globe_with_meridians:
