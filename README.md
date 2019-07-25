@@ -1,1 +1,1 @@
-:japanese_castle:
+:light_rail:
