@@ -1,1 +1,1 @@
-:toilet:
+:atm:
