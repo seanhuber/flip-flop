@@ -1,1 +1,1 @@
-:wink:
+:purse:
