@@ -1,1 +1,1 @@
-:wedding:
+:mount_fuji:
