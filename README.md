@@ -1,1 +1,1 @@
-:sun_with_face:
+:vertical_traffic_light:
