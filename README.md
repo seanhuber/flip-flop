@@ -1,1 +1,1 @@
-:love_hotel:
+:sun_with_face:
