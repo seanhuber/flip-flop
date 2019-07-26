@@ -1,1 +1,1 @@
-:kimono:
+:repeat:
