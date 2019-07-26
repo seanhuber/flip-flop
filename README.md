@@ -1,1 +1,1 @@
-:rabbit2:
+:white_small_square:
