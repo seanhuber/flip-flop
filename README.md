@@ -1,1 +1,1 @@
-:do_not_litter:
+:heavy_check_mark:
