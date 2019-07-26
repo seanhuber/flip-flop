@@ -1,1 +1,1 @@
-:bikini:
+:triangular_ruler:
