@@ -1,1 +1,1 @@
-:bikini:
+:purple_heart:
