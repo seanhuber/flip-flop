@@ -1,1 +1,1 @@
-:ribbon:
+:kimono:
