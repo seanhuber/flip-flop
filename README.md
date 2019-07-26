@@ -1,1 +1,1 @@
-:satisfied:
+:european_castle:
