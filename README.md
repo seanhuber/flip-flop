@@ -1,1 +1,1 @@
-:fallen_leaf:
+:raised_hand:
