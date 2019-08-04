@@ -1,1 +1,1 @@
-:cd:
+:open_mouth:
