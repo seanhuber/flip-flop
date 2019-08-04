@@ -1,1 +1,1 @@
-:dollar:
+:panda_face:
