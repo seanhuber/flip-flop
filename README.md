@@ -1,1 +1,1 @@
-:briefcase:
+:arrow_lower_left:
