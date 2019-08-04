@@ -1,1 +1,1 @@
-:accept:
+:crystal_ball:
