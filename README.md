@@ -1,1 +1,1 @@
-:snail:
+:potable_water:
