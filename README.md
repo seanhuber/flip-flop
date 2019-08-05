@@ -1,1 +1,1 @@
-:bouquet:
+:mount_fuji:
