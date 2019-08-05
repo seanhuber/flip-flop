@@ -1,1 +1,1 @@
-:mount_fuji:
+:love_hotel:
