@@ -1,1 +1,1 @@
-:open_mouth:
+:movie_camera:
