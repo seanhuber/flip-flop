@@ -1,1 +1,1 @@
-:suspension_railway:
+:arrow_double_up:
