@@ -1,1 +1,1 @@
-:baseball:
+:vertical_traffic_light:
