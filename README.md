@@ -1,1 +1,1 @@
-:minidisc:
+:mobile_phone_off:
