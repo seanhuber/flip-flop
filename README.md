@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:mailbox_closed:
