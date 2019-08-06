@@ -1,1 +1,1 @@
-:speedboat:
+:wave:
