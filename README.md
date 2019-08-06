@@ -1,1 +1,1 @@
-:restroom:
+:aquarius:
