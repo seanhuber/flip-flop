@@ -1,1 +1,1 @@
-:muscle:
+:suspension_railway:
