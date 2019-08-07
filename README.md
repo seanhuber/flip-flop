@@ -1,1 +1,1 @@
-:information_desk_person:
+:crescent_moon:
