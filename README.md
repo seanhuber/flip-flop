@@ -1,1 +1,1 @@
-:crescent_moon:
+:six_pointed_star:
