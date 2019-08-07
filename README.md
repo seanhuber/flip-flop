@@ -1,1 +1,1 @@
-:girl:
+:space_invader:
