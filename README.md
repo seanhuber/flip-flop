@@ -1,1 +1,1 @@
-:black_nib:
+:construction_worker:
