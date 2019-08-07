@@ -1,1 +1,1 @@
-:space_invader:
+:information_desk_person:
