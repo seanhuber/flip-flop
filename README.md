@@ -1,1 +1,1 @@
-:rice:
+:neutral_face:
