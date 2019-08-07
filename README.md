@@ -1,1 +1,1 @@
-:neutral_face:
+:suspension_railway:
