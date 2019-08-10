@@ -1,1 +1,1 @@
-:anger:
+:water_buffalo:
