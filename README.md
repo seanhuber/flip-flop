@@ -1,1 +1,1 @@
-:hammer:
+:bullettrain_side:
