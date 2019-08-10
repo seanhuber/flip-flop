@@ -1,1 +1,1 @@
-:ferris_wheel:
+:arrow_heading_up:
