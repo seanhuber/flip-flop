@@ -1,1 +1,1 @@
-:arrow_heading_up:
+:left_right_arrow:
