@@ -1,1 +1,1 @@
-:de:
+:money_with_wings:
