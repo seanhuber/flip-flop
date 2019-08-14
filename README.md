@@ -1,1 +1,1 @@
-:smile_cat:
+:vertical_traffic_light:
