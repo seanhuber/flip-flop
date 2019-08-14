@@ -1,1 +1,1 @@
-:ledger:
+:crescent_moon:
