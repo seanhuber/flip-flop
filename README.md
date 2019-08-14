@@ -1,1 +1,1 @@
-:crescent_moon:
+:bride_with_veil:
