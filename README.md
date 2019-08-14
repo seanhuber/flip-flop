@@ -1,1 +1,1 @@
-:books:
+:smile_cat:
