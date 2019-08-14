@@ -1,1 +1,1 @@
-:bride_with_veil:
+:first_quarter_moon:
