@@ -1,1 +1,1 @@
-:dollar:
+:football:
