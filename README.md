@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:arrow_double_up:
