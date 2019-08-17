@@ -1,1 +1,1 @@
-:japanese_castle:
+:tanabata_tree:
