@@ -1,1 +1,1 @@
-:trident:
+:japanese_castle:
