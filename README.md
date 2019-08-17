@@ -1,1 +1,1 @@
-:parking:
+:thought_balloon:
