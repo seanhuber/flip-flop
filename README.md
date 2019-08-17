@@ -1,1 +1,1 @@
-:white_medium_square:
+:closed_lock_with_key:
