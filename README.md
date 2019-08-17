@@ -1,1 +1,1 @@
-:construction_worker:
+:mag_right:
