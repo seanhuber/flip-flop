@@ -1,1 +1,1 @@
-:iphone:
+:mount_fuji:
