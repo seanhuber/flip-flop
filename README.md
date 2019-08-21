@@ -1,1 +1,1 @@
-:man_with_gua_pi_mao:
+:black_medium_square:
