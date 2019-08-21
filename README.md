@@ -1,1 +1,1 @@
-:volcano:
+:bullettrain_front:
