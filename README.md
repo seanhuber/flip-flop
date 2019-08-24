@@ -1,1 +1,1 @@
-:dizzy_face:
+:small_orange_diamond:
