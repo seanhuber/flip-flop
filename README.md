@@ -1,1 +1,1 @@
-:no_good:
+:red_circle:
