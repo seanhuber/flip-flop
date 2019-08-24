@@ -1,1 +1,1 @@
-:ramen:
+:womans_hat:
