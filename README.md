@@ -1,1 +1,1 @@
-:parking:
+:earth_asia:
