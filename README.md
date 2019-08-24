@@ -1,1 +1,1 @@
-:heavy_division_sign:
+:hatching_chick:
