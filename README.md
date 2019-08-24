@@ -1,1 +1,1 @@
-:umbrella:
+:rice_ball:
