@@ -1,1 +1,1 @@
-:red_circle:
+:waxing_gibbous_moon:
