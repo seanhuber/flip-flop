@@ -1,1 +1,1 @@
-:angry:
+:four_leaf_clover:
