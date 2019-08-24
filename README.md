@@ -1,1 +1,1 @@
-:telescope:
+:no_good:
