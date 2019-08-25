@@ -1,1 +1,1 @@
-:telescope:
+:ok_hand:
