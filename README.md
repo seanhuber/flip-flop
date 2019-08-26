@@ -1,1 +1,1 @@
-:cinema:
+:arrow_up_down:
