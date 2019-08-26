@@ -1,1 +1,1 @@
-:bell:
+:high_heel:
