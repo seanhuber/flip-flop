@@ -1,1 +1,1 @@
-:arrow_up_down:
+:evergreen_tree:
