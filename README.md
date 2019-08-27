@@ -1,1 +1,1 @@
-:sushi:
+:page_with_curl:
