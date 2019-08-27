@@ -1,1 +1,1 @@
-:man:
+:light_rail:
