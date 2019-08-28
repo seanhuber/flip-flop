@@ -1,1 +1,1 @@
-:mountain_railway:
+:potable_water:
