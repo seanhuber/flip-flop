@@ -1,1 +1,1 @@
-:fist:
+:city_sunrise:
