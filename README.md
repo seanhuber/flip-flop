@@ -1,1 +1,1 @@
-:door:
+:bust_in_silhouette:
