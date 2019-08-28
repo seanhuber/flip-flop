@@ -1,1 +1,1 @@
-:dress:
+:hatched_chick:
