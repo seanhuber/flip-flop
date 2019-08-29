@@ -1,1 +1,1 @@
-:turtle:
+:rice_scene:
