@@ -1,1 +1,1 @@
-:railway_car:
+:mailbox_with_mail:
