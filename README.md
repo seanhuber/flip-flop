@@ -1,1 +1,1 @@
-:thumbsdown:
+:traffic_light:
