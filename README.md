@@ -1,1 +1,1 @@
-:traffic_light:
+:meat_on_bone:
