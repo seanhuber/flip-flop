@@ -1,1 +1,1 @@
-:cow:
+:left_right_arrow:
