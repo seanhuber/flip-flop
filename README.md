@@ -1,1 +1,1 @@
-:open_hands:
+:chart_with_downwards_trend:
