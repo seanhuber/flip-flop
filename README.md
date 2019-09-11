@@ -1,1 +1,1 @@
-:diamonds:
+:trolleybus:
