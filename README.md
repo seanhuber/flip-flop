@@ -1,1 +1,1 @@
-:sweet_potato:
+:ear_of_rice:
