@@ -1,1 +1,1 @@
-:u7981:
+:heavy_minus_sign:
