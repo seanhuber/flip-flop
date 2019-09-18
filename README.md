@@ -1,1 +1,1 @@
-:cow:
+:potable_water:
