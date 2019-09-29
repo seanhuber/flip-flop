@@ -1,1 +1,1 @@
-:dizzy_face:
+:rice_scene:
