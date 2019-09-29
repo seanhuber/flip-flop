@@ -1,1 +1,1 @@
-:first_quarter_moon_with_face:
+:man_with_turban:
