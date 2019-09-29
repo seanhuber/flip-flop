@@ -1,1 +1,1 @@
-:earth_africa:
+:deciduous_tree:
