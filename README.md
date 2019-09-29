@@ -1,1 +1,1 @@
-:pig:
+:postal_horn:
