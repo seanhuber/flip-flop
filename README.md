@@ -1,1 +1,1 @@
-:unamused:
+:bust_in_silhouette:
