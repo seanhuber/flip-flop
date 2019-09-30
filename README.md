@@ -1,1 +1,1 @@
-:green_book:
+:ballot_box_with_check:
