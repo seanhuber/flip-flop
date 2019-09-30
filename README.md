@@ -1,1 +1,1 @@
-:seedling:
+:baby_chick:
