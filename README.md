@@ -1,1 +1,1 @@
-:dragon:
+:small_red_triangle:
