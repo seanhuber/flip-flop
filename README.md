@@ -1,1 +1,1 @@
-:ambulance:
+:ideograph_advantage:
