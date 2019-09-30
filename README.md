@@ -1,1 +1,1 @@
-:circus_tent:
+:rice_scene:
