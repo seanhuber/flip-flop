@@ -1,1 +1,1 @@
-:hand:
+:green_book:
