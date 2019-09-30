@@ -1,1 +1,1 @@
-:school_satchel:
+:heavy_minus_sign:
