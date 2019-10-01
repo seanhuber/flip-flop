@@ -1,1 +1,1 @@
-:truck:
+:black_square_button:
