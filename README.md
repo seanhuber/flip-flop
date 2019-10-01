@@ -1,1 +1,1 @@
-:raised_hand:
+:heavy_division_sign:
