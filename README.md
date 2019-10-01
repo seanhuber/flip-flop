@@ -1,1 +1,1 @@
-:on:
+:minibus:
