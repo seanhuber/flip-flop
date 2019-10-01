@@ -1,1 +1,1 @@
-:minibus:
+:part_alternation_mark:
