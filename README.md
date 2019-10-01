@@ -1,1 +1,1 @@
-:yum:
+:arrow_lower_right:
