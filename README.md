@@ -1,1 +1,1 @@
-:open_mouth:
+:ideograph_advantage:
