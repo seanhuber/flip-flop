@@ -1,1 +1,1 @@
-:kimono:
+:orange_book:
