@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:mount_fuji:
