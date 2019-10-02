@@ -1,1 +1,1 @@
-:necktie:
+:passport_control:
