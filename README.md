@@ -1,1 +1,1 @@
-:tennis:
+:arrow_left:
