@@ -1,1 +1,1 @@
-:soccer:
+:point_up_2:
