@@ -1,1 +1,1 @@
-:cherries:
+:clipboard:
