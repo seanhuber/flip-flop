@@ -1,1 +1,1 @@
-:clap:
+:stuck_out_tongue:
