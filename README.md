@@ -1,1 +1,1 @@
-:fries:
+:watermelon:
