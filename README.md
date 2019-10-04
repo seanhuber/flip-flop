@@ -1,1 +1,1 @@
-:couplekiss:
+:rugby_football:
