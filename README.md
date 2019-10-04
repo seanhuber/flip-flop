@@ -1,1 +1,1 @@
-:hourglass:
+:spades:
