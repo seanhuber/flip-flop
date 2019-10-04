@@ -1,1 +1,1 @@
-:egg:
+:small_red_triangle:
