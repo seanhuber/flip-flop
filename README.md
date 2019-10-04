@@ -1,1 +1,1 @@
-:six_pointed_star:
+:fire_engine:
