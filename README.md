@@ -1,1 +1,1 @@
-:diamonds:
+:arrow_double_down:
