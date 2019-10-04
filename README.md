@@ -1,1 +1,1 @@
-:bear:
+:wine_glass:
