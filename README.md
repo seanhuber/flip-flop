@@ -1,1 +1,1 @@
-:moyai:
+:six_pointed_star:
