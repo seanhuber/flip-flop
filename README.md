@@ -1,1 +1,1 @@
-:wedding:
+:kissing_closed_eyes:
