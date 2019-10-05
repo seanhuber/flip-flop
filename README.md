@@ -1,1 +1,1 @@
-:princess:
+:black_square_button:
