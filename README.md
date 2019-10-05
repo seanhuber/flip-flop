@@ -1,1 +1,1 @@
-:melon:
+:kissing_cat:
