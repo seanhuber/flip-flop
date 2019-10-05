@@ -1,1 +1,1 @@
-:boar:
+:waxing_crescent_moon:
