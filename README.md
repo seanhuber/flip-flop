@@ -1,1 +1,1 @@
-:facepunch:
+:eight_spoked_asterisk:
