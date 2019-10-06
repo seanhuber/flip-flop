@@ -1,1 +1,1 @@
-:school:
+:construction_worker:
