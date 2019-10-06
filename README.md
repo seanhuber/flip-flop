@@ -1,1 +1,1 @@
-:lipstick:
+:signal_strength:
