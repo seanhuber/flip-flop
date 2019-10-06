@@ -1,1 +1,1 @@
-:construction_worker:
+:baby_chick:
