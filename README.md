@@ -1,1 +1,1 @@
-:pineapple:
+:hotsprings:
