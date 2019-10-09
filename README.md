@@ -1,1 +1,1 @@
-:hotsprings:
+:construction_worker:
