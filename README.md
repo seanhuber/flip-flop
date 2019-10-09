@@ -1,1 +1,1 @@
-:rice:
+:water_buffalo:
