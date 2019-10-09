@@ -1,1 +1,1 @@
-:water_buffalo:
+:smirk_cat:
