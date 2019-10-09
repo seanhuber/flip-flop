@@ -1,1 +1,1 @@
-:jeans:
+:bangbang:
