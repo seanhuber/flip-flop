@@ -1,1 +1,1 @@
-:high_heel:
+:bullettrain_side:
