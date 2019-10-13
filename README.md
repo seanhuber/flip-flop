@@ -1,1 +1,1 @@
-:ambulance:
+:man_with_turban:
