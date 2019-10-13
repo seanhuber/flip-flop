@@ -1,1 +1,1 @@
-:fireworks:
+:accept:
