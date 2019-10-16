@@ -1,1 +1,1 @@
-:clock3:
+:crossed_flags:
