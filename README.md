@@ -1,1 +1,1 @@
-:panda_face:
+:low_brightness:
