@@ -1,1 +1,1 @@
-:handbag:
+:panda_face:
