@@ -1,1 +1,1 @@
-:flushed:
+:large_orange_diamond:
