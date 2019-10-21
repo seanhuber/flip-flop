@@ -1,1 +1,1 @@
-:free:
+:white_check_mark:
