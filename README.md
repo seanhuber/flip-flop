@@ -1,1 +1,1 @@
-:sweat_smile:
+:deciduous_tree:
