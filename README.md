@@ -1,1 +1,1 @@
-:football:
+:point_down:
