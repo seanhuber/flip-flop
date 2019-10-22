@@ -1,1 +1,1 @@
-:sunny:
+:electric_plug:
