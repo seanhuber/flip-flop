@@ -1,1 +1,1 @@
-:libra:
+:heavy_dollar_sign:
