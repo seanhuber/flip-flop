@@ -1,1 +1,1 @@
-:japan:
+:speech_balloon:
