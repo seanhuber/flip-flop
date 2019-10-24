@@ -1,1 +1,1 @@
-:rage:
+:no_pedestrians:
