@@ -1,1 +1,1 @@
-:sweat:
+:currency_exchange:
