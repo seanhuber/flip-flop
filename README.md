@@ -1,1 +1,1 @@
-:metro:
+:blue_car:
