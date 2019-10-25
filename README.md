@@ -1,1 +1,1 @@
-:trophy:
+:purse:
