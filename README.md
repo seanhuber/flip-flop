@@ -1,1 +1,1 @@
-:doughnut:
+:white_flower:
