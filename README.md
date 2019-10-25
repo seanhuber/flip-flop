@@ -1,1 +1,1 @@
-:mortar_board:
+:kissing_closed_eyes:
