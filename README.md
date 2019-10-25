@@ -1,1 +1,1 @@
-:8ball:
+:page_facing_up:
