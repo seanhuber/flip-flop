@@ -1,1 +1,1 @@
-:white_flower:
+:mortar_board:
