@@ -1,1 +1,1 @@
-:rice:
+:house_with_garden:
