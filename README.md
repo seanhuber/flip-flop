@@ -1,1 +1,1 @@
-:house_with_garden:
+:negative_squared_cross_mark:
