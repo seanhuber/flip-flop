@@ -1,1 +1,1 @@
-:crocodile:
+:ok_woman:
