@@ -1,1 +1,1 @@
-:flushed:
+:barber:
