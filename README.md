@@ -1,1 +1,1 @@
-:cop:
+:green_apple:
