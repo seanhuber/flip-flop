@@ -1,1 +1,1 @@
-:bamboo:
+:jack_o_lantern:
