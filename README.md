@@ -1,1 +1,1 @@
-:open_mouth:
+:confetti_ball:
