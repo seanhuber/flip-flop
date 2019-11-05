@@ -1,1 +1,1 @@
-:confetti_ball:
+:small_blue_diamond:
