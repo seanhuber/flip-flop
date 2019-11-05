@@ -1,1 +1,1 @@
-:scissors:
+:sun_with_face:
