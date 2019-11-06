@@ -1,1 +1,1 @@
-:grimacing:
+:traffic_light:
