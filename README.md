@@ -1,1 +1,1 @@
-:beers:
+:closed_umbrella:
