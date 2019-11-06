@@ -1,1 +1,1 @@
-:pill:
+:point_down:
