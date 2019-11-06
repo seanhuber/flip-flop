@@ -1,1 +1,1 @@
-:dragon:
+:six_pointed_star:
