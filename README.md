@@ -1,1 +1,1 @@
-:boom:
+:left_right_arrow:
