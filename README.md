@@ -1,1 +1,1 @@
-:speech_balloon:
+:no_smoking:
