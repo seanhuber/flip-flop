@@ -1,1 +1,1 @@
-:sushi:
+:speech_balloon:
