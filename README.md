@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:waning_crescent_moon:
