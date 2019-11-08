@@ -1,1 +1,1 @@
-:baby_bottle:
+:mount_fuji:
