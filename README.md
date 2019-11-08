@@ -1,1 +1,1 @@
-:satellite:
+:point_up:
