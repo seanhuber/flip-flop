@@ -1,1 +1,1 @@
-:snowflake:
+:loudspeaker:
