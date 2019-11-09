@@ -1,1 +1,1 @@
-:sagittarius:
+:card_index:
