@@ -1,1 +1,1 @@
-:eight_spoked_asterisk:
+:steam_locomotive:
