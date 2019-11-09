@@ -1,1 +1,1 @@
-:card_index:
+:leftwards_arrow_with_hook:
