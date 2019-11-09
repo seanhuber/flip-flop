@@ -1,1 +1,1 @@
-:paperclip:
+:raised_hand:
