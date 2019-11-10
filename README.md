@@ -1,1 +1,1 @@
-:symbols:
+:dizzy_face:
