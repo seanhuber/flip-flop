@@ -1,1 +1,1 @@
-:bird:
+:stuck_out_tongue:
