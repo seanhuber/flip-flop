@@ -1,1 +1,1 @@
-:sweat_drops:
+:mouse2:
