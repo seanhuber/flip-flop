@@ -1,1 +1,1 @@
-:nail_care:
+:black_medium_square:
