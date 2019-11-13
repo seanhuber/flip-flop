@@ -1,1 +1,1 @@
-:jeans:
+:no_good:
