@@ -1,1 +1,1 @@
-:mouse2:
+:monkey_face:
