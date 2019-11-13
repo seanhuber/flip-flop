@@ -1,1 +1,1 @@
-:briefcase:
+:triangular_ruler:
