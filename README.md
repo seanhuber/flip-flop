@@ -1,1 +1,1 @@
-:full_moon_with_face:
+:large_blue_circle:
