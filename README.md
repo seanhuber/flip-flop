@@ -1,1 +1,1 @@
-:page_with_curl:
+:circus_tent:
