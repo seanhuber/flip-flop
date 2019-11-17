@@ -1,1 +1,1 @@
-:sparkles:
+:no_good:
