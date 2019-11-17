@@ -1,1 +1,1 @@
-:light_rail:
+:page_with_curl:
