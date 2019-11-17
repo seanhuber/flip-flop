@@ -1,1 +1,1 @@
-:house:
+:blue_book:
