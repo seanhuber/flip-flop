@@ -1,1 +1,1 @@
-:smile_cat:
+:mountain_railway:
