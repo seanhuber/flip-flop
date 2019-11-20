@@ -1,1 +1,1 @@
-:pizza:
+:arrow_up_down:
