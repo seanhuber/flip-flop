@@ -1,1 +1,1 @@
-:rose:
+:small_blue_diamond:
