@@ -1,1 +1,1 @@
-:toilet:
+:point_down:
