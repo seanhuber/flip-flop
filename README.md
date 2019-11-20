@@ -1,1 +1,1 @@
-:trophy:
+:toilet:
