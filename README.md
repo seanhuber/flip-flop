@@ -1,1 +1,1 @@
-:mountain_railway:
+:hatched_chick:
