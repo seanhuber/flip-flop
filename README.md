@@ -1,1 +1,1 @@
-:sparkles:
+:octopus:
