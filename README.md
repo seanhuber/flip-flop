@@ -1,1 +1,1 @@
-:sunglasses:
+:no_pedestrians:
