@@ -1,1 +1,1 @@
-:squirrel:
+:potable_water:
