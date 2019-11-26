@@ -1,1 +1,1 @@
-:ghost:
+:clapper:
