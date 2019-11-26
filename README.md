@@ -1,1 +1,1 @@
-:no_good:
+:waxing_crescent_moon:
