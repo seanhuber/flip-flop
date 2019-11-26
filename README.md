@@ -1,1 +1,1 @@
-:restroom:
+:busstop:
