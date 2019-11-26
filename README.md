@@ -1,1 +1,1 @@
-:phone:
+:eight_spoked_asterisk:
