@@ -1,1 +1,1 @@
-:droplet:
+:mortar_board:
