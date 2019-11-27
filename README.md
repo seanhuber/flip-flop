@@ -1,1 +1,1 @@
-:heart:
+:traffic_light:
