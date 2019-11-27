@@ -1,1 +1,1 @@
-:traffic_light:
+:small_orange_diamond:
