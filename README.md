@@ -1,1 +1,1 @@
-:house_with_garden:
+:running_shirt_with_sash:
