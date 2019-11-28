@@ -1,1 +1,1 @@
-:deciduous_tree:
+:traffic_light:
