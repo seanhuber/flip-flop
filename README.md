@@ -1,1 +1,1 @@
-:no_entry_sign:
+:deciduous_tree:
