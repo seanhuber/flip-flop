@@ -1,1 +1,1 @@
-:hotsprings:
+:hourglass_flowing_sand:
