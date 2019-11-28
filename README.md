@@ -1,1 +1,1 @@
-:clock430:
+:no_entry_sign:
