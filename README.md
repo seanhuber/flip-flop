@@ -1,1 +1,1 @@
-:beer:
+:video_game:
