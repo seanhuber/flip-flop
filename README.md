@@ -1,1 +1,1 @@
-:rainbow:
+:large_blue_diamond:
