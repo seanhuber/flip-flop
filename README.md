@@ -1,1 +1,1 @@
-:soccer:
+:milky_way:
