@@ -1,1 +1,1 @@
-:laughing:
+:inbox_tray:
