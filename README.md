@@ -1,1 +1,1 @@
-:bird:
+:mortar_board:
