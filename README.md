@@ -1,1 +1,1 @@
-:sweat:
+:japanese_goblin:
