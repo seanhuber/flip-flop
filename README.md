@@ -1,1 +1,1 @@
-:inbox_tray:
+:new_moon_with_face:
