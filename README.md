@@ -1,1 +1,1 @@
-:neckbeard:
+:arrow_heading_up:
