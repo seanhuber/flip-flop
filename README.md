@@ -1,1 +1,1 @@
-:sweet_potato:
+:black_circle:
