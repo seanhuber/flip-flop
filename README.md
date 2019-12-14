@@ -1,1 +1,1 @@
-:speaker:
+:inbox_tray:
