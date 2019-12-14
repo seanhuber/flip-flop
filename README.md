@@ -1,1 +1,1 @@
-:cherry_blossom:
+:heavy_dollar_sign:
