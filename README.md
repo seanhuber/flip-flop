@@ -1,1 +1,1 @@
-:pig_nose:
+:sweet_potato:
