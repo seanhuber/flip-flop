@@ -1,1 +1,1 @@
-:repeat_one:
+:vibration_mode:
