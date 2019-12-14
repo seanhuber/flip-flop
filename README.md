@@ -1,1 +1,1 @@
-:wave:
+:helicopter:
