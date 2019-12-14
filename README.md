@@ -1,1 +1,1 @@
-:new_moon:
+:repeat_one:
