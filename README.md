@@ -1,1 +1,1 @@
-:mag:
+:crystal_ball:
