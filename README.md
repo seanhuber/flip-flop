@@ -1,1 +1,1 @@
-:melon:
+:rice_scene:
