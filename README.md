@@ -1,1 +1,1 @@
-:moneybag:
+:arrow_right_hook:
