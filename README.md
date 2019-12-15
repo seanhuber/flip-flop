@@ -1,1 +1,1 @@
-:crown:
+:moneybag:
