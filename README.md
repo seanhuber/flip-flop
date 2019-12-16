@@ -1,1 +1,1 @@
-:sob:
+:european_post_office:
