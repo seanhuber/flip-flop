@@ -1,1 +1,1 @@
-:credit_card:
+:cold_sweat:
