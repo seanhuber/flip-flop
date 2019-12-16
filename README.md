@@ -1,1 +1,1 @@
-:phone:
+:mount_fuji:
