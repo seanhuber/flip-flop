@@ -1,1 +1,1 @@
-:european_post_office:
+:no_entry:
