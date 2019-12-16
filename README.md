@@ -1,1 +1,1 @@
-:mount_fuji:
+:fried_shrimp:
