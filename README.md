@@ -1,1 +1,1 @@
-:hearts:
+:ticket:
