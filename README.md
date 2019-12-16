@@ -1,1 +1,1 @@
-:bowtie:
+:paw_prints:
