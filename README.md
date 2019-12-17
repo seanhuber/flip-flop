@@ -1,1 +1,1 @@
-:mailbox_closed:
+:postal_horn:
