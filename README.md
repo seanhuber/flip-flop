@@ -1,1 +1,1 @@
-:watermelon:
+:movie_camera:
