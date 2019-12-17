@@ -1,1 +1,1 @@
-:sunrise:
+:mailbox_closed:
