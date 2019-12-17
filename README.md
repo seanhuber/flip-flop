@@ -1,1 +1,1 @@
-:minidisc:
+:school_satchel:
