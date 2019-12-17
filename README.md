@@ -1,1 +1,1 @@
-:busstop:
+:mailbox_closed:
