@@ -1,1 +1,1 @@
-:alien:
+:earth_americas:
