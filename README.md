@@ -1,1 +1,1 @@
-:earth_americas:
+:womans_hat:
