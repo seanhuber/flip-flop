@@ -1,1 +1,1 @@
-:white_flower:
+:o2:
