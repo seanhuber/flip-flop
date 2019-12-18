@@ -1,1 +1,1 @@
-:raising_hand:
+:earth_africa:
