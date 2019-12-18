@@ -1,1 +1,1 @@
-:wine_glass:
+:earth_americas:
