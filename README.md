@@ -1,1 +1,1 @@
-:page_with_curl:
+:heavy_dollar_sign:
