@@ -1,1 +1,1 @@
-:worried:
+:arrow_up_small:
