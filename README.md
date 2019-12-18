@@ -1,1 +1,1 @@
-:monorail:
+:railway_car:
