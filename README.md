@@ -1,1 +1,1 @@
-:guardsman:
+:arrow_heading_up:
