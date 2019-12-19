@@ -1,1 +1,1 @@
-:battery:
+:raised_hand:
