@@ -1,1 +1,1 @@
-:earth_africa:
+:white_large_square:
