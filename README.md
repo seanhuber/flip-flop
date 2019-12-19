@@ -1,1 +1,1 @@
-:sandal:
+:arrows_counterclockwise:
