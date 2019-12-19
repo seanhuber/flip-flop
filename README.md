@@ -1,1 +1,1 @@
-:moyai:
+:tired_face:
