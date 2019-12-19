@@ -1,1 +1,1 @@
-:interrobang:
+:signal_strength:
