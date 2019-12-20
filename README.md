@@ -1,1 +1,1 @@
-:droplet:
+:water_buffalo:
