@@ -1,1 +1,1 @@
-:unamused:
+:no_pedestrians:
