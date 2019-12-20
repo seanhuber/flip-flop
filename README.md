@@ -1,1 +1,1 @@
-:trident:
+:alarm_clock:
