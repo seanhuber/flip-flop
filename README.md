@@ -1,1 +1,1 @@
-:water_buffalo:
+:small_red_triangle:
