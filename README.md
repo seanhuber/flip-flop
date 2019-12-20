@@ -1,1 +1,1 @@
-:libra:
+:twisted_rightwards_arrows:
