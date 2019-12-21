@@ -1,1 +1,1 @@
-:closed_umbrella:
+:last_quarter_moon:
