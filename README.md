@@ -1,1 +1,1 @@
-:pencil:
+:straight_ruler:
