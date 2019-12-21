@@ -1,1 +1,1 @@
-:eyes:
+:curly_loop:
