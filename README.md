@@ -1,1 +1,1 @@
-:bear:
+:rotating_light:
