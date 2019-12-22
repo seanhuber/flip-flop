@@ -1,1 +1,1 @@
-:information_desk_person:
+:black_square_button:
