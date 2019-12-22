@@ -1,1 +1,1 @@
-:muscle:
+:school_satchel:
