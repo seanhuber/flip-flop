@@ -1,1 +1,1 @@
-:sunglasses:
+:rice_scene:
