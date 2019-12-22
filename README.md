@@ -1,1 +1,1 @@
-:crescent_moon:
+:globe_with_meridians:
