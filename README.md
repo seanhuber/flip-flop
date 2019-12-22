@@ -1,1 +1,1 @@
-:cloud:
+:carousel_horse:
