@@ -1,1 +1,1 @@
-:dvd:
+:japanese_goblin:
