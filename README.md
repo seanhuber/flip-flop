@@ -1,1 +1,1 @@
-:rice_scene:
+:crescent_moon:
