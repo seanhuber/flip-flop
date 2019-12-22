@@ -1,1 +1,1 @@
-:guardsman:
+:information_desk_person:
