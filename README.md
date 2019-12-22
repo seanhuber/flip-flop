@@ -1,1 +1,1 @@
-:postal_horn:
+:circus_tent:
