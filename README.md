@@ -1,1 +1,1 @@
-:eyes:
+:monkey_face:
