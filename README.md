@@ -1,1 +1,1 @@
-:congratulations:
+:waning_crescent_moon:
