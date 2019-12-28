@@ -1,1 +1,1 @@
-:kissing_cat:
+:waning_crescent_moon:
