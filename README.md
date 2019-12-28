@@ -1,1 +1,1 @@
-:steam_locomotive:
+:red_circle:
