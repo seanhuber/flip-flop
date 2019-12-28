@@ -1,1 +1,1 @@
-:red_car:
+:two_men_holding_hands:
