@@ -1,1 +1,1 @@
-:tropical_fish:
+:potable_water:
