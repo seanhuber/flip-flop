@@ -1,1 +1,1 @@
-:camera:
+:arrow_down_small:
