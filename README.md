@@ -1,1 +1,1 @@
-:inbox_tray:
+:nail_care:
