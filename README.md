@@ -1,1 +1,1 @@
-:school:
+:keycap_ten:
