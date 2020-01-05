@@ -1,1 +1,1 @@
-:kissing_cat:
+:inbox_tray:
