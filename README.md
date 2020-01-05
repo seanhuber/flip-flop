@@ -1,1 +1,1 @@
-:keycap_ten:
+:last_quarter_moon:
