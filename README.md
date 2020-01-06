@@ -1,1 +1,1 @@
-:jeans:
+:heavy_multiplication_x:
