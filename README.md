@@ -1,1 +1,1 @@
-:ski:
+:black_joker:
