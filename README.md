@@ -1,1 +1,1 @@
-:purse:
+:love_hotel:
