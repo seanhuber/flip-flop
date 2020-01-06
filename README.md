@@ -1,1 +1,1 @@
-:chicken:
+:waning_crescent_moon:
