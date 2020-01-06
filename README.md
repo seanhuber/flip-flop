@@ -1,1 +1,1 @@
-:skull:
+:steam_locomotive:
