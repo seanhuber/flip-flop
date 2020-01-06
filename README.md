@@ -1,1 +1,1 @@
-:purse:
+:musical_keyboard:
