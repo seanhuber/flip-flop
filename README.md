@@ -1,1 +1,1 @@
-:truck:
+:page_with_curl:
