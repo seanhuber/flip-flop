@@ -1,1 +1,1 @@
-:cherries:
+:space_invader:
