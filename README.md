@@ -1,1 +1,1 @@
-:bowling:
+:point_up:
