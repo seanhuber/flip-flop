@@ -1,1 +1,1 @@
-:purse:
+:earth_americas:
