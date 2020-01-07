@@ -1,1 +1,1 @@
-:pushpin:
+:bowtie:
