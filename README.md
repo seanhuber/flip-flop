@@ -1,1 +1,1 @@
-:flags:
+:no_bicycles:
