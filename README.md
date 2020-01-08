@@ -1,1 +1,1 @@
-:corn:
+:spades:
