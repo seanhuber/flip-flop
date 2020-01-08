@@ -1,1 +1,1 @@
-:bus:
+:left_right_arrow:
