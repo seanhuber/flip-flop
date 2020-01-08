@@ -1,1 +1,1 @@
-:convenience_store:
+:hatched_chick:
