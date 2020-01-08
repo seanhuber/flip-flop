@@ -1,1 +1,1 @@
-:handbag:
+:convenience_store:
