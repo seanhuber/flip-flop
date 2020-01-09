@@ -1,1 +1,1 @@
-:blue_car:
+:circus_tent:
