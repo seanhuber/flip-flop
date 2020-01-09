@@ -1,1 +1,1 @@
-:high_brightness:
+:steam_locomotive:
