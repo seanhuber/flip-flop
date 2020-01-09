@@ -1,1 +1,1 @@
-:helicopter:
+:high_brightness:
