@@ -1,1 +1,1 @@
-:lemon:
+:sweet_potato:
