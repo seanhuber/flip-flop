@@ -1,1 +1,1 @@
-:kissing_closed_eyes:
+:japanese_castle:
