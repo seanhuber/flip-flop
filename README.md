@@ -1,1 +1,1 @@
-:trumpet:
+:heavy_multiplication_x:
