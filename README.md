@@ -1,1 +1,1 @@
-:repeat_one:
+:black_medium_small_square:
