@@ -1,1 +1,1 @@
-:round_pushpin:
+:repeat_one:
