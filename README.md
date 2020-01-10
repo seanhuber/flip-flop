@@ -1,1 +1,1 @@
-:paperclip:
+:pushpin:
