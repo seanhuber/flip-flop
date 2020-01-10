@@ -1,1 +1,1 @@
-:mouse:
+:elephant:
