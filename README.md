@@ -1,1 +1,1 @@
-:gb:
+:bust_in_silhouette:
