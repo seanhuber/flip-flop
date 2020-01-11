@@ -1,1 +1,1 @@
-:memo:
+:mountain_bicyclist:
