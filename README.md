@@ -1,1 +1,1 @@
-:sparkles:
+:palm_tree:
