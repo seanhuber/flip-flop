@@ -1,1 +1,1 @@
-:dragon:
+:vibration_mode:
