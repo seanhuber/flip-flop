@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:black_small_square:
