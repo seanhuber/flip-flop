@@ -1,1 +1,1 @@
-:bridge_at_night:
+:waxing_gibbous_moon:
