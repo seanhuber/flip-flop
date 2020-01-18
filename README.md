@@ -1,1 +1,1 @@
-:scissors:
+:part_alternation_mark:
