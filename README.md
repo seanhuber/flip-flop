@@ -1,1 +1,1 @@
-:mag:
+:fast_forward:
