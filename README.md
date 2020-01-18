@@ -1,1 +1,1 @@
-:hourglass_flowing_sand:
+:white_large_square:
