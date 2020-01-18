@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:person_with_blond_hair:
