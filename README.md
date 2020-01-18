@@ -1,1 +1,1 @@
-:black_small_square:
+:diamond_shape_with_a_dot_inside:
