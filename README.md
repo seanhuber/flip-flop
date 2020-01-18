@@ -1,1 +1,1 @@
-:bust_in_silhouette:
+:green_book:
