@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:video_camera:
