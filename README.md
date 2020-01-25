@@ -1,1 +1,1 @@
-:corn:
+:waxing_crescent_moon:
