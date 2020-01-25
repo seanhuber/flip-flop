@@ -1,1 +1,1 @@
-:pig2:
+:green_heart:
