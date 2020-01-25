@@ -1,1 +1,1 @@
-:roller_coaster:
+:sunny:
