@@ -1,1 +1,1 @@
-:email:
+:eight_spoked_asterisk:
