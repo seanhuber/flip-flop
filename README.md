@@ -1,1 +1,1 @@
-:red_car:
+:high_heel:
