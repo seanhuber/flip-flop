@@ -1,1 +1,1 @@
-:iphone:
+:point_left:
