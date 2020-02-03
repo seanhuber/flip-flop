@@ -1,1 +1,1 @@
-:blowfish:
+:game_die:
