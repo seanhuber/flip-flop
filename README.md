@@ -1,1 +1,1 @@
-:monkey_face:
+:yellow_heart:
