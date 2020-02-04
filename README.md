@@ -1,1 +1,1 @@
-:pound:
+:raising_hand:
