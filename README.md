@@ -1,1 +1,1 @@
-:volcano:
+:steam_locomotive:
