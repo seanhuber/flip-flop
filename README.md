@@ -1,1 +1,1 @@
-:steam_locomotive:
+:oncoming_bus:
