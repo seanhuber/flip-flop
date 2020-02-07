@@ -1,1 +1,1 @@
-:blossom:
+:white_circle:
