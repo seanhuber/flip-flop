@@ -1,1 +1,1 @@
-:beginner:
+:traffic_light:
