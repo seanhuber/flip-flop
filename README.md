@@ -1,1 +1,1 @@
-:japan:
+:mouse2:
