@@ -1,1 +1,1 @@
-:heartbeat:
+:closed_umbrella:
