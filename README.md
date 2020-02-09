@@ -1,1 +1,1 @@
-:candy:
+:bridge_at_night:
