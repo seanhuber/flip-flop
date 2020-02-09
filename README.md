@@ -1,1 +1,1 @@
-:white_flower:
+:love_hotel:
