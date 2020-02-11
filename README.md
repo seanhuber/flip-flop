@@ -1,1 +1,1 @@
-:white_circle:
+:bar_chart:
