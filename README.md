@@ -1,1 +1,1 @@
-:dollar:
+:hankey:
