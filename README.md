@@ -1,1 +1,1 @@
-:bar_chart:
+:notebook_with_decorative_cover:
