@@ -1,1 +1,1 @@
-:penguin:
+:high_brightness:
