@@ -1,1 +1,1 @@
-:person_frowning:
+:arrow_heading_up:
