@@ -1,1 +1,1 @@
-:star2:
+:slot_machine:
