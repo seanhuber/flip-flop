@@ -1,1 +1,1 @@
-:slot_machine:
+:u5272:
