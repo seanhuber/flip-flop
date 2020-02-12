@@ -1,1 +1,1 @@
-:pouting_cat:
+:large_orange_diamond:
