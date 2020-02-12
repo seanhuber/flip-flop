@@ -1,1 +1,1 @@
-:confetti_ball:
+:man_with_gua_pi_mao:
