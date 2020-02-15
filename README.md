@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:new_moon:
