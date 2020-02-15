@@ -1,1 +1,1 @@
-:purple_heart:
+:hear_no_evil:
