@@ -1,1 +1,1 @@
-:maple_leaf:
+:arrow_heading_up:
