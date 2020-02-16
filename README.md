@@ -1,1 +1,1 @@
-:bomb:
+:earth_americas:
