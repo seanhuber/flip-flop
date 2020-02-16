@@ -1,1 +1,1 @@
-:id:
+:earth_africa:
