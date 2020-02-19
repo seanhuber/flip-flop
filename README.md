@@ -1,1 +1,1 @@
-:fast_forward:
+:earth_americas:
