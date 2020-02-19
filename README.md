@@ -1,1 +1,1 @@
-:cake:
+:fast_forward:
