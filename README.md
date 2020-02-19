@@ -1,1 +1,1 @@
-:pager:
+:ambulance:
