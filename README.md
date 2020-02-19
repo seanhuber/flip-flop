@@ -1,1 +1,1 @@
-:ticket:
+:microphone:
