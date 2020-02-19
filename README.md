@@ -1,1 +1,1 @@
-:microphone:
+:mortar_board:
