@@ -1,1 +1,1 @@
-:dolphin:
+:traffic_light:
