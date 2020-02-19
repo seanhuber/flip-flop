@@ -1,1 +1,1 @@
-:shaved_ice:
+:rugby_football:
