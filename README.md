@@ -1,1 +1,1 @@
-:bride_with_veil:
+:heavy_check_mark:
