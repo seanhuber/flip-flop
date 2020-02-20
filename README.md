@@ -1,1 +1,1 @@
-:couplekiss:
+:bride_with_veil:
