@@ -1,1 +1,1 @@
-:oncoming_bus:
+:no_bicycles:
