@@ -1,1 +1,1 @@
-:syringe:
+:oncoming_bus:
