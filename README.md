@@ -1,1 +1,1 @@
-:train:
+:palm_tree:
