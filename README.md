@@ -1,1 +1,1 @@
-:yum:
+:hourglass_flowing_sand:
