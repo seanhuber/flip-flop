@@ -1,1 +1,1 @@
-:o:
+:mailbox_with_mail:
