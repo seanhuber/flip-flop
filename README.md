@@ -1,1 +1,1 @@
-:oncoming_police_car:
+:kissing_closed_eyes:
