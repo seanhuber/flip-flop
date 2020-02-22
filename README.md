@@ -1,1 +1,1 @@
-:snail:
+:movie_camera:
