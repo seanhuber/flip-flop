@@ -1,1 +1,1 @@
-:cinema:
+:page_facing_up:
