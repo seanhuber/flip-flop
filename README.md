@@ -1,1 +1,1 @@
-:arrow_left:
+:chart_with_downwards_trend:
