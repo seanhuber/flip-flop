@@ -1,1 +1,1 @@
-:smiley_cat:
+:white_check_mark:
