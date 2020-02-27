@@ -1,1 +1,1 @@
-:heavy_plus_sign:
+:stuck_out_tongue:
