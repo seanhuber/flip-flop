@@ -1,1 +1,1 @@
-:mount_fuji:
+:heavy_check_mark:
