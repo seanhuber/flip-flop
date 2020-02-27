@@ -1,1 +1,1 @@
-:syringe:
+:inbox_tray:
