@@ -1,1 +1,1 @@
-:inbox_tray:
+:arrow_down_small:
