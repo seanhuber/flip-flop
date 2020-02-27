@@ -1,1 +1,1 @@
-:cd:
+:mount_fuji:
