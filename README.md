@@ -1,1 +1,1 @@
-:bridge_at_night:
+:full_moon_with_face:
