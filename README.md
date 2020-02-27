@@ -1,1 +1,1 @@
-:hamster:
+:clock2:
