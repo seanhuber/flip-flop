@@ -1,1 +1,1 @@
-:clock2:
+:two_women_holding_hands:
