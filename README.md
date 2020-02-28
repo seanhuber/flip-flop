@@ -1,1 +1,1 @@
-:kissing:
+:whale2:
