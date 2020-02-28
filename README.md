@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:notebook_with_decorative_cover:
