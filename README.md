@@ -1,1 +1,1 @@
-:shit:
+:inbox_tray:
