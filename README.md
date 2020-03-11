@@ -1,1 +1,1 @@
-:speedboat:
+:six_pointed_star:
