@@ -1,1 +1,1 @@
-:leo:
+:no_smoking:
