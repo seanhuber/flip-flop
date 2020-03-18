@@ -1,1 +1,1 @@
-:blowfish:
+:fast_forward:
