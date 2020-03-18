@@ -1,1 +1,1 @@
-:on:
+:new_moon:
