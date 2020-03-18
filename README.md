@@ -1,1 +1,1 @@
-:new_moon:
+:wine_glass:
