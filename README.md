@@ -1,1 +1,1 @@
-:frowning:
+:lipstick:
