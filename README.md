@@ -1,1 +1,1 @@
-:horse_racing:
+:no_bell:
