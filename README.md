@@ -1,1 +1,1 @@
-:swimmer:
+:smirk_cat:
