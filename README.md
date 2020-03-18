@@ -1,1 +1,1 @@
-:persevere:
+:left_luggage:
