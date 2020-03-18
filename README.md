@@ -1,1 +1,1 @@
-:calling:
+:bar_chart:
