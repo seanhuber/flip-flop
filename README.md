@@ -1,1 +1,1 @@
-:fast_forward:
+:horse_racing:
