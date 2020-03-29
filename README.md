@@ -1,1 +1,1 @@
-:cry:
+:white_circle:
