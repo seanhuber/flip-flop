@@ -1,1 +1,1 @@
-:trollface:
+:left_right_arrow:
