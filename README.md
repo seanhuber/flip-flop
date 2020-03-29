@@ -1,1 +1,1 @@
-:penguin:
+:department_store:
