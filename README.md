@@ -1,1 +1,1 @@
-:left_right_arrow:
+:meat_on_bone:
