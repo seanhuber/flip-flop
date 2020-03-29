@@ -1,1 +1,1 @@
-:pound:
+:black_small_square:
