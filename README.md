@@ -1,1 +1,1 @@
-:cold_sweat:
+:full_moon_with_face:
