@@ -1,1 +1,1 @@
-:pill:
+:mountain_bicyclist:
