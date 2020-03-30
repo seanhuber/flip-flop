@@ -1,1 +1,1 @@
-:art:
+:cold_sweat:
