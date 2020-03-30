@@ -1,1 +1,1 @@
-:grinning:
+:whale2:
