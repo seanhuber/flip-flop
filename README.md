@@ -1,1 +1,1 @@
-:ophiuchus:
+:simple_smile:
