@@ -1,1 +1,1 @@
-:whale2:
+:love_letter:
