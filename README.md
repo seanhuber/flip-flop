@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:bullettrain_side:
