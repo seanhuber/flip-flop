@@ -1,1 +1,1 @@
-:dragon:
+:department_store:
