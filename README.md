@@ -1,1 +1,1 @@
-:shirt:
+:black_joker:
