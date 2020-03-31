@@ -1,1 +1,1 @@
-:heart_decoration:
+:small_orange_diamond:
