@@ -1,1 +1,1 @@
-:banana:
+:eight_pointed_black_star:
