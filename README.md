@@ -1,1 +1,1 @@
-:love_letter:
+:white_flower:
