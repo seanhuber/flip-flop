@@ -1,1 +1,1 @@
-:candy:
+:love_letter:
