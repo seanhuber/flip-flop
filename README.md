@@ -1,1 +1,1 @@
-:running_shirt_with_sash:
+:two_men_holding_hands:
