@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:leftwards_arrow_with_hook:
