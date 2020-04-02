@@ -1,1 +1,1 @@
-:bikini:
+:full_moon:
