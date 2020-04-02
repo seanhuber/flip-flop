@@ -1,1 +1,1 @@
-:diamonds:
+:game_die:
