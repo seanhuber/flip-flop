@@ -1,1 +1,1 @@
-:floppy_disk:
+:baby_chick:
