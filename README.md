@@ -1,1 +1,1 @@
-:lips:
+:space_invader:
