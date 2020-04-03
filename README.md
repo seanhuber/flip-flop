@@ -1,1 +1,1 @@
-:school_satchel:
+:post_office:
