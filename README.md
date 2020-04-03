@@ -1,1 +1,1 @@
-:mute:
+:skull:
