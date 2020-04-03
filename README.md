@@ -1,1 +1,1 @@
-:clock530:
+:eight_spoked_asterisk:
