@@ -1,1 +1,1 @@
-:post_office:
+:negative_squared_cross_mark:
