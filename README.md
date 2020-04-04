@@ -1,1 +1,1 @@
-:haircut:
+:blue_heart:
