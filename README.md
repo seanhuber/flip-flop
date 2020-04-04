@@ -1,1 +1,1 @@
-:books:
+:mountain_cableway:
