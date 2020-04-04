@@ -1,1 +1,1 @@
-:shoe:
+:last_quarter_moon:
