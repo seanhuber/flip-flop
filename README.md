@@ -1,1 +1,1 @@
-:musical_keyboard:
+:no_entry:
