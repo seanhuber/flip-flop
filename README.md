@@ -1,1 +1,1 @@
-:hourglass:
+:point_up_2:
