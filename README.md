@@ -1,1 +1,1 @@
-:car:
+:black_large_square:
