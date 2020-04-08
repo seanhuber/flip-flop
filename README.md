@@ -1,1 +1,1 @@
-:postal_horn:
+:globe_with_meridians:
