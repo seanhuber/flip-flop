@@ -1,1 +1,1 @@
-:o:
+:card_index:
