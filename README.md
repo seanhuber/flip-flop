@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:postal_horn:
