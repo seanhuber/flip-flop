@@ -1,1 +1,1 @@
-:restroom:
+:no_bell:
