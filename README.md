@@ -1,1 +1,1 @@
-:pray:
+:joy_cat:
