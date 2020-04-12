@@ -1,1 +1,1 @@
-:seedling:
+:aerial_tramway:
