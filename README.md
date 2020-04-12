@@ -1,1 +1,1 @@
-:wink:
+:satellite:
