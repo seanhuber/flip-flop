@@ -1,1 +1,1 @@
-:jp:
+:sun_with_face:
