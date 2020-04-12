@@ -1,1 +1,1 @@
-:joy_cat:
+:red_circle:
