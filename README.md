@@ -1,1 +1,1 @@
-:dolphin:
+:pineapple:
