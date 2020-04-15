@@ -1,1 +1,1 @@
-:tram:
+:smile_cat:
