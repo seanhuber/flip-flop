@@ -1,1 +1,1 @@
-:pineapple:
+:black_circle:
