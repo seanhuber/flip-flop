@@ -1,1 +1,1 @@
-:icecream:
+:information_desk_person:
