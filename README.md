@@ -1,1 +1,1 @@
-:open_mouth:
+:water_buffalo:
