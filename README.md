@@ -1,1 +1,1 @@
-:honey_pot:
+:negative_squared_cross_mark:
