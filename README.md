@@ -1,1 +1,1 @@
-:airplane:
+:honey_pot:
