@@ -1,1 +1,1 @@
-:hamster:
+:open_mouth:
