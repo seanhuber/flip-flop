@@ -1,1 +1,1 @@
-:rocket:
+:busts_in_silhouette:
