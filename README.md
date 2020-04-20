@@ -1,1 +1,1 @@
-:stars:
+:smirk_cat:
