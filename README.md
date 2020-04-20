@@ -1,1 +1,1 @@
-:five:
+:keycap_ten:
