@@ -1,1 +1,1 @@
-:elephant:
+:honey_pot:
