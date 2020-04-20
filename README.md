@@ -1,1 +1,1 @@
-:tropical_drink:
+:point_up_2:
