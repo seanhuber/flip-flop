@@ -1,1 +1,1 @@
-:point_up_2:
+:ballot_box_with_check:
