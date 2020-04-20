@@ -1,1 +1,1 @@
-:fallen_leaf:
+:eight_spoked_asterisk:
