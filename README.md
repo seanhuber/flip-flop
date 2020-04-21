@@ -1,1 +1,1 @@
-:arrow_up:
+:fallen_leaf:
