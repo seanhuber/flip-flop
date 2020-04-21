@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:arrow_up:
