@@ -1,1 +1,1 @@
-:link:
+:aerial_tramway:
