@@ -1,1 +1,1 @@
-:eyeglasses:
+:information_source:
