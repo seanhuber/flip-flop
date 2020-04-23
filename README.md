@@ -1,1 +1,1 @@
-:information_source:
+:notebook_with_decorative_cover:
