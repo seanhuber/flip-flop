@@ -1,1 +1,1 @@
-:telephone:
+:fire_engine:
