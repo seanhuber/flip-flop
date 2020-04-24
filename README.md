@@ -1,1 +1,1 @@
-:beginner:
+:blue_book:
