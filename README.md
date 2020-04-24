@@ -1,1 +1,1 @@
-:sparkles:
+:green_apple:
