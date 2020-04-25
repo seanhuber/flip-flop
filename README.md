@@ -1,1 +1,1 @@
-:speaker:
+:purple_heart:
