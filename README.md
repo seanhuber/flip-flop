@@ -1,1 +1,1 @@
-:aerial_tramway:
+:mailbox_with_mail:
