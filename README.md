@@ -1,1 +1,1 @@
-:simple_smile:
+:mailbox_with_no_mail:
