@@ -1,1 +1,1 @@
-:clapper:
+:no_bicycles:
