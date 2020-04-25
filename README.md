@@ -1,1 +1,1 @@
-:satisfied:
+:currency_exchange:
