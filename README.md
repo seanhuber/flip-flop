@@ -1,1 +1,1 @@
-:bouquet:
+:aerial_tramway:
