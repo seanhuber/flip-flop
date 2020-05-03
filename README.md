@@ -1,1 +1,1 @@
-:fire_engine:
+:open_hands:
