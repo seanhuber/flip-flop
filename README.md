@@ -1,1 +1,1 @@
-:ski:
+:fire_engine:
