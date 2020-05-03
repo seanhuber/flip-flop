@@ -1,1 +1,1 @@
-:mortar_board:
+:jack_o_lantern:
