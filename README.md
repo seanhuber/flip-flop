@@ -1,1 +1,1 @@
-:briefcase:
+:outbox_tray:
