@@ -1,1 +1,1 @@
-:haircut:
+:ox:
