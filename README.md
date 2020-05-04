@@ -1,1 +1,1 @@
-:checkered_flag:
+:maple_leaf:
