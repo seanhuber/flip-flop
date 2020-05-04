@@ -1,1 +1,1 @@
-:mute:
+:checkered_flag:
