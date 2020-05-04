@@ -1,1 +1,1 @@
-:lock:
+:point_left:
