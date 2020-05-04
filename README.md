@@ -1,1 +1,1 @@
-:point_left:
+:roller_coaster:
