@@ -1,1 +1,1 @@
-:hotsprings:
+:kr:
