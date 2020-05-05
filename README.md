@@ -1,1 +1,1 @@
-:sa:
+:thumbsup:
