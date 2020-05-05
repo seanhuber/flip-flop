@@ -1,1 +1,1 @@
-:cn:
+:heavy_plus_sign:
