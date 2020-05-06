@@ -1,1 +1,1 @@
-:punch:
+:mount_fuji:
