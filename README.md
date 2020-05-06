@@ -1,1 +1,1 @@
-:football:
+:poultry_leg:
