@@ -1,1 +1,1 @@
-:car:
+:video_camera:
