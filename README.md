@@ -1,1 +1,1 @@
-:cherries:
+:stuck_out_tongue:
