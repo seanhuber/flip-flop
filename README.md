@@ -1,1 +1,1 @@
-:pill:
+:blue_heart:
