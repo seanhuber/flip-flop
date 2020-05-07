@@ -1,1 +1,1 @@
-:six:
+:mailbox_closed:
