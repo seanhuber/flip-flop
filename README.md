@@ -1,1 +1,1 @@
-:cocktail:
+:large_blue_diamond:
