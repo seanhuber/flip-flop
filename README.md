@@ -1,1 +1,1 @@
-:no_pedestrians:
+:crystal_ball:
