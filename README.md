@@ -1,1 +1,1 @@
-:accept:
+:clipboard:
