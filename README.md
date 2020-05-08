@@ -1,1 +1,1 @@
-:sailboat:
+:vertical_traffic_light:
