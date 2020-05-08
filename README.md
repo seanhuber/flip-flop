@@ -1,1 +1,1 @@
-:clipboard:
+:whale:
