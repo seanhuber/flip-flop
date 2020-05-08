@@ -1,1 +1,1 @@
-:bento:
+:large_orange_diamond:
