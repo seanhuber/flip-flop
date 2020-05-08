@@ -1,1 +1,1 @@
-:whale:
+:point_left:
