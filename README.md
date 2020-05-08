@@ -1,1 +1,1 @@
-:electric_plug:
+:nut_and_bolt:
