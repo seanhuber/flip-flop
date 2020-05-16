@@ -1,1 +1,1 @@
-:hospital:
+:shell:
