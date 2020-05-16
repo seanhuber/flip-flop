@@ -1,1 +1,1 @@
-:beginner:
+:red_circle:
