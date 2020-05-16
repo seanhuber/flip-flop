@@ -1,1 +1,1 @@
-:shower:
+:moyai:
