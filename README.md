@@ -1,1 +1,1 @@
-:raised_hand:
+:fried_shrimp:
