@@ -1,1 +1,1 @@
-:man_with_turban:
+:steam_locomotive:
