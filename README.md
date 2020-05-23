@@ -1,1 +1,1 @@
-:basketball:
+:baby_symbol:
