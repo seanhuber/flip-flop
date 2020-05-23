@@ -1,1 +1,1 @@
-:shaved_ice:
+:man_with_turban:
