@@ -1,1 +1,1 @@
-:steam_locomotive:
+:money_with_wings:
