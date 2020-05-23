@@ -1,1 +1,1 @@
-:art:
+:hamster:
