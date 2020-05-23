@@ -1,1 +1,1 @@
-:grinning:
+:steam_locomotive:
