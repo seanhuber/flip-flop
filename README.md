@@ -1,1 +1,1 @@
-:smirk:
+:fast_forward:
