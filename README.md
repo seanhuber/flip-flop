@@ -1,1 +1,1 @@
-:rocket:
+:no_entry_sign:
