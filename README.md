@@ -1,1 +1,1 @@
-:grey_exclamation:
+:rice_scene:
