@@ -1,1 +1,1 @@
-:white_small_square:
+:poultry_leg:
