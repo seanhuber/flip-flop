@@ -1,1 +1,1 @@
-:shirt:
+:no_bicycles:
