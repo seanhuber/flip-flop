@@ -1,1 +1,1 @@
-:tennis:
+:womans_hat:
