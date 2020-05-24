@@ -1,1 +1,1 @@
-:no_bicycles:
+:traffic_light:
