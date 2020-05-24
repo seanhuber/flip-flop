@@ -1,1 +1,1 @@
-:fries:
+:grey_exclamation:
