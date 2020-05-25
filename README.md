@@ -1,1 +1,1 @@
-:dizzy:
+:no_entry_sign:
