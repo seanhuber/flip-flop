@@ -1,1 +1,1 @@
-:checkered_flag:
+:waning_gibbous_moon:
