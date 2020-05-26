@@ -1,1 +1,1 @@
-:books:
+:checkered_flag:
