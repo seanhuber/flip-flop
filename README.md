@@ -1,1 +1,1 @@
-:hamburger:
+:dromedary_camel:
