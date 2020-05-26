@@ -1,1 +1,1 @@
-:dromedary_camel:
+:yellow_heart:
