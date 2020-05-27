@@ -1,1 +1,1 @@
-:honeybee:
+:rice_scene:
