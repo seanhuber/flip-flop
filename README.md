@@ -1,1 +1,1 @@
-:house:
+:ear_of_rice:
