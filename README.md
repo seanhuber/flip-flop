@@ -1,1 +1,1 @@
-:angry:
+:baby_symbol:
