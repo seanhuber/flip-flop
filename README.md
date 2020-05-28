@@ -1,1 +1,1 @@
-:recycle:
+:milky_way:
