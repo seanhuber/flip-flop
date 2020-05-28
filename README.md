@@ -1,1 +1,1 @@
-:railway_car:
+:raised_hand:
