@@ -1,1 +1,1 @@
-:kiss:
+:mag_right:
