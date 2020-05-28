@@ -1,1 +1,1 @@
-:hourglass:
+:maple_leaf:
