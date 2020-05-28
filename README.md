@@ -1,1 +1,1 @@
-:ear_of_rice:
+:white_medium_square:
