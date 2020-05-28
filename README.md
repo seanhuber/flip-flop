@@ -1,1 +1,1 @@
-:milky_way:
+:full_moon_with_face:
