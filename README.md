@@ -1,1 +1,1 @@
-:maple_leaf:
+:wine_glass:
