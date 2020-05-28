@@ -1,1 +1,1 @@
-:sailboat:
+:city_sunset:
