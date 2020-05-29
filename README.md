@@ -1,1 +1,1 @@
-:mushroom:
+:panda_face:
