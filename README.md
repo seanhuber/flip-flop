@@ -1,1 +1,1 @@
-:tophat:
+:closed_umbrella:
