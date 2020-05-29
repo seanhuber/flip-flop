@@ -1,1 +1,1 @@
-:iphone:
+:capital_abcd:
