@@ -1,1 +1,1 @@
-:panda_face:
+:lock_with_ink_pen:
