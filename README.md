@@ -1,1 +1,1 @@
-:heart:
+:paw_prints:
