@@ -1,1 +1,1 @@
-:suspension_railway:
+:slot_machine:
