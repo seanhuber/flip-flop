@@ -1,1 +1,1 @@
-:poodle:
+:white_circle:
