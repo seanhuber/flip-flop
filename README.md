@@ -1,1 +1,1 @@
-:heart_decoration:
+:arrow_up_small:
