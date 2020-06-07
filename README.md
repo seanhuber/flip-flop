@@ -1,1 +1,1 @@
-:fountain:
+:suspension_railway:
