@@ -1,1 +1,1 @@
-:dollar:
+:thought_balloon:
