@@ -1,1 +1,1 @@
-:credit_card:
+:hotel:
