@@ -1,1 +1,1 @@
-:tram:
+:love_hotel:
