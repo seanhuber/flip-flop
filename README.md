@@ -1,1 +1,1 @@
-:ocean:
+:triangular_ruler:
