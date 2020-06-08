@@ -1,1 +1,1 @@
-:thought_balloon:
+:convenience_store:
