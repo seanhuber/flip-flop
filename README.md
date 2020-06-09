@@ -1,1 +1,1 @@
-:wave:
+:bowtie:
