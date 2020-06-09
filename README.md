@@ -1,1 +1,1 @@
-:syringe:
+:light_rail:
