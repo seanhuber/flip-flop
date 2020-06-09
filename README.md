@@ -1,1 +1,1 @@
-:hash:
+:sun_with_face:
