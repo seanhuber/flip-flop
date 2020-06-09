@@ -1,1 +1,1 @@
-:green_heart:
+:suspension_railway:
