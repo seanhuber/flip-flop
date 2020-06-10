@@ -1,1 +1,1 @@
-:name_badge:
+:round_pushpin:
