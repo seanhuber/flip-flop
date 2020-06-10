@@ -1,1 +1,1 @@
-:blue_book:
+:busts_in_silhouette:
