@@ -1,1 +1,1 @@
-:u6708:
+:articulated_lorry:
