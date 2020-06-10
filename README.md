@@ -1,1 +1,1 @@
-:sparkler:
+:name_badge:
