@@ -1,1 +1,1 @@
-:articulated_lorry:
+:blue_book:
