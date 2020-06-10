@@ -1,1 +1,1 @@
-:pig2:
+:large_blue_circle:
