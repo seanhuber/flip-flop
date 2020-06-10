@@ -1,1 +1,1 @@
-:capital_abcd:
+:rugby_football:
