@@ -1,1 +1,1 @@
-:four_leaf_clover:
+:triangular_flag_on_post:
