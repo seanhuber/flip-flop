@@ -1,1 +1,1 @@
-:gun:
+:globe_with_meridians:
