@@ -1,1 +1,1 @@
-:computer:
+:japanese_ogre:
