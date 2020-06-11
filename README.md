@@ -1,1 +1,1 @@
-:rice_scene:
+:maple_leaf:
