@@ -1,1 +1,1 @@
-:musical_keyboard:
+:curly_loop:
