@@ -1,1 +1,1 @@
-:tangerine:
+:mag_right:
