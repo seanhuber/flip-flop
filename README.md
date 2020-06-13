@@ -1,1 +1,1 @@
-:credit_card:
+:smiley_cat:
