@@ -1,1 +1,1 @@
-:ticket:
+:joy_cat:
