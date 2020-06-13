@@ -1,1 +1,1 @@
-:dango:
+:arrow_down:
