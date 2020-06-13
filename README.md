@@ -1,1 +1,1 @@
-:icecream:
+:city_sunrise:
