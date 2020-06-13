@@ -1,1 +1,1 @@
-:swimmer:
+:credit_card:
