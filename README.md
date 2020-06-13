@@ -1,1 +1,1 @@
-:nut_and_bolt:
+:japanese_ogre:
