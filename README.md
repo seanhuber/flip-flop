@@ -1,1 +1,1 @@
-:jeans:
+:city_sunrise:
