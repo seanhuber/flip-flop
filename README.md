@@ -1,1 +1,1 @@
-:sweet_potato:
+:raised_hand:
