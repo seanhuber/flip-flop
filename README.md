@@ -1,1 +1,1 @@
-:chestnut:
+:wine_glass:
