@@ -1,1 +1,1 @@
-:8ball:
+:mountain_cableway:
