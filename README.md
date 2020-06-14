@@ -1,1 +1,1 @@
-:clock330:
+:game_die:
