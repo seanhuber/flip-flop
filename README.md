@@ -1,1 +1,1 @@
-:cn:
+:tokyo_tower:
