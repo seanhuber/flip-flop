@@ -1,1 +1,1 @@
-:vhs:
+:love_letter:
