@@ -1,1 +1,1 @@
-:wine_glass:
+:arrow_right_hook:
