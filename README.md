@@ -1,1 +1,1 @@
-:handbag:
+:baby_symbol:
