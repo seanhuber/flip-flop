@@ -1,1 +1,1 @@
-:mountain_cableway:
+:mountain_railway:
