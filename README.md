@@ -1,1 +1,1 @@
-:love_letter:
+:point_up:
