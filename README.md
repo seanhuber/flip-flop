@@ -1,1 +1,1 @@
-:baby:
+:video_camera:
