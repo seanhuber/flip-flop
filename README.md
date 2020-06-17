@@ -1,1 +1,1 @@
-:sagittarius:
+:panda_face:
