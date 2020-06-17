@@ -1,1 +1,1 @@
-:no_entry:
+:paw_prints:
