@@ -1,1 +1,1 @@
-:fu:
+:no_entry:
