@@ -1,1 +1,1 @@
-:pager:
+:keycap_ten:
