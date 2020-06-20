@@ -1,1 +1,1 @@
-:wedding:
+:flower_playing_cards:
