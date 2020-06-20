@@ -1,1 +1,1 @@
-:keycap_ten:
+:large_blue_circle:
