@@ -1,1 +1,1 @@
-:boom:
+:smirk_cat:
