@@ -1,1 +1,1 @@
-:sparkling_heart:
+:green_book:
