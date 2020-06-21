@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:bridge_at_night:
