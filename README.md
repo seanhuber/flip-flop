@@ -1,1 +1,1 @@
-:fish_cake:
+:running_shirt_with_sash:
