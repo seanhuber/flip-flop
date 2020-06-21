@@ -1,1 +1,1 @@
-:no_good:
+:last_quarter_moon:
