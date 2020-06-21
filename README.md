@@ -1,1 +1,1 @@
-:dango:
+:heart_decoration:
