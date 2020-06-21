@@ -1,1 +1,1 @@
-:pouting_cat:
+:articulated_lorry:
