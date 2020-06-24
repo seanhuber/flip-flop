@@ -1,1 +1,1 @@
-:smile:
+:hatched_chick:
