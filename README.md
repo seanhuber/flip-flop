@@ -1,1 +1,1 @@
-:sushi:
+:ok_woman:
