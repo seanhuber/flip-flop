@@ -1,1 +1,1 @@
-:sunny:
+:globe_with_meridians:
