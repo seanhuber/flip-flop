@@ -1,1 +1,1 @@
-:pencil:
+:suspension_railway:
