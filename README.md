@@ -1,1 +1,1 @@
-:rowboat:
+:sunrise_over_mountains:
