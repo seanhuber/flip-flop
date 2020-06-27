@@ -1,1 +1,1 @@
-:sunrise_over_mountains:
+:black_square_button:
