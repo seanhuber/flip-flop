@@ -1,1 +1,1 @@
-:fearful:
+:black_square_button:
