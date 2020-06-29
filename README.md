@@ -1,1 +1,1 @@
-:angry:
+:smirk_cat:
