@@ -1,1 +1,1 @@
-:lipstick:
+:musical_keyboard:
