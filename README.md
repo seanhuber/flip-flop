@@ -1,1 +1,1 @@
-:corn:
+:eight_spoked_asterisk:
