@@ -1,1 +1,1 @@
-:stars:
+:arrow_heading_up:
