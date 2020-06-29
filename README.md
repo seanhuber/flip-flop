@@ -1,1 +1,1 @@
-:baseball:
+:curly_loop:
