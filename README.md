@@ -1,1 +1,1 @@
-:busstop:
+:ear_of_rice:
