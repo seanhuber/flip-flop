@@ -1,1 +1,1 @@
-:wine_glass:
+:large_blue_diamond:
