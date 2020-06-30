@@ -1,1 +1,1 @@
-:ski:
+:wind_chime:
