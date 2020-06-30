@@ -1,1 +1,1 @@
-:tangerine:
+:wine_glass:
