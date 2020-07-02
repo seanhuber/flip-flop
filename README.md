@@ -1,1 +1,1 @@
-:hankey:
+:signal_strength:
