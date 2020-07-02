@@ -1,1 +1,1 @@
-:fuelpump:
+:railway_car:
