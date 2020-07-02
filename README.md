@@ -1,1 +1,1 @@
-:spaghetti:
+:earth_africa:
