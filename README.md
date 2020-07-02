@@ -1,1 +1,1 @@
-:signal_strength:
+:arrow_backward:
