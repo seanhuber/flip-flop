@@ -1,1 +1,1 @@
-:boar:
+:rice_ball:
