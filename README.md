@@ -1,1 +1,1 @@
-:cloud:
+:no_mouth:
