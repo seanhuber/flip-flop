@@ -1,1 +1,1 @@
-:heartpulse:
+:vertical_traffic_light:
