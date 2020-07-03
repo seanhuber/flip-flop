@@ -1,1 +1,1 @@
-:currency_exchange:
+:curly_loop:
