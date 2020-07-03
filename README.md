@@ -1,1 +1,1 @@
-:o:
+:christmas_tree:
