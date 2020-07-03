@@ -1,1 +1,1 @@
-:video_camera:
+:capital_abcd:
