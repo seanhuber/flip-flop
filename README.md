@@ -1,1 +1,1 @@
-:elephant:
+:o:
