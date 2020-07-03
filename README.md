@@ -1,1 +1,1 @@
-:musical_keyboard:
+:bar_chart:
