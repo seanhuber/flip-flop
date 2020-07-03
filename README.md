@@ -1,1 +1,1 @@
-:bikini:
+:palm_tree:
