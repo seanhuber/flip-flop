@@ -1,1 +1,1 @@
-:scream:
+:currency_exchange:
