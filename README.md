@@ -1,1 +1,1 @@
-:up:
+:space_invader:
