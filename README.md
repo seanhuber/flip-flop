@@ -1,1 +1,1 @@
-:hourglass:
+:oncoming_bus:
