@@ -1,1 +1,1 @@
-:oncoming_bus:
+:arrows_clockwise:
