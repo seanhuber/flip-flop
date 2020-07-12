@@ -1,1 +1,1 @@
-:evergreen_tree:
+:kissing_cat:
