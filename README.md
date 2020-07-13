@@ -1,1 +1,1 @@
-:paw_prints:
+:new_moon_with_face:
