@@ -1,1 +1,1 @@
-:cherries:
+:convenience_store:
