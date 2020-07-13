@@ -1,1 +1,1 @@
-:six:
+:point_right:
