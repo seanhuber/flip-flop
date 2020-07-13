@@ -1,1 +1,1 @@
-:point_right:
+:railway_car:
