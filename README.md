@@ -1,1 +1,1 @@
-:sun_with_face:
+:japanese_castle:
