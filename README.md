@@ -1,1 +1,1 @@
-:japanese_castle:
+:leftwards_arrow_with_hook:
