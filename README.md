@@ -1,1 +1,1 @@
-:shoe:
+:white_circle:
