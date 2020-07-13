@@ -1,1 +1,1 @@
-:ghost:
+:musical_keyboard:
