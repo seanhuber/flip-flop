@@ -1,1 +1,1 @@
-:notebook:
+:white_large_square:
