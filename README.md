@@ -1,1 +1,1 @@
-:bangbang:
+:small_blue_diamond:
