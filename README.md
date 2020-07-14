@@ -1,1 +1,1 @@
-:vibration_mode:
+:page_with_curl:
