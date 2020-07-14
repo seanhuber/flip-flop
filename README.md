@@ -1,1 +1,1 @@
-:see_no_evil:
+:thought_balloon:
