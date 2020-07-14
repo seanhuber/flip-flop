@@ -1,1 +1,1 @@
-:grinning:
+:white_check_mark:
