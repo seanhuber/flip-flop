@@ -1,1 +1,1 @@
-:crown:
+:vibration_mode:
