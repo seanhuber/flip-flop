@@ -1,1 +1,1 @@
-:honey_pot:
+:large_orange_diamond:
