@@ -1,1 +1,1 @@
-:tomato:
+:mountain_bicyclist:
