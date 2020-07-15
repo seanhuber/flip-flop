@@ -1,1 +1,1 @@
-:secret:
+:no_entry_sign:
