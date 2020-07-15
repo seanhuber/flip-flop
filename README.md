@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:articulated_lorry:
