@@ -1,1 +1,1 @@
-:door:
+:musical_keyboard:
