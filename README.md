@@ -1,1 +1,1 @@
-:articulated_lorry:
+:bar_chart:
