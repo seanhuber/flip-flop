@@ -1,1 +1,1 @@
-:warning:
+:floppy_disk:
