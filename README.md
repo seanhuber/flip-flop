@@ -1,1 +1,1 @@
-:hocho:
+:eight_pointed_black_star:
