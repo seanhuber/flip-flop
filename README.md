@@ -1,1 +1,1 @@
-:clock5:
+:izakaya_lantern:
