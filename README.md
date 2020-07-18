@@ -1,1 +1,1 @@
-:octopus:
+:mountain_cableway:
