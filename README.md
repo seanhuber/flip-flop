@@ -1,1 +1,1 @@
-:cyclone:
+:city_sunrise:
