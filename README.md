@@ -1,1 +1,1 @@
-:vertical_traffic_light:
+:heavy_division_sign:
