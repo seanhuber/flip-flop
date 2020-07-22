@@ -1,1 +1,1 @@
-:first_quarter_moon_with_face:
+:statue_of_liberty:
