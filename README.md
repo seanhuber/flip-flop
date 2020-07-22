@@ -1,1 +1,1 @@
-:clock630:
+:vertical_traffic_light:
