@@ -1,1 +1,1 @@
-:speaker:
+:chocolate_bar:
