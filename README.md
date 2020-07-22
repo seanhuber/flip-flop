@@ -1,1 +1,1 @@
-:chocolate_bar:
+:waxing_gibbous_moon:
