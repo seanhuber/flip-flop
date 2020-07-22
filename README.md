@@ -1,1 +1,1 @@
-:fist:
+:vibration_mode:
