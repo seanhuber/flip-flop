@@ -1,1 +1,1 @@
-:neckbeard:
+:love_letter:
