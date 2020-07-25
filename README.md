@@ -1,1 +1,1 @@
-:love_hotel:
+:signal_strength:
