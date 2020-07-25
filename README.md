@@ -1,1 +1,1 @@
-:phone:
+:love_hotel:
