@@ -1,1 +1,1 @@
-:bomb:
+:panda_face:
