@@ -1,1 +1,1 @@
-:kimono:
+:vertical_traffic_light:
