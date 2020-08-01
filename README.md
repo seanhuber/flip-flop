@@ -1,1 +1,1 @@
-:station:
+:mountain_cableway:
