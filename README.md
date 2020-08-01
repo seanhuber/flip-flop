@@ -1,1 +1,1 @@
-:house:
+:triumph:
