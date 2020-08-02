@@ -1,1 +1,1 @@
-:kiss:
+:straight_ruler:
