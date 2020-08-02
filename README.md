@@ -1,1 +1,1 @@
-:womans_clothes:
+:black_medium_small_square:
