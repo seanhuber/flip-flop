@@ -1,1 +1,1 @@
-:cherry_blossom:
+:no_bicycles:
