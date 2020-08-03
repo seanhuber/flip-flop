@@ -1,1 +1,1 @@
-:alarm_clock:
+:earth_asia:
