@@ -1,1 +1,1 @@
-:sweat_drops:
+:speak_no_evil:
