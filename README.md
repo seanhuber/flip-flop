@@ -1,1 +1,1 @@
-:rice:
+:honey_pot:
