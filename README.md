@@ -1,1 +1,1 @@
-:dash:
+:sweat_drops:
