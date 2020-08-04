@@ -1,1 +1,1 @@
-:large_blue_diamond:
+:game_die:
