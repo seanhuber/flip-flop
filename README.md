@@ -1,1 +1,1 @@
-:japanese_ogre:
+:tired_face:
