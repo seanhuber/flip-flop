@@ -1,1 +1,1 @@
-:libra:
+:postal_horn:
