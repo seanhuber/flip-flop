@@ -1,1 +1,1 @@
-:goat:
+:japanese_ogre:
