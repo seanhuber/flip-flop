@@ -1,1 +1,1 @@
-:goberserk:
+:mount_fuji:
