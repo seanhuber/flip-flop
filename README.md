@@ -1,1 +1,1 @@
-:game_die:
+:panda_face:
