@@ -1,1 +1,1 @@
-:clock130:
+:large_blue_diamond:
