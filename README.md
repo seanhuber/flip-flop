@@ -1,1 +1,1 @@
-:postal_horn:
+:potable_water:
