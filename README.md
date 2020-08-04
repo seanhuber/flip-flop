@@ -1,1 +1,1 @@
-:mount_fuji:
+:eight_pointed_black_star:
