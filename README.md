@@ -1,1 +1,1 @@
-:couple:
+:earth_americas:
