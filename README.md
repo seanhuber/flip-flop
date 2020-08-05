@@ -1,1 +1,1 @@
-:koko:
+:video_camera:
