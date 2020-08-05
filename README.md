@@ -1,1 +1,1 @@
-:video_game:
+:orange_book:
