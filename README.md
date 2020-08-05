@@ -1,1 +1,1 @@
-:frog:
+:raised_hands:
