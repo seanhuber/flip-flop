@@ -1,1 +1,1 @@
-:earth_americas:
+:heavy_multiplication_x:
