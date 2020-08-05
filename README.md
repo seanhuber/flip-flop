@@ -1,1 +1,1 @@
-:notebook:
+:no_mouth:
