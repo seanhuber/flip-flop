@@ -1,1 +1,1 @@
-:dog2:
+:earth_americas:
