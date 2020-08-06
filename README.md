@@ -1,1 +1,1 @@
-:minibus:
+:large_blue_circle:
