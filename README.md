@@ -1,1 +1,1 @@
-:wave:
+:red_car:
