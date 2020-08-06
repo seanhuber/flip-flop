@@ -1,1 +1,1 @@
-:cyclone:
+:white_check_mark:
