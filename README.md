@@ -1,1 +1,1 @@
-:red_car:
+:arrow_double_up:
