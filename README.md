@@ -1,1 +1,1 @@
-:black_medium_square:
+:person_with_blond_hair:
