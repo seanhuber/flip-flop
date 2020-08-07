@@ -1,1 +1,1 @@
-:ramen:
+:open_file_folder:
