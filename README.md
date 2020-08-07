@@ -1,1 +1,1 @@
-:bikini:
+:last_quarter_moon:
