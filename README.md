@@ -1,1 +1,1 @@
-:no_pedestrians:
+:roller_coaster:
