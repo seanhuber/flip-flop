@@ -1,1 +1,1 @@
-:person_with_blond_hair:
+:bust_in_silhouette:
