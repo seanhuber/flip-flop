@@ -1,1 +1,1 @@
-:stars:
+:black_medium_square:
