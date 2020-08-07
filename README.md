@@ -1,1 +1,1 @@
-:cherries:
+:no_pedestrians:
