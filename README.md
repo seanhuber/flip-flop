@@ -1,1 +1,1 @@
-:trumpet:
+:arrow_double_up:
