@@ -1,1 +1,1 @@
-:balloon:
+:milky_way:
