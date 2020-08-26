@@ -1,1 +1,1 @@
-:rooster:
+:simple_smile:
