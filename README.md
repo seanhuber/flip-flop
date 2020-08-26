@@ -1,1 +1,1 @@
-:rice:
+:ledger:
