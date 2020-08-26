@@ -1,1 +1,1 @@
-:milky_way:
+:kissing_closed_eyes:
