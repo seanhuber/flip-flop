@@ -1,1 +1,1 @@
-:mouse2:
+:bookmark_tabs:
