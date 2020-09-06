@@ -1,1 +1,1 @@
-:tiger:
+:smile_cat:
