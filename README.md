@@ -1,1 +1,1 @@
-:capital_abcd:
+:electric_plug:
