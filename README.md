@@ -1,1 +1,1 @@
-:white_circle:
+:ideograph_advantage:
