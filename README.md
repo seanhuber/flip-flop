@@ -1,1 +1,1 @@
-:fallen_leaf:
+:new_moon_with_face:
