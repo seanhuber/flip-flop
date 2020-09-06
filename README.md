@@ -1,1 +1,1 @@
-:sparkles:
+:heavy_minus_sign:
