@@ -1,1 +1,1 @@
-:hotel:
+:abcd:
