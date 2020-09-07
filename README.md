@@ -1,1 +1,1 @@
-:straight_ruler:
+:postal_horn:
