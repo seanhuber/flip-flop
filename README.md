@@ -1,1 +1,1 @@
-:waning_gibbous_moon:
+:arrow_heading_up:
