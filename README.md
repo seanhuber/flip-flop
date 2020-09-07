@@ -1,1 +1,1 @@
-:red_circle:
+:dromedary_camel:
