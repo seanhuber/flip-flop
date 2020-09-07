@@ -1,1 +1,1 @@
-:dromedary_camel:
+:leftwards_arrow_with_hook:
