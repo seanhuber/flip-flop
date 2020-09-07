@@ -1,1 +1,1 @@
-:beetle:
+:straight_ruler:
