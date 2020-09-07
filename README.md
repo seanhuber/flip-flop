@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:waning_gibbous_moon:
