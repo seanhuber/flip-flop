@@ -1,1 +1,1 @@
-:beer:
+:ideograph_advantage:
