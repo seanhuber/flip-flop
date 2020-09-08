@@ -1,1 +1,1 @@
-:sunrise:
+:orange_book:
