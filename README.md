@@ -1,1 +1,1 @@
-:blossom:
+:video_camera:
