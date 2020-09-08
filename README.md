@@ -1,1 +1,1 @@
-:squirrel:
+:articulated_lorry:
