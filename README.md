@@ -1,1 +1,1 @@
-:snail:
+:ok_woman:
