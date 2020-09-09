@@ -1,1 +1,1 @@
-:cancer:
+:rugby_football:
