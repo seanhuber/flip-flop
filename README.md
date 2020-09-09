@@ -1,1 +1,1 @@
-:ok_woman:
+:kissing_closed_eyes:
