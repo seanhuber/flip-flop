@@ -1,1 +1,1 @@
-:baby_symbol:
+:high_brightness:
