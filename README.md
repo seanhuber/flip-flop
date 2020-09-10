@@ -1,1 +1,1 @@
-:city_sunrise:
+:telephone_receiver:
