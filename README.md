@@ -1,1 +1,1 @@
-:warning:
+:bullettrain_front:
