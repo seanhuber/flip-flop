@@ -1,1 +1,1 @@
-:heart_decoration:
+:panda_face:
