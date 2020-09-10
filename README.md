@@ -1,1 +1,1 @@
-:goat:
+:heart_decoration:
