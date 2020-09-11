@@ -1,1 +1,1 @@
-:hand:
+:no_pedestrians:
