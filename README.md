@@ -1,1 +1,1 @@
-:no_pedestrians:
+:school_satchel:
