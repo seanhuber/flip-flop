@@ -1,1 +1,1 @@
-:icecream:
+:earth_americas:
