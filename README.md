@@ -1,1 +1,1 @@
-:mortar_board:
+:convenience_store:
