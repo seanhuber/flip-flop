@@ -1,1 +1,1 @@
-:point_down:
+:mortar_board:
