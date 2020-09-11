@@ -1,1 +1,1 @@
-:gift:
+:musical_note:
