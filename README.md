@@ -1,1 +1,1 @@
-:convenience_store:
+:heavy_check_mark:
