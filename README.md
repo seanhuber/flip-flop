@@ -1,1 +1,1 @@
-:cry:
+:newspaper:
