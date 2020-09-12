@@ -1,1 +1,1 @@
-:japan:
+:man_with_turban:
