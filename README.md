@@ -1,1 +1,1 @@
-:sushi:
+:bullettrain_front:
