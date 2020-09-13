@@ -1,1 +1,1 @@
-:grinning:
+:fried_shrimp:
