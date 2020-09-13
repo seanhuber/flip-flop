@@ -1,1 +1,1 @@
-:water_buffalo:
+:mouse2:
