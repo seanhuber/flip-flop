@@ -1,1 +1,1 @@
-:smoking:
+:water_buffalo:
