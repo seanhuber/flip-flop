@@ -1,1 +1,1 @@
-:zero:
+:blue_book:
