@@ -1,1 +1,1 @@
-:sparkler:
+:slot_machine:
