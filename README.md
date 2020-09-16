@@ -1,1 +1,1 @@
-:key:
+:currency_exchange:
