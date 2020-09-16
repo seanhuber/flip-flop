@@ -1,1 +1,1 @@
-:rage:
+:love_letter:
