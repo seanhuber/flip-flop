@@ -1,1 +1,1 @@
-:trophy:
+:hatching_chick:
