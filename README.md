@@ -1,1 +1,1 @@
-:no_good:
+:closed_umbrella:
