@@ -1,1 +1,1 @@
-:lock:
+:bust_in_silhouette:
