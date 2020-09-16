@@ -1,1 +1,1 @@
-:hatching_chick:
+:white_circle:
