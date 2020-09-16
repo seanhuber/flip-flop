@@ -1,1 +1,1 @@
-:love_letter:
+:see_no_evil:
