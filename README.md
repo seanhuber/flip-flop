@@ -1,1 +1,1 @@
-:left_right_arrow:
+:love_letter:
