@@ -1,1 +1,1 @@
-:thumbsdown:
+:school_satchel:
