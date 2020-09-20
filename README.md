@@ -1,1 +1,1 @@
-:trident:
+:sparkles:
