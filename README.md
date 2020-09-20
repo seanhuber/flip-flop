@@ -1,1 +1,1 @@
-:bikini:
+:white_circle:
