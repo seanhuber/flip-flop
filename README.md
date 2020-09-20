@@ -1,1 +1,1 @@
-:bulb:
+:city_sunset:
