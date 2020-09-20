@@ -1,1 +1,1 @@
-:lollipop:
+:moneybag:
