@@ -1,1 +1,1 @@
-:football:
+:black_square_button:
