@@ -1,1 +1,1 @@
-:syringe:
+:white_check_mark:
