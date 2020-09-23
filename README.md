@@ -1,1 +1,1 @@
-:battery:
+:crescent_moon:
