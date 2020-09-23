@@ -1,1 +1,1 @@
-:beers:
+:kissing_cat:
