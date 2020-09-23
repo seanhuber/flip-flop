@@ -1,1 +1,1 @@
-:fireworks:
+:battery:
