@@ -1,1 +1,1 @@
-:u6708:
+:electric_plug:
