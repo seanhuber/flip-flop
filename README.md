@@ -1,1 +1,1 @@
-:railway_car:
+:notebook_with_decorative_cover:
