@@ -1,1 +1,1 @@
-:left_luggage:
+:railway_car:
