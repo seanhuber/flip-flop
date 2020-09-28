@@ -1,1 +1,1 @@
-:notebook_with_decorative_cover:
+:man_with_turban:
