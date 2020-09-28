@@ -1,1 +1,1 @@
-:electric_plug:
+:maple_leaf:
