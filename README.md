@@ -1,1 +1,1 @@
-:dango:
+:exclamation:
