@@ -1,1 +1,1 @@
-:joy:
+:telephone_receiver:
