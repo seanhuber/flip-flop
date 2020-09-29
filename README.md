@@ -1,1 +1,1 @@
-:exclamation:
+:arrow_right_hook:
