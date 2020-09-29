@@ -1,1 +1,1 @@
-:us:
+:hotsprings:
