@@ -1,1 +1,1 @@
-:hammer:
+:strawberry:
