@@ -1,1 +1,1 @@
-:yum:
+:checkered_flag:
