@@ -1,1 +1,1 @@
-:strawberry:
+:mortar_board:
