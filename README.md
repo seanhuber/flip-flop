@@ -1,1 +1,1 @@
-:church:
+:ferris_wheel:
