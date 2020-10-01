@@ -1,1 +1,1 @@
-:angry:
+:mag_right:
