@@ -1,1 +1,1 @@
-:rabbit2:
+:waxing_gibbous_moon:
