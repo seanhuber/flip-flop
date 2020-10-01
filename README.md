@@ -1,1 +1,1 @@
-:black_nib:
+:milky_way:
