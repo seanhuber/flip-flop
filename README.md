@@ -1,1 +1,1 @@
-:libra:
+:earth_americas:
