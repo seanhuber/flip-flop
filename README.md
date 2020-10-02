@@ -1,1 +1,1 @@
-:boat:
+:mag_right:
