@@ -1,1 +1,1 @@
-:horse_racing:
+:video_game:
