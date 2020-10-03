@@ -1,1 +1,1 @@
-:wheelchair:
+:high_heel:
