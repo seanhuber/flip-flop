@@ -1,1 +1,1 @@
-:credit_card:
+:two_women_holding_hands:
