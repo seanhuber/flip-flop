@@ -1,1 +1,1 @@
-:purse:
+:mountain_cableway:
