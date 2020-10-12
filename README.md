@@ -1,1 +1,1 @@
-:six:
+:checkered_flag:
