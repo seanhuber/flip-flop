@@ -1,1 +1,1 @@
-:bowtie:
+:no_entry:
