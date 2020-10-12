@@ -1,1 +1,1 @@
-:headphones:
+:japanese_ogre:
