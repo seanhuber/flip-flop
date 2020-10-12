@@ -1,1 +1,1 @@
-:sushi:
+:bridge_at_night:
