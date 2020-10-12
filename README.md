@@ -1,1 +1,1 @@
-:no_entry_sign:
+:bride_with_veil:
