@@ -1,1 +1,1 @@
-:no_pedestrians:
+:arrow_right:
