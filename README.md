@@ -1,1 +1,1 @@
-:incoming_envelope:
+:mortar_board:
