@@ -1,1 +1,1 @@
-:bamboo:
+:triangular_ruler:
