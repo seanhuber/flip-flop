@@ -1,1 +1,1 @@
-:japanese_ogre:
+:arrow_up_small:
