@@ -1,1 +1,1 @@
-:bowling:
+:articulated_lorry:
