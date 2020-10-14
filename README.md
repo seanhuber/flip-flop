@@ -1,1 +1,1 @@
-:mobile_phone_off:
+:dromedary_camel:
