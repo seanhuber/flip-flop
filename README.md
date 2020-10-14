@@ -1,1 +1,1 @@
-:triumph:
+:four:
