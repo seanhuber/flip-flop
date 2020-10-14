@@ -1,1 +1,1 @@
-:new:
+:bust_in_silhouette:
