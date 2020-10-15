@@ -1,1 +1,1 @@
-:new:
+:aerial_tramway:
