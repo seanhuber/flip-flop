@@ -1,1 +1,1 @@
-:city_sunset:
+:mountain_bicyclist:
