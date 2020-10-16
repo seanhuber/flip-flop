@@ -1,1 +1,1 @@
-:snowflake:
+:white_circle:
