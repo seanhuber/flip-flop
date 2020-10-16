@@ -1,1 +1,1 @@
-:ok:
+:potable_water:
