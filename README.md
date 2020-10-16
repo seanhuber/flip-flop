@@ -1,1 +1,1 @@
-:coffee:
+:large_blue_circle:
