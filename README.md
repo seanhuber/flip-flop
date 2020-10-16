@@ -1,1 +1,1 @@
-:octocat:
+:checkered_flag:
