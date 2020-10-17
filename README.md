@@ -1,1 +1,1 @@
-:octopus:
+:ideograph_advantage:
