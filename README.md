@@ -1,1 +1,1 @@
-:monkey_face:
+:waxing_gibbous_moon:
