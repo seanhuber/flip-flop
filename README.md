@@ -1,1 +1,1 @@
-:speak_no_evil:
+:neutral_face:
