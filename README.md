@@ -1,1 +1,1 @@
-:sunglasses:
+:speak_no_evil:
