@@ -1,1 +1,1 @@
-:u7533:
+:chart_with_downwards_trend:
