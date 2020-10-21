@@ -1,1 +1,1 @@
-:telephone_receiver:
+:white_square_button:
