@@ -1,1 +1,1 @@
-:mortar_board:
+:twisted_rightwards_arrows:
