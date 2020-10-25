@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:money_with_wings:
