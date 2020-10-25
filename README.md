@@ -1,1 +1,1 @@
-:u55b6:
+:heavy_minus_sign:
