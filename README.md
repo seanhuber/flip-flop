@@ -1,1 +1,1 @@
-:twisted_rightwards_arrows:
+:six_pointed_star:
