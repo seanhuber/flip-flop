@@ -1,1 +1,1 @@
-:atm:
+:smiley_cat:
