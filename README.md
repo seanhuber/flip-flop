@@ -1,1 +1,1 @@
-:weary:
+:mortar_board:
