@@ -1,1 +1,1 @@
-:keycap_ten:
+:paw_prints:
