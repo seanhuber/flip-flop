@@ -1,1 +1,1 @@
-:smiley_cat:
+:sparkling_heart:
