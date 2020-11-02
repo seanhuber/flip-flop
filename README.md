@@ -1,1 +1,1 @@
-:ru:
+:fish_cake:
