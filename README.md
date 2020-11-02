@@ -1,1 +1,1 @@
-:cow:
+:jack_o_lantern:
