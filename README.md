@@ -1,1 +1,1 @@
-:bird:
+:heavy_multiplication_x:
