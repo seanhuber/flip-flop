@@ -1,1 +1,1 @@
-:white_square_button:
+:do_not_litter:
