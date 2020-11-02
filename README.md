@@ -1,1 +1,1 @@
-:rabbit:
+:signal_strength:
