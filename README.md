@@ -1,1 +1,1 @@
-:euro:
+:man_with_turban:
