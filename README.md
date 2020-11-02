@@ -1,1 +1,1 @@
-:envelope:
+:arrow_up:
