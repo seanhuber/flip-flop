@@ -1,1 +1,1 @@
-:nut_and_bolt:
+:dizzy_face:
