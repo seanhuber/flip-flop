@@ -1,1 +1,1 @@
-:sandal:
+:strawberry:
