@@ -1,1 +1,1 @@
-:nose:
+:runner:
