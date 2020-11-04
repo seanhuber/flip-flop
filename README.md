@@ -1,1 +1,1 @@
-:tea:
+:droplet:
