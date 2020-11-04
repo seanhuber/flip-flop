@@ -1,1 +1,1 @@
-:new_moon:
+:six_pointed_star:
