@@ -1,1 +1,1 @@
-:runner:
+:euro:
