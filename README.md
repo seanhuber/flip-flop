@@ -1,1 +1,1 @@
-:exclamation:
+:goberserk:
