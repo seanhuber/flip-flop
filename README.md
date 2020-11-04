@@ -1,1 +1,1 @@
-:flashlight:
+:credit_card:
