@@ -1,1 +1,1 @@
-:clock130:
+:movie_camera:
