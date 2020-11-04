@@ -1,1 +1,1 @@
-:bear:
+:new_moon:
