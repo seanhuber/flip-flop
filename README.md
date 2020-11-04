@@ -1,1 +1,1 @@
-:goberserk:
+:vibration_mode:
