@@ -1,1 +1,1 @@
-:sunflower:
+:heavy_dollar_sign:
