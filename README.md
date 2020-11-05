@@ -1,1 +1,1 @@
-:doughnut:
+:microphone:
