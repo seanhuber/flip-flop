@@ -1,1 +1,1 @@
-:hourglass:
+:black_nib:
