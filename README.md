@@ -1,1 +1,1 @@
-:guitar:
+:mahjong:
