@@ -1,1 +1,1 @@
-:mahjong:
+:hourglass:
