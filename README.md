@@ -1,1 +1,1 @@
-:gun:
+:neutral_face:
