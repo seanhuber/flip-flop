@@ -1,1 +1,1 @@
-:bicyclist:
+:no_smoking:
