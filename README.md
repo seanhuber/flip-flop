@@ -1,1 +1,1 @@
-:first_quarter_moon_with_face:
+:no_mouth:
