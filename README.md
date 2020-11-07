@@ -1,1 +1,1 @@
-:cold_sweat:
+:wind_chime:
