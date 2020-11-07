@@ -1,1 +1,1 @@
-:no_bicycles:
+:negative_squared_cross_mark:
