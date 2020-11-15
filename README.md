@@ -1,1 +1,1 @@
-:cat:
+:sweet_potato:
