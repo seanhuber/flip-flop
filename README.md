@@ -1,1 +1,1 @@
-:ticket:
+:white_medium_square:
