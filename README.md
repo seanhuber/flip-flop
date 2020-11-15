@@ -1,1 +1,1 @@
-:wolf:
+:ferris_wheel:
