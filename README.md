@@ -1,1 +1,1 @@
-:ferris_wheel:
+:slot_machine:
