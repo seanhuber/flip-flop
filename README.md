@@ -1,1 +1,1 @@
-:restroom:
+:sushi:
