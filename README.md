@@ -1,1 +1,1 @@
-:guitar:
+:mouse2:
