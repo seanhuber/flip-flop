@@ -1,1 +1,1 @@
-:virgo:
+:green_apple:
