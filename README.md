@@ -1,1 +1,1 @@
-:candy:
+:poultry_leg:
