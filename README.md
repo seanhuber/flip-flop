@@ -1,1 +1,1 @@
-:pineapple:
+:do_not_litter:
