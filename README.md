@@ -1,1 +1,1 @@
-:sushi:
+:outbox_tray:
