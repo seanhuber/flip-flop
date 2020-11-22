@@ -1,1 +1,1 @@
-:disappointed:
+:scissors:
