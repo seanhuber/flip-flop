@@ -1,1 +1,1 @@
-:running:
+:simple_smile:
