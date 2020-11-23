@@ -1,1 +1,1 @@
-:warning:
+:girl:
