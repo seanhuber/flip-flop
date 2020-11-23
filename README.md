@@ -1,1 +1,1 @@
-:whale2:
+:keycap_ten:
