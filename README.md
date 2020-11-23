@@ -1,1 +1,1 @@
-:keycap_ten:
+:black_joker:
