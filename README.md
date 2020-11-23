@@ -1,1 +1,1 @@
-:crown:
+:heavy_dollar_sign:
