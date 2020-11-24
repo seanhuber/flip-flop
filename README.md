@@ -1,1 +1,1 @@
-:one:
+:heavy_minus_sign:
