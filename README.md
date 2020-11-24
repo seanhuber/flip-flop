@@ -1,1 +1,1 @@
-:black_nib:
+:keycap_ten:
