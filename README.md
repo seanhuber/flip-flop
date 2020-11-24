@@ -1,1 +1,1 @@
-:corn:
+:arrow_up:
