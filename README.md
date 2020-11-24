@@ -1,1 +1,1 @@
-:whale:
+:cherry_blossom:
