@@ -1,1 +1,1 @@
-:full_moon:
+:carousel_horse:
