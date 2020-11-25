@@ -1,1 +1,1 @@
-:bell:
+:ophiuchus:
