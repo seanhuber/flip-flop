@@ -1,1 +1,1 @@
-:telephone:
+:small_red_triangle:
