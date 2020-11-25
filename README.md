@@ -1,1 +1,1 @@
-:cake:
+:four_leaf_clover:
