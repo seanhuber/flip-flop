@@ -1,1 +1,1 @@
-:white_medium_square:
+:full_moon:
