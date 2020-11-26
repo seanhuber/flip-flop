@@ -1,1 +1,1 @@
-:baby_symbol:
+:mailbox_with_mail:
