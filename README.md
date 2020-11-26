@@ -1,1 +1,1 @@
-:blossom:
+:baby_symbol:
