@@ -1,1 +1,1 @@
-:school:
+:radio_button:
