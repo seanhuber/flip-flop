@@ -1,1 +1,1 @@
-:pineapple:
+:no_bicycles:
