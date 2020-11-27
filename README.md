@@ -1,1 +1,1 @@
-:raised_hand:
+:smiling_imp:
