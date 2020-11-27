@@ -1,1 +1,1 @@
-:moyai:
+:arrow_down_small:
