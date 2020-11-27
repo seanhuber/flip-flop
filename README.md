@@ -1,1 +1,1 @@
-:elephant:
+:joy_cat:
