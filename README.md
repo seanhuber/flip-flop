@@ -1,1 +1,1 @@
-:bangbang:
+:oncoming_automobile:
