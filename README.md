@@ -1,1 +1,1 @@
-:u6709:
+:raised_hand:
