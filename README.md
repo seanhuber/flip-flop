@@ -1,1 +1,1 @@
-:straight_ruler:
+:no_bicycles:
