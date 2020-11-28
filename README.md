@@ -1,1 +1,1 @@
-:rage:
+:ok_hand:
