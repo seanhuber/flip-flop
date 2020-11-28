@@ -1,1 +1,1 @@
-:koala:
+:wavy_dash:
