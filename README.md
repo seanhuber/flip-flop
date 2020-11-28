@@ -1,1 +1,1 @@
-:wavy_dash:
+:potable_water:
