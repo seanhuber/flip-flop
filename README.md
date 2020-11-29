@@ -1,1 +1,1 @@
-:city_sunrise:
+:japanese_ogre:
