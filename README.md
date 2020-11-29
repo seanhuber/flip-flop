@@ -1,1 +1,1 @@
-:trumpet:
+:keycap_ten:
