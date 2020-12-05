@@ -1,1 +1,1 @@
-:briefcase:
+:articulated_lorry:
