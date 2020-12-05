@@ -1,1 +1,1 @@
-:articulated_lorry:
+:low_brightness:
