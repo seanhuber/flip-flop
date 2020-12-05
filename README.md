@@ -1,1 +1,1 @@
-:hamburger:
+:do_not_litter:
