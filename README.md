@@ -1,1 +1,1 @@
-:construction_worker:
+:fast_forward:
