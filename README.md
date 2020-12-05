@@ -1,1 +1,1 @@
-:trophy:
+:hamburger:
