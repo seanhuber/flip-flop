@@ -1,1 +1,1 @@
-:bear:
+:mobile_phone_off:
