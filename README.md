@@ -1,1 +1,1 @@
-:muscle:
+:mount_fuji:
