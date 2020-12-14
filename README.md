@@ -1,1 +1,1 @@
-:pineapple:
+:tokyo_tower:
