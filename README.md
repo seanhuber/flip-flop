@@ -1,1 +1,1 @@
-:tokyo_tower:
+:black_nib:
