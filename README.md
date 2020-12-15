@@ -1,1 +1,1 @@
-:fish:
+:japanese_ogre:
