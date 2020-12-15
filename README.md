@@ -1,1 +1,1 @@
-:large_blue_circle:
+:mailbox_closed:
