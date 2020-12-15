@@ -1,1 +1,1 @@
-:ambulance:
+:ferris_wheel:
