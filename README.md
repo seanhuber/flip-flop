@@ -1,1 +1,1 @@
-:flushed:
+:large_blue_circle:
