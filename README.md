@@ -1,1 +1,1 @@
-:hushed:
+:red_circle:
