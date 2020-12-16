@@ -1,1 +1,1 @@
-:rice_ball:
+:negative_squared_cross_mark:
