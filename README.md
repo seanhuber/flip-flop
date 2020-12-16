@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:tropical_fish:
