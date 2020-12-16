@@ -1,1 +1,1 @@
-:wheelchair:
+:fire_engine:
