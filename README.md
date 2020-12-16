@@ -1,1 +1,1 @@
-:ship:
+:heavy_minus_sign:
