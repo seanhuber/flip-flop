@@ -1,1 +1,1 @@
-:tropical_fish:
+:rice_ball:
