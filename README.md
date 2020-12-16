@@ -1,1 +1,1 @@
-:koala:
+:cold_sweat:
