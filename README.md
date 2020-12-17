@@ -1,1 +1,1 @@
-:rainbow:
+:kissing_cat:
