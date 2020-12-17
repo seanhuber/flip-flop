@@ -1,1 +1,1 @@
-:kissing_cat:
+:passport_control:
