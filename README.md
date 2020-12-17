@@ -1,1 +1,1 @@
-:satisfied:
+:lock_with_ink_pen:
