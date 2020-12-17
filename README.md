@@ -1,1 +1,1 @@
-:poop:
+:black_medium_square:
