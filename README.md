@@ -1,1 +1,1 @@
-:smiley:
+:hotsprings:
