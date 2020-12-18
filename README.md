@@ -1,1 +1,1 @@
-:game_die:
+:hourglass_flowing_sand:
