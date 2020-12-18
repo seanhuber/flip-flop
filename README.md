@@ -1,1 +1,1 @@
-:gift_heart:
+:arrow_up_small:
