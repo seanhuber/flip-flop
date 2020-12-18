@@ -1,1 +1,1 @@
-:kiss:
+:no_bell:
