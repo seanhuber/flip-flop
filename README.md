@@ -1,1 +1,1 @@
-:kissing_heart:
+:purple_heart:
