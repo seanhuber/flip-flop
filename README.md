@@ -1,1 +1,1 @@
-:bowtie:
+:game_die:
