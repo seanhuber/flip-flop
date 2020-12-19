@@ -1,1 +1,1 @@
-:green_apple:
+:performing_arts:
