@@ -1,1 +1,1 @@
-:ramen:
+:green_book:
