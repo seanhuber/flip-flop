@@ -1,1 +1,1 @@
-:dango:
+:outbox_tray:
