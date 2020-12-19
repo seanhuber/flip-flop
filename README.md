@@ -1,1 +1,1 @@
-:four_leaf_clover:
+:smiley_cat:
