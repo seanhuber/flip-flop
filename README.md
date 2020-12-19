@@ -1,1 +1,1 @@
-:outbox_tray:
+:closed_lock_with_key:
