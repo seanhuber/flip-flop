@@ -1,1 +1,1 @@
-:smiley_cat:
+:two_hearts:
