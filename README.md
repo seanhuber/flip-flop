@@ -1,1 +1,1 @@
-:tangerine:
+:busts_in_silhouette:
