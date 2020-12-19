@@ -1,1 +1,1 @@
-:restroom:
+:chicken:
