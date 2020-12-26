@@ -1,1 +1,1 @@
-:kr:
+:water_buffalo:
