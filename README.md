@@ -1,1 +1,1 @@
-:frog:
+:movie_camera:
