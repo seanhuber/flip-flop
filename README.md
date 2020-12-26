@@ -1,1 +1,1 @@
-:gemini:
+:checkered_flag:
