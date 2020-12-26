@@ -1,1 +1,1 @@
-:candy:
+:bride_with_veil:
