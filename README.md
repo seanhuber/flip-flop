@@ -1,1 +1,1 @@
-:godmode:
+:mail:
