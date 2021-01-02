@@ -1,1 +1,1 @@
-:restroom:
+:curly_loop:
