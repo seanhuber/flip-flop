@@ -1,1 +1,1 @@
-:santa:
+:black_small_square:
