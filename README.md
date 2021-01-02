@@ -1,1 +1,1 @@
-:stars:
+:capital_abcd:
