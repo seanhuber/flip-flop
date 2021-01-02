@@ -1,1 +1,1 @@
-:black_small_square:
+:two_women_holding_hands:
