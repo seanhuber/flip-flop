@@ -1,1 +1,1 @@
-:battery:
+:arrow_double_up:
