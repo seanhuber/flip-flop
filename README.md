@@ -1,1 +1,1 @@
-:point_up:
+:cow2:
