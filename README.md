@@ -1,1 +1,1 @@
-:koala:
+:deciduous_tree:
