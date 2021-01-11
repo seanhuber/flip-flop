@@ -1,1 +1,1 @@
-:tshirt:
+:bus:
