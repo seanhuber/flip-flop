@@ -1,1 +1,1 @@
-:iphone:
+:arrow_down_small:
