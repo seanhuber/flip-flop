@@ -1,1 +1,1 @@
-:ski:
+:sunrise_over_mountains:
