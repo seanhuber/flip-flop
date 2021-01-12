@@ -1,1 +1,1 @@
-:meat_on_bone:
+:pig_nose:
