@@ -1,1 +1,1 @@
-:black_nib:
+:waning_gibbous_moon:
