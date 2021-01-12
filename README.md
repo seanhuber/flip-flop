@@ -1,1 +1,1 @@
-:thumbsdown:
+:ski:
