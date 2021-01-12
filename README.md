@@ -1,1 +1,1 @@
-:new_moon:
+:arrow_up:
