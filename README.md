@@ -1,1 +1,1 @@
-:ribbon:
+:fast_forward:
