@@ -1,1 +1,1 @@
-:squirrel:
+:womans_hat:
