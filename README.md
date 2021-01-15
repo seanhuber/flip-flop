@@ -1,1 +1,1 @@
-:ledger:
+:keycap_ten:
