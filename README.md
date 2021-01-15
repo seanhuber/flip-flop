@@ -1,1 +1,1 @@
-:small_orange_diamond:
+:last_quarter_moon:
