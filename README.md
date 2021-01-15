@@ -1,1 +1,1 @@
-:rose:
+:heavy_dollar_sign:
