@@ -1,1 +1,1 @@
-:loudspeaker:
+:alarm_clock:
