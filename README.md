@@ -1,1 +1,1 @@
-:massage:
+:small_orange_diamond:
