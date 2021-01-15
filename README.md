@@ -1,1 +1,1 @@
-:keycap_ten:
+:water_buffalo:
