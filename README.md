@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:love_hotel:
