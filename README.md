@@ -1,1 +1,1 @@
-:water_buffalo:
+:alarm_clock:
