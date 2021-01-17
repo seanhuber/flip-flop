@@ -1,1 +1,1 @@
-:u6e80:
+:orange_book:
