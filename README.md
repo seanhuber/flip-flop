@@ -1,1 +1,1 @@
-:fish_cake:
+:arrow_upper_right:
