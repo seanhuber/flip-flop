@@ -1,1 +1,1 @@
-:apple:
+:poultry_leg:
