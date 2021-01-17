@@ -1,1 +1,1 @@
-:orange_book:
+:waxing_gibbous_moon:
