@@ -1,1 +1,1 @@
-:hourglass:
+:part_alternation_mark:
