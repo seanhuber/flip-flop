@@ -1,1 +1,1 @@
-:earth_africa:
+:mailbox_closed:
