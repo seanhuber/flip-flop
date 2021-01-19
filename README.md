@@ -1,1 +1,1 @@
-:us:
+:floppy_disk:
