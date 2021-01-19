@@ -1,1 +1,1 @@
-:pig2:
+:speech_balloon:
