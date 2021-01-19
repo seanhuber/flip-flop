@@ -1,1 +1,1 @@
-:mailbox_closed:
+:full_moon_with_face:
