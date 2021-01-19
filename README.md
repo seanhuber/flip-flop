@@ -1,1 +1,1 @@
-:laughing:
+:earth_africa:
