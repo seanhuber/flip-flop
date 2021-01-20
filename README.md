@@ -1,1 +1,1 @@
-:airplane:
+:shaved_ice:
