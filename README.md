@@ -1,1 +1,1 @@
-:twisted_rightwards_arrows:
+:orange_book:
