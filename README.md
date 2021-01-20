@@ -1,1 +1,1 @@
-:punch:
+:potable_water:
