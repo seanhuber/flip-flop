@@ -1,1 +1,1 @@
-:minibus:
+:white_square_button:
