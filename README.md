@@ -1,1 +1,1 @@
-:chart_with_downwards_trend:
+:high_brightness:
