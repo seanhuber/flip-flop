@@ -1,1 +1,1 @@
-:stars:
+:house:
