@@ -1,1 +1,1 @@
-:couple_with_heart:
+:waning_crescent_moon:
