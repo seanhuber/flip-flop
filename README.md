@@ -1,1 +1,1 @@
-:dolphin:
+:blue_book:
