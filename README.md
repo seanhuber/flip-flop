@@ -1,1 +1,1 @@
-:bamboo:
+:arrow_up_small:
