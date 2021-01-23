@@ -1,1 +1,1 @@
-:heart_eyes:
+:chart_with_downwards_trend:
