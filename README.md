@@ -1,1 +1,1 @@
-:cocktail:
+:accept:
