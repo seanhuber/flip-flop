@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:large_orange_diamond:
