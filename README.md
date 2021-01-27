@@ -1,1 +1,1 @@
-:dolphin:
+:movie_camera:
