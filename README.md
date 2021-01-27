@@ -1,1 +1,1 @@
-:blue_book:
+:jack_o_lantern:
