@@ -1,1 +1,1 @@
-:black_circle:
+:last_quarter_moon:
