@@ -1,1 +1,1 @@
-:diamonds:
+:checkered_flag:
