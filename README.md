@@ -1,1 +1,1 @@
-:sparkling_heart:
+:arrow_right_hook:
