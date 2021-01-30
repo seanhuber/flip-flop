@@ -1,1 +1,1 @@
-:necktie:
+:partly_sunny:
