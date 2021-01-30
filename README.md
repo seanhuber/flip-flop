@@ -1,1 +1,1 @@
-:pineapple:
+:curly_loop:
