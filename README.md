@@ -1,1 +1,1 @@
-:trollface:
+:smirk_cat:
