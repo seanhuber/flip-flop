@@ -1,1 +1,1 @@
-:yum:
+:white_small_square:
