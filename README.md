@@ -1,1 +1,1 @@
-:mortar_board:
+:earth_asia:
