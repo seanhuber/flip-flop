@@ -1,1 +1,1 @@
-:snail:
+:satellite:
