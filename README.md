@@ -1,1 +1,1 @@
-:tulip:
+:mount_fuji:
