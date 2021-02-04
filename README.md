@@ -1,1 +1,1 @@
-:octocat:
+:large_blue_circle:
