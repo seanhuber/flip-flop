@@ -1,1 +1,1 @@
-:tea:
+:curly_loop:
