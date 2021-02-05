@@ -1,1 +1,1 @@
-:revolving_hearts:
+:sun_with_face:
