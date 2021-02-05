@@ -1,1 +1,1 @@
-:rooster:
+:maple_leaf:
