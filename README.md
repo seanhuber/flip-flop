@@ -1,1 +1,1 @@
-:sweat:
+:rooster:
