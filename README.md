@@ -1,1 +1,1 @@
-:abcd:
+:heavy_minus_sign:
