@@ -1,1 +1,1 @@
-:jp:
+:mobile_phone_off:
