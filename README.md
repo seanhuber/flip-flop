@@ -1,1 +1,1 @@
-:snowman:
+:white_check_mark:
