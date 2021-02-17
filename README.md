@@ -1,1 +1,1 @@
-:persevere:
+:euro:
