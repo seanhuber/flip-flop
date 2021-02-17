@@ -1,1 +1,1 @@
-:congratulations:
+:palm_tree:
