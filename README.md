@@ -1,1 +1,1 @@
-:ship:
+:statue_of_liberty:
