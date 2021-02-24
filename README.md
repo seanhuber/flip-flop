@@ -1,1 +1,1 @@
-:high_brightness:
+:curly_loop:
