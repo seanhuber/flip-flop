@@ -1,1 +1,1 @@
-:musical_note:
+:high_brightness:
