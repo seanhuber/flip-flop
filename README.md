@@ -1,1 +1,1 @@
-:ambulance:
+:kissing_cat:
