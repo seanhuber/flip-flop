@@ -1,1 +1,1 @@
-:kissing_cat:
+:baggage_claim:
