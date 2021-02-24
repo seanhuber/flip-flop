@@ -1,1 +1,1 @@
-:tanabata_tree:
+:credit_card:
