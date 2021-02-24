@@ -1,1 +1,1 @@
-:kissing:
+:arrow_forward:
