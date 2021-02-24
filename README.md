@@ -1,1 +1,1 @@
-:sleepy:
+:mailbox_closed:
