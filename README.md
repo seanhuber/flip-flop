@@ -1,1 +1,1 @@
-:tired_face:
+:video_game:
