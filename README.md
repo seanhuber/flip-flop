@@ -1,1 +1,1 @@
-:arrow_heading_down:
+:tired_face:
