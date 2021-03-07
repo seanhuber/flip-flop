@@ -1,1 +1,1 @@
-:heart:
+:keycap_ten:
