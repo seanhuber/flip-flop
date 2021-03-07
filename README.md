@@ -1,1 +1,1 @@
-:ticket:
+:busts_in_silhouette:
