@@ -1,1 +1,1 @@
-:scream:
+:no_smoking:
