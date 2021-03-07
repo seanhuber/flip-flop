@@ -1,1 +1,1 @@
-:keycap_ten:
+:house_with_garden:
