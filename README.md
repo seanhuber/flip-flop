@@ -1,1 +1,1 @@
-:oncoming_police_car:
+:arrow_heading_down:
