@@ -1,1 +1,1 @@
-:house_with_garden:
+:sun_with_face:
