@@ -1,1 +1,1 @@
-:eight_pointed_black_star:
+:stuck_out_tongue_closed_eyes:
