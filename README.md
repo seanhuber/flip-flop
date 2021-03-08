@@ -1,1 +1,1 @@
-:spaghetti:
+:vertical_traffic_light:
