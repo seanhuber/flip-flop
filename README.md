@@ -1,1 +1,1 @@
-:tent:
+:black_circle:
