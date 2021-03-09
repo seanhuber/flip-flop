@@ -1,1 +1,1 @@
-:monorail:
+:ideograph_advantage:
