@@ -1,1 +1,1 @@
-:oncoming_bus:
+:waning_gibbous_moon:
