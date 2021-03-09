@@ -1,1 +1,1 @@
-:waning_gibbous_moon:
+:do_not_litter:
