@@ -1,1 +1,1 @@
-:thought_balloon:
+:point_up_2:
