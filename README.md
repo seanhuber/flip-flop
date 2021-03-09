@@ -1,1 +1,1 @@
-:arrow_heading_down:
+:earth_africa:
