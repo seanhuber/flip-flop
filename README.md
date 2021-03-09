@@ -1,1 +1,1 @@
-:railway_car:
+:small_red_triangle_down:
