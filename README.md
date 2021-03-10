@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:mailbox_closed:
