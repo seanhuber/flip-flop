@@ -1,1 +1,1 @@
-:euro:
+:white_circle:
