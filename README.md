@@ -1,1 +1,1 @@
-:ghost:
+:hospital:
