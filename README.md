@@ -1,1 +1,1 @@
-:zzz:
+:department_store:
