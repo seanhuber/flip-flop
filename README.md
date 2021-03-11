@@ -1,1 +1,1 @@
-:shirt:
+:potable_water:
