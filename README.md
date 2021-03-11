@@ -1,1 +1,1 @@
-:musical_keyboard:
+:japanese_castle:
