@@ -1,1 +1,1 @@
-:postal_horn:
+:black_square_button:
