@@ -1,1 +1,1 @@
-:bomb:
+:postal_horn:
