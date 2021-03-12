@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:yellow_heart:
