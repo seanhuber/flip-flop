@@ -1,1 +1,1 @@
-:gemini:
+:izakaya_lantern:
