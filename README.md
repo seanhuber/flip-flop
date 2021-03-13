@@ -1,1 +1,1 @@
-:strawberry:
+:tokyo_tower:
