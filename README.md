@@ -1,1 +1,1 @@
-:sagittarius:
+:chocolate_bar:
