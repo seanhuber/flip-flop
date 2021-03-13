@@ -1,1 +1,1 @@
-:black_small_square:
+:scream_cat:
