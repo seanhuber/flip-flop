@@ -1,1 +1,1 @@
-:chocolate_bar:
+:point_up:
