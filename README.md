@@ -1,1 +1,1 @@
-:ru:
+:kissing_smiling_eyes:
