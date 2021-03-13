@@ -1,1 +1,1 @@
-:smiley_cat:
+:black_small_square:
