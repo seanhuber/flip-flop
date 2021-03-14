@@ -1,1 +1,1 @@
-:last_quarter_moon_with_face:
+:last_quarter_moon:
