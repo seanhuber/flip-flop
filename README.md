@@ -1,1 +1,1 @@
-:mute:
+:eight_spoked_asterisk:
