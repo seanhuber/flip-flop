@@ -1,1 +1,1 @@
-:hospital:
+:video_camera:
