@@ -1,1 +1,1 @@
-:bangbang:
+:page_facing_up:
