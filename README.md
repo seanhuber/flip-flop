@@ -1,1 +1,1 @@
-:ledger:
+:palm_tree:
