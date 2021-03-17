@@ -1,1 +1,1 @@
-:circus_tent:
+:smiley_cat:
