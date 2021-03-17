@@ -1,1 +1,1 @@
-:tram:
+:shaved_ice:
