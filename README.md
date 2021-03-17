@@ -1,1 +1,1 @@
-:facepunch:
+:articulated_lorry:
