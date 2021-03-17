@@ -1,1 +1,1 @@
-:snowflake:
+:mount_fuji:
