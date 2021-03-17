@@ -1,1 +1,1 @@
-:large_blue_diamond:
+:carousel_horse:
