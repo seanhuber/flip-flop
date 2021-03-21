@@ -1,1 +1,1 @@
-:video_camera:
+:baby_symbol:
