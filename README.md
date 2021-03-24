@@ -1,1 +1,1 @@
-:up:
+:scorpius:
