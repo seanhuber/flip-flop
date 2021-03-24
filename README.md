@@ -1,1 +1,1 @@
-:shirt:
+:japanese_goblin:
