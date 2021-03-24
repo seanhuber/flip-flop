@@ -1,1 +1,1 @@
-:chart:
+:smiling_imp:
