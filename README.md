@@ -1,1 +1,1 @@
-:princess:
+:page_facing_up:
