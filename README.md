@@ -1,1 +1,1 @@
-:new:
+:sunrise_over_mountains:
