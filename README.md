@@ -1,1 +1,1 @@
-:smiling_imp:
+:scream_cat:
