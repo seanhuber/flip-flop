@@ -1,1 +1,1 @@
-:kimono:
+:musical_score:
