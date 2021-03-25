@@ -1,1 +1,1 @@
-:point_left:
+:black_medium_square:
