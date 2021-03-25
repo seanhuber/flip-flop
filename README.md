@@ -1,1 +1,1 @@
-:wink:
+:point_left:
