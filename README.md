@@ -1,1 +1,1 @@
-:black_medium_square:
+:ferris_wheel:
