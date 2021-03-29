@@ -1,1 +1,1 @@
-:mahjong:
+:flower_playing_cards:
