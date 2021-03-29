@@ -1,1 +1,1 @@
-:parking:
+:no_entry_sign:
