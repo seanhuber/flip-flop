@@ -1,1 +1,1 @@
-:ok:
+:green_apple:
