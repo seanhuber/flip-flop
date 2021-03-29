@@ -1,1 +1,1 @@
-:wind_chime:
+:black_square_button:
