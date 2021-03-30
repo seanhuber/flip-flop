@@ -1,1 +1,1 @@
-:sos:
+:inbox_tray:
