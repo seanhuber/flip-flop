@@ -1,1 +1,1 @@
-:traffic_light:
+:heavy_check_mark:
