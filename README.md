@@ -1,1 +1,1 @@
-:pisces:
+:spades:
