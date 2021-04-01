@@ -1,1 +1,1 @@
-:tractor:
+:point_down:
