@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:neutral_face:
