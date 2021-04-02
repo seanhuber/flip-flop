@@ -1,1 +1,1 @@
-:sunrise_over_mountains:
+:postal_horn:
