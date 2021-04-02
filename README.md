@@ -1,1 +1,1 @@
-:purse:
+:sunrise_over_mountains:
