@@ -1,1 +1,1 @@
-:baby_symbol:
+:vertical_traffic_light:
