@@ -1,1 +1,1 @@
-:sparkling_heart:
+:ideograph_advantage:
