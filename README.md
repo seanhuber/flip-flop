@@ -1,1 +1,1 @@
-:two_hearts:
+:new_moon:
