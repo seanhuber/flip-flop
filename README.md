@@ -1,1 +1,1 @@
-:pencil:
+:sagittarius:
