@@ -1,1 +1,1 @@
-:mens:
+:small_red_triangle:
