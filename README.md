@@ -1,1 +1,1 @@
-:sagittarius:
+:sparkling_heart:
