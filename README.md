@@ -1,1 +1,1 @@
-:rabbit:
+:name_badge:
