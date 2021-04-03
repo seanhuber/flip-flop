@@ -1,1 +1,1 @@
-:ghost:
+:confetti_ball:
