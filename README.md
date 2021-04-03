@@ -1,1 +1,1 @@
-:confetti_ball:
+:sun_with_face:
