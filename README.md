@@ -1,1 +1,1 @@
-:notebook:
+:see_no_evil:
