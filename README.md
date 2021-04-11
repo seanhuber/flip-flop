@@ -1,1 +1,1 @@
-:hearts:
+:poultry_leg:
