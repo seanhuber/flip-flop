@@ -1,1 +1,1 @@
-:poultry_leg:
+:open_file_folder:
