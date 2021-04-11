@@ -1,1 +1,1 @@
-:wc:
+:two_hearts:
