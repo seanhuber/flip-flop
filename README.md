@@ -1,1 +1,1 @@
-:earth_americas:
+:small_red_triangle_down:
