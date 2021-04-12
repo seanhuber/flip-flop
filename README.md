@@ -1,1 +1,1 @@
-:bug:
+:electric_plug:
