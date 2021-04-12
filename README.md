@@ -1,1 +1,1 @@
-:star:
+:performing_arts:
