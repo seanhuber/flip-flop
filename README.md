@@ -1,1 +1,1 @@
-:squirrel:
+:sunny:
