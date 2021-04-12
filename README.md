@@ -1,1 +1,1 @@
-:gemini:
+:hourglass_flowing_sand:
