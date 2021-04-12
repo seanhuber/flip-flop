@@ -1,1 +1,1 @@
-:performing_arts:
+:inbox_tray:
