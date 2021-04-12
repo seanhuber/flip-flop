@@ -1,1 +1,1 @@
-:high_heel:
+:confetti_ball:
