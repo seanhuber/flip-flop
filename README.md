@@ -1,1 +1,1 @@
-:restroom:
+:vibration_mode:
