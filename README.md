@@ -1,1 +1,1 @@
-:vibration_mode:
+:closed_lock_with_key:
