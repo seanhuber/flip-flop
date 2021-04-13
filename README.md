@@ -1,1 +1,1 @@
-:mag:
+:vertical_traffic_light:
