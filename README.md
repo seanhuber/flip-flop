@@ -1,1 +1,1 @@
-:barber:
+:stuck_out_tongue:
