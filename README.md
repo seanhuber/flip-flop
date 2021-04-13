@@ -1,1 +1,1 @@
-:circus_tent:
+:negative_squared_cross_mark:
