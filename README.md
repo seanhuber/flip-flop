@@ -1,1 +1,1 @@
-:calendar:
+:partly_sunny:
