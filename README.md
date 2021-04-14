@@ -1,1 +1,1 @@
-:dollar:
+:credit_card:
