@@ -1,1 +1,1 @@
-:mute:
+:black_small_square:
