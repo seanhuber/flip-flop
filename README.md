@@ -1,1 +1,1 @@
-:fries:
+:european_castle:
