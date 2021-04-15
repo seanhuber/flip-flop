@@ -1,1 +1,1 @@
-:triumph:
+:telephone_receiver:
