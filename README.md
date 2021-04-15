@@ -1,1 +1,1 @@
-:arrows_clockwise:
+:paw_prints:
