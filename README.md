@@ -1,1 +1,1 @@
-:chart:
+:heavy_multiplication_x:
