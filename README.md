@@ -1,1 +1,1 @@
-:helicopter:
+:baby_symbol:
