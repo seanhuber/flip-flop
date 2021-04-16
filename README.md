@@ -1,1 +1,1 @@
-:european_castle:
+:red_circle:
