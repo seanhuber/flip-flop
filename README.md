@@ -1,1 +1,1 @@
-:scream:
+:do_not_litter:
