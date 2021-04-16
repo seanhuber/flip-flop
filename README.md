@@ -1,1 +1,1 @@
-:book:
+:mobile_phone_off:
