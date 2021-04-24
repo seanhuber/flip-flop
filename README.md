@@ -1,1 +1,1 @@
-:construction_worker:
+:curly_loop:
