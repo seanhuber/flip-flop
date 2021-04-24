@@ -1,1 +1,1 @@
-:no_good:
+:do_not_litter:
