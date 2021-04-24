@@ -1,1 +1,1 @@
-:straight_ruler:
+:information_desk_person:
