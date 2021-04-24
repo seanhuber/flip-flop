@@ -1,1 +1,1 @@
-:blue_heart:
+:curly_loop:
