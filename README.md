@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:milky_way:
