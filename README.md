@@ -1,1 +1,1 @@
-:paperclip:
+:blue_heart:
