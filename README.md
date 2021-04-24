@@ -1,1 +1,1 @@
-:wind_chime:
+:heavy_minus_sign:
