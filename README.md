@@ -1,1 +1,1 @@
-:briefcase:
+:railway_car:
