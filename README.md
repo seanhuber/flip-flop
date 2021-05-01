@@ -1,1 +1,1 @@
-:railway_car:
+:japanese_goblin:
