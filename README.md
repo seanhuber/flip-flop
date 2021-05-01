@@ -1,1 +1,1 @@
-:crown:
+:poultry_leg:
