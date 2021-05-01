@@ -1,1 +1,1 @@
-:virgo:
+:rice_scene:
