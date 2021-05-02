@@ -1,1 +1,1 @@
-:snail:
+:water_buffalo:
