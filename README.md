@@ -1,1 +1,1 @@
-:no_entry:
+:movie_camera:
