@@ -1,1 +1,1 @@
-:pound:
+:no_entry:
