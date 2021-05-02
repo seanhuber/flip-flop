@@ -1,1 +1,1 @@
-:movie_camera:
+:no_smoking:
