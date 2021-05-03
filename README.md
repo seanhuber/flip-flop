@@ -1,1 +1,1 @@
-:left_right_arrow:
+:arrow_double_down:
