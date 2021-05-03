@@ -1,1 +1,1 @@
-:wheelchair:
+:low_brightness:
