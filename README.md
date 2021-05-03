@@ -1,1 +1,1 @@
-:strawberry:
+:small_red_triangle:
