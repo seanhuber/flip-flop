@@ -1,1 +1,1 @@
-:smile:
+:triangular_ruler:
