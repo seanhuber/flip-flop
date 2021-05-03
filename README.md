@@ -1,1 +1,1 @@
-:european_post_office:
+:man_with_turban:
