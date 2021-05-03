@@ -1,1 +1,1 @@
-:chicken:
+:european_post_office:
