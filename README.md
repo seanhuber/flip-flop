@@ -1,1 +1,1 @@
-:low_brightness:
+:crying_cat_face:
