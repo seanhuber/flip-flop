@@ -1,1 +1,1 @@
-:tropical_fish:
+:do_not_litter:
