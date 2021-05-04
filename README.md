@@ -1,1 +1,1 @@
-:hospital:
+:minidisc:
