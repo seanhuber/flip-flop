@@ -1,1 +1,1 @@
-:mans_shoe:
+:electric_plug:
