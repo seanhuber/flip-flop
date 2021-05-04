@@ -1,1 +1,1 @@
-:cn:
+:hospital:
