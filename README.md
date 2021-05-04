@@ -1,1 +1,1 @@
-:yum:
+:mans_shoe:
