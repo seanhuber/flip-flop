@@ -1,1 +1,1 @@
-:electric_plug:
+:man_with_gua_pi_mao:
