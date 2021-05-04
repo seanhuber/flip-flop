@@ -1,1 +1,1 @@
-:minidisc:
+:arrow_up_small:
