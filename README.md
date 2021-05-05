@@ -1,1 +1,1 @@
-:beer:
+:izakaya_lantern:
