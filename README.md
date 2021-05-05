@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:alarm_clock:
