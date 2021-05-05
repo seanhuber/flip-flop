@@ -1,1 +1,1 @@
-:grey_exclamation:
+:outbox_tray:
