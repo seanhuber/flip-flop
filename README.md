@@ -1,1 +1,1 @@
-:rage3:
+:heavy_minus_sign:
