@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:stuck_out_tongue_winking_eye:
