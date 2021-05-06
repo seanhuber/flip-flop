@@ -1,1 +1,1 @@
-:stuck_out_tongue_winking_eye:
+:waxing_crescent_moon:
