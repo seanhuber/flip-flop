@@ -1,1 +1,1 @@
-:arrow_heading_up:
+:rotating_light:
