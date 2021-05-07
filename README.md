@@ -1,1 +1,1 @@
-:blossom:
+:left_right_arrow:
