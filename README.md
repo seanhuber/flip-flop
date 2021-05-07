@@ -1,1 +1,1 @@
-:cool:
+:no_pedestrians:
