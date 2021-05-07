@@ -1,1 +1,1 @@
-:no_pedestrians:
+:left_luggage:
