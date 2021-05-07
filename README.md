@@ -1,1 +1,1 @@
-:left_luggage:
+:black_square_button:
