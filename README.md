@@ -1,1 +1,1 @@
-:sos:
+:kissing_smiling_eyes:
