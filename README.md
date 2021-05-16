@@ -1,1 +1,1 @@
-:cinema:
+:watch:
