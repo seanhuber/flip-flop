@@ -1,1 +1,1 @@
-:zzz:
+:repeat_one:
