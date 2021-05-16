@@ -1,1 +1,1 @@
-:earth_africa:
+:musical_keyboard:
