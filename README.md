@@ -1,1 +1,1 @@
-:sleeping:
+:ok_hand:
