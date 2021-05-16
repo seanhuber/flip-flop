@@ -1,1 +1,1 @@
-:hamster:
+:black_circle:
