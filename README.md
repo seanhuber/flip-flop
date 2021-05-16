@@ -1,1 +1,1 @@
-:black_circle:
+:earth_africa:
