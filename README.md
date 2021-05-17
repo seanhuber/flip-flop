@@ -1,1 +1,1 @@
-:bamboo:
+:helicopter:
