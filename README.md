@@ -1,1 +1,1 @@
-:trumpet:
+:white_check_mark:
