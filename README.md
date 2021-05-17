@@ -1,1 +1,1 @@
-:pizza:
+:mail:
