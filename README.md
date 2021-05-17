@@ -1,1 +1,1 @@
-:tea:
+:chicken:
