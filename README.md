@@ -1,1 +1,1 @@
-:virgo:
+:heavy_multiplication_x:
