@@ -1,1 +1,1 @@
-:herb:
+:waxing_crescent_moon:
