@@ -1,1 +1,1 @@
-:baby_chick:
+:meat_on_bone:
