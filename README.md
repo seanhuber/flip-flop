@@ -1,1 +1,1 @@
-:pig:
+:point_up:
