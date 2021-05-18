@@ -1,1 +1,1 @@
-:whale:
+:white_flower:
