@@ -1,1 +1,1 @@
-:flushed:
+:japanese_ogre:
