@@ -1,1 +1,1 @@
-:purse:
+:smile_cat:
