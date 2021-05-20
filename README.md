@@ -1,1 +1,1 @@
-:bangbang:
+:inbox_tray:
