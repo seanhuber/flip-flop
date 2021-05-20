@@ -1,1 +1,1 @@
-:inbox_tray:
+:panda_face:
