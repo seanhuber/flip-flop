@@ -1,1 +1,1 @@
-:pound:
+:twisted_rightwards_arrows:
