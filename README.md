@@ -1,1 +1,1 @@
-:whale2:
+:tokyo_tower:
