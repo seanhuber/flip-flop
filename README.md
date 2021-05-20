@@ -1,1 +1,1 @@
-:umbrella:
+:no_mouth:
