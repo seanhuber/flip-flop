@@ -1,1 +1,1 @@
-:monorail:
+:sweat_smile:
