@@ -1,1 +1,1 @@
-:leopard:
+:postal_horn:
