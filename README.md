@@ -1,1 +1,1 @@
-:briefcase:
+:trophy:
