@@ -1,1 +1,1 @@
-:curly_loop:
+:black_small_square:
