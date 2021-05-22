@@ -1,1 +1,1 @@
-:blue_book:
+:waning_crescent_moon:
