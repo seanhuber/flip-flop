@@ -1,1 +1,1 @@
-:grey_exclamation:
+:small_blue_diamond:
