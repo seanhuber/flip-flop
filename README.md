@@ -1,1 +1,1 @@
-:mag:
+:taurus:
