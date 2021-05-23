@@ -1,1 +1,1 @@
-:capital_abcd:
+:paw_prints:
