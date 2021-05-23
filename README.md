@@ -1,1 +1,1 @@
-:file_folder:
+:signal_strength:
