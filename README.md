@@ -1,1 +1,1 @@
-:goberserk:
+:slot_machine:
