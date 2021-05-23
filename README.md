@@ -1,1 +1,1 @@
-:slot_machine:
+:file_folder:
