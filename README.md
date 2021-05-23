@@ -1,1 +1,1 @@
-:fried_shrimp:
+:shaved_ice:
