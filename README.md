@@ -1,1 +1,1 @@
-:paperclip:
+:wavy_dash:
