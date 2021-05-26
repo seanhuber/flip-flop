@@ -1,1 +1,1 @@
-:guitar:
+:triangular_ruler:
