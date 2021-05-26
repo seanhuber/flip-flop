@@ -1,1 +1,1 @@
-:ng:
+:paperclip:
