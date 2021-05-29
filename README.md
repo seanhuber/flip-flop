@@ -1,1 +1,1 @@
-:jeans:
+:credit_card:
