@@ -1,1 +1,1 @@
-:rage:
+:white_circle:
