@@ -1,1 +1,1 @@
-:beetle:
+:ok_woman:
