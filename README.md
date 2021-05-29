@@ -1,1 +1,1 @@
-:mens:
+:kimono:
