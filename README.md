@@ -1,1 +1,1 @@
-:iphone:
+:movie_camera:
