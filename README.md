@@ -1,1 +1,1 @@
-:credit_card:
+:open_hands:
