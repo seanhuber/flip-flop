@@ -1,1 +1,1 @@
-:closed_umbrella:
+:arrow_down_small:
