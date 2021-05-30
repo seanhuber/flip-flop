@@ -1,1 +1,1 @@
-:flags:
+:waxing_gibbous_moon:
