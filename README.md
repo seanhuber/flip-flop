@@ -1,1 +1,1 @@
-:ghost:
+:bookmark_tabs:
