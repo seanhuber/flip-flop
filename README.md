@@ -1,1 +1,1 @@
-:collision:
+:vertical_traffic_light:
