@@ -1,1 +1,1 @@
-:bikini:
+:two_women_holding_hands:
