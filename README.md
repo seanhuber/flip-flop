@@ -1,1 +1,1 @@
-:pencil:
+:red_circle:
