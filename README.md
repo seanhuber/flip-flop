@@ -1,1 +1,1 @@
-:bank:
+:japan:
