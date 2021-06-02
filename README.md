@@ -1,1 +1,1 @@
-:dragon:
+:no_good:
