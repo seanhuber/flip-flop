@@ -1,1 +1,1 @@
-:six:
+:floppy_disk:
