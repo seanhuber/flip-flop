@@ -1,1 +1,1 @@
-:smile_cat:
+:small_red_triangle:
