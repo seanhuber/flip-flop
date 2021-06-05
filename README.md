@@ -1,1 +1,1 @@
-:star:
+:ice_cream:
