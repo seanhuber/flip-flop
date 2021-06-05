@@ -1,1 +1,1 @@
-:ice_cream:
+:heavy_dollar_sign:
