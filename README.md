@@ -1,1 +1,1 @@
-:railway_car:
+:smile_cat:
