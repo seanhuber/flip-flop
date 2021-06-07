@@ -1,1 +1,1 @@
-:tanabata_tree:
+:potable_water:
