@@ -1,1 +1,1 @@
-:punch:
+:triangular_ruler:
