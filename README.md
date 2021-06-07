@@ -1,1 +1,1 @@
-:icecream:
+:steam_locomotive:
