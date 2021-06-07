@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:two_women_holding_hands:
