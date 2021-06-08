@@ -1,1 +1,1 @@
-:pisces:
+:curry:
