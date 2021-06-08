@@ -1,1 +1,1 @@
-:simple_smile:
+:minibus:
