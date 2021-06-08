@@ -1,1 +1,1 @@
-:negative_squared_cross_mark:
+:simple_smile:
