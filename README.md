@@ -1,1 +1,1 @@
-:facepunch:
+:white_small_square:
