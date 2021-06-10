@@ -1,1 +1,1 @@
-:white_small_square:
+:confetti_ball:
