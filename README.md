@@ -1,1 +1,1 @@
-:man_with_turban:
+:heavy_plus_sign:
