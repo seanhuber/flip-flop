@@ -1,1 +1,1 @@
-:smoking:
+:cow2:
