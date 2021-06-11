@@ -1,1 +1,1 @@
-:sweat_drops:
+:panda_face:
