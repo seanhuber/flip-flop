@@ -1,1 +1,1 @@
-:clock6:
+:open_hands:
