@@ -1,1 +1,1 @@
-:sun_with_face:
+:eight_pointed_black_star:
