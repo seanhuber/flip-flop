@@ -1,1 +1,1 @@
-:helicopter:
+:blue_book:
