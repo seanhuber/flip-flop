@@ -1,1 +1,1 @@
-:station:
+:sweat_drops:
