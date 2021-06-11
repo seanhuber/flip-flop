@@ -1,1 +1,1 @@
-:panda_face:
+:no_bicycles:
