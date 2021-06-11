@@ -1,1 +1,1 @@
-:open_hands:
+:sun_with_face:
