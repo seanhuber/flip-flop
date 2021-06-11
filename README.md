@@ -1,1 +1,1 @@
-:no_bicycles:
+:credit_card:
