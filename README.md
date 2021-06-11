@@ -1,1 +1,1 @@
-:shaved_ice:
+:blue_book:
