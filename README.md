@@ -1,1 +1,1 @@
-:interrobang:
+:ribbon:
