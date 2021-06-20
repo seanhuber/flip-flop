@@ -1,1 +1,1 @@
-:trolleybus:
+:heart_decoration:
