@@ -1,1 +1,1 @@
-:closed_umbrella:
+:stars:
