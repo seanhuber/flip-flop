@@ -1,1 +1,1 @@
-:santa:
+:arrow_upper_right:
