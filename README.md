@@ -1,1 +1,1 @@
-:snail:
+:sunrise_over_mountains:
