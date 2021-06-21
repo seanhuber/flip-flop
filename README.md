@@ -1,1 +1,1 @@
-:arrow_down_small:
+:ear_of_rice:
