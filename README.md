@@ -1,1 +1,1 @@
-:sunrise_over_mountains:
+:page_with_curl:
