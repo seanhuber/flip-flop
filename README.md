@@ -1,1 +1,1 @@
-:ship:
+:izakaya_lantern:
