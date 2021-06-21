@@ -1,1 +1,1 @@
-:man:
+:point_up:
