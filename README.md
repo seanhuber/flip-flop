@@ -1,1 +1,1 @@
-:christmas_tree:
+:snail:
