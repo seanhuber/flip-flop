@@ -1,1 +1,1 @@
-:goberserk:
+:moyai:
