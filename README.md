@@ -1,1 +1,1 @@
-:pager:
+:small_blue_diamond:
