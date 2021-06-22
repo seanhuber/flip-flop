@@ -1,1 +1,1 @@
-:milky_way:
+:rice_ball:
