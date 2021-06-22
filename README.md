@@ -1,1 +1,1 @@
-:volcano:
+:heavy_minus_sign:
