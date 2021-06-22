@@ -1,1 +1,1 @@
-:grimacing:
+:man_with_turban:
