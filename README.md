@@ -1,1 +1,1 @@
-:moyai:
+:point_up_2:
