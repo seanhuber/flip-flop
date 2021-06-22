@@ -1,1 +1,1 @@
-:sparkle:
+:potable_water:
