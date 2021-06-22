@@ -1,1 +1,1 @@
-:ticket:
+:arrows_counterclockwise:
