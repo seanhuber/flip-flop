@@ -1,1 +1,1 @@
-:laughing:
+:light_rail:
