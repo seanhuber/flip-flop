@@ -1,1 +1,1 @@
-:o2:
+:name_badge:
