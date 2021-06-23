@@ -1,1 +1,1 @@
-:left_right_arrow:
+:information_desk_person:
