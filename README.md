@@ -1,1 +1,1 @@
-:tennis:
+:shaved_ice:
