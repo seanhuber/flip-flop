@@ -1,1 +1,1 @@
-:cloud:
+:telephone_receiver:
