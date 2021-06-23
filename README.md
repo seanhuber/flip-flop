@@ -1,1 +1,1 @@
-:blush:
+:rotating_light:
