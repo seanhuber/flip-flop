@@ -1,1 +1,1 @@
-:horse_racing:
+:joy_cat:
