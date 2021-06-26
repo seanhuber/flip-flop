@@ -1,1 +1,1 @@
-:trollface:
+:mailbox_closed:
