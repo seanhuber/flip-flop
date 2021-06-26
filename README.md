@@ -1,1 +1,1 @@
-:lipstick:
+:arrow_down:
