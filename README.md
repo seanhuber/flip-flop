@@ -1,1 +1,1 @@
-:chicken:
+:low_brightness:
