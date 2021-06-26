@@ -1,1 +1,1 @@
-:low_brightness:
+:department_store:
