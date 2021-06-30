@@ -1,1 +1,1 @@
-:libra:
+:busts_in_silhouette:
