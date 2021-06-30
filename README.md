@@ -1,1 +1,1 @@
-:closed_book:
+:arrow_double_down:
