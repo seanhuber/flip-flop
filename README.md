@@ -1,1 +1,1 @@
-:eight:
+:closed_book:
