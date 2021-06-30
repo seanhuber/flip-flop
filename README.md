@@ -1,1 +1,1 @@
-:facepunch:
+:signal_strength:
