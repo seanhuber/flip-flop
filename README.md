@@ -1,1 +1,1 @@
-:mountain_railway:
+:person_with_blond_hair:
