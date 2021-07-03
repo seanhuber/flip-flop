@@ -1,1 +1,1 @@
-:candy:
+:rice_ball:
