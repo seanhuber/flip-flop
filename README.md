@@ -1,1 +1,1 @@
-:rice_ball:
+:confetti_ball:
