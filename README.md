@@ -1,1 +1,1 @@
-:euro:
+:musical_score:
