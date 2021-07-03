@@ -1,1 +1,1 @@
-:gift:
+:bar_chart:
