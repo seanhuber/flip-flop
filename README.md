@@ -1,1 +1,1 @@
-:rooster:
+:candy:
