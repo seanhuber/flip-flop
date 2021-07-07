@@ -1,1 +1,1 @@
-:dolphin:
+:statue_of_liberty:
