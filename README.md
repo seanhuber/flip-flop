@@ -1,1 +1,1 @@
-:lollipop:
+:heavy_plus_sign:
