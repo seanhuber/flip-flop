@@ -1,1 +1,1 @@
-:fried_shrimp:
+:oncoming_police_car:
