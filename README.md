@@ -1,1 +1,1 @@
-:steam_locomotive:
+:nut_and_bolt:
