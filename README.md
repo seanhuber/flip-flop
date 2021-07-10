@@ -1,1 +1,1 @@
-:heart_decoration:
+:white_flower:
