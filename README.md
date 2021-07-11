@@ -1,1 +1,1 @@
-:japanese_castle:
+:jack_o_lantern:
