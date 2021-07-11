@@ -1,1 +1,1 @@
-:loop:
+:rice_scene:
