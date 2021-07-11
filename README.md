@@ -1,1 +1,1 @@
-:shoe:
+:hatched_chick:
