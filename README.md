@@ -1,1 +1,1 @@
-:rice_scene:
+:person_with_pouting_face:
