@@ -1,1 +1,1 @@
-:clock3:
+:japanese_castle:
