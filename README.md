@@ -1,1 +1,1 @@
-:high_heel:
+:bust_in_silhouette:
