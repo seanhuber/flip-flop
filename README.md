@@ -1,1 +1,1 @@
-:facepunch:
+:panda_face:
