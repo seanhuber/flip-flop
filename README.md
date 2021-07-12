@@ -1,1 +1,1 @@
-:high_brightness:
+:palm_tree:
