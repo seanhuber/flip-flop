@@ -1,1 +1,1 @@
-:moyai:
+:vibration_mode:
