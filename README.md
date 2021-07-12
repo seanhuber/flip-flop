@@ -1,1 +1,1 @@
-:sunglasses:
+:high_brightness:
