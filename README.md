@@ -1,1 +1,1 @@
-:clubs:
+:moyai:
