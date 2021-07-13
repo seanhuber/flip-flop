@@ -1,1 +1,1 @@
-:japanese_castle:
+:u6708:
