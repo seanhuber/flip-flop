@@ -1,1 +1,1 @@
-:school:
+:arrow_down_small:
