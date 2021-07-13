@@ -1,1 +1,1 @@
-:sandal:
+:high_brightness:
