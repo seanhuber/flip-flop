@@ -1,1 +1,1 @@
-:fire:
+:crescent_moon:
