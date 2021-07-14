@@ -1,1 +1,1 @@
-:cry:
+:chocolate_bar:
