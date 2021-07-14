@@ -1,1 +1,1 @@
-:busts_in_silhouette:
+:thought_balloon:
