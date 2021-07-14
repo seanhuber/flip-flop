@@ -1,1 +1,1 @@
-:triumph:
+:womans_clothes:
