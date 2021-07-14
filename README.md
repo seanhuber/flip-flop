@@ -1,1 +1,1 @@
-:birthday:
+:busts_in_silhouette:
