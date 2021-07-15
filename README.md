@@ -1,1 +1,1 @@
-:mortar_board:
+:arrow_down:
