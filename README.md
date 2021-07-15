@@ -1,1 +1,1 @@
-:princess:
+:high_brightness:
