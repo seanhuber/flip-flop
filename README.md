@@ -1,1 +1,1 @@
-:cop:
+:hatching_chick:
