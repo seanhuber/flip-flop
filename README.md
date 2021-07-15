@@ -1,1 +1,1 @@
-:arrow_backward:
+:white_large_square:
