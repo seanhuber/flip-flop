@@ -1,1 +1,1 @@
-:clock3:
+:mortar_board:
