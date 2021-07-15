@@ -1,1 +1,1 @@
-:horse:
+:checkered_flag:
