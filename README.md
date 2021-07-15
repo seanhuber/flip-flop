@@ -1,1 +1,1 @@
-:high_brightness:
+:dragon_face:
