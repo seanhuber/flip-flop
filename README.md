@@ -1,1 +1,1 @@
-:warning:
+:ox:
