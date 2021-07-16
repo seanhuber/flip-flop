@@ -1,1 +1,1 @@
-:school_satchel:
+:twisted_rightwards_arrows:
