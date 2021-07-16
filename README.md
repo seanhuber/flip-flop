@@ -1,1 +1,1 @@
-:bulb:
+:japanese_goblin:
