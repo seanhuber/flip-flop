@@ -1,1 +1,1 @@
-:capricorn:
+:moneybag:
