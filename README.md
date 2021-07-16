@@ -1,1 +1,1 @@
-:moneybag:
+:flower_playing_cards:
