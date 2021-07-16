@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:ear_of_rice:
