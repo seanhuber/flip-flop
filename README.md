@@ -1,1 +1,1 @@
-:ox:
+:vertical_traffic_light:
