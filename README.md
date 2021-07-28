@@ -1,1 +1,1 @@
-:passport_control:
+:open_hands:
