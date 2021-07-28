@@ -1,1 +1,1 @@
-:gift:
+:bust_in_silhouette:
