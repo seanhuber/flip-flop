@@ -1,1 +1,1 @@
-:sparkle:
+:white_medium_small_square:
