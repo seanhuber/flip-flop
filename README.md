@@ -1,1 +1,1 @@
-:game_die:
+:closed_lock_with_key:
