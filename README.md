@@ -1,1 +1,1 @@
-:pill:
+:checkered_flag:
