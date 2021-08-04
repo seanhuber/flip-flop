@@ -1,1 +1,1 @@
-:speedboat:
+:raised_hands:
