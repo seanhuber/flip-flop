@@ -1,1 +1,1 @@
-:file_folder:
+:cow2:
