@@ -1,1 +1,1 @@
-:open_hands:
+:baby_symbol:
