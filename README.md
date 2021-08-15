@@ -1,1 +1,1 @@
-:princess:
+:arrow_upper_left:
