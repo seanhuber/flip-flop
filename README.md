@@ -1,1 +1,1 @@
-:ship:
+:mortar_board:
