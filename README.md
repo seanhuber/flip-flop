@@ -1,1 +1,1 @@
-:leopard:
+:monkey_face:
