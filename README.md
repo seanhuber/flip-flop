@@ -1,1 +1,1 @@
-:loudspeaker:
+:leopard:
