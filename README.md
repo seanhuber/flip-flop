@@ -1,1 +1,1 @@
-:cloud:
+:currency_exchange:
