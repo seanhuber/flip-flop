@@ -1,1 +1,1 @@
-:city_sunrise:
+:large_blue_circle:
