@@ -1,1 +1,1 @@
-:older_man:
+:hatched_chick:
