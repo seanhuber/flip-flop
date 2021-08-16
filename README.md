@@ -1,1 +1,1 @@
-:tram:
+:laughing:
