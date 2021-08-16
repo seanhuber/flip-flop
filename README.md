@@ -1,1 +1,1 @@
-:heavy_plus_sign:
+:inbox_tray:
