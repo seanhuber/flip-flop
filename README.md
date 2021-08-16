@@ -1,1 +1,1 @@
-:laughing:
+:mountain_cableway:
