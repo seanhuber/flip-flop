@@ -1,1 +1,1 @@
-:hamster:
+:raising_hand:
