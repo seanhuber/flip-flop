@@ -1,1 +1,1 @@
-:melon:
+:mountain_bicyclist:
