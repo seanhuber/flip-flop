@@ -1,1 +1,1 @@
-:joy_cat:
+:aerial_tramway:
