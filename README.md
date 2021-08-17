@@ -1,1 +1,1 @@
-:aerial_tramway:
+:cold_sweat:
