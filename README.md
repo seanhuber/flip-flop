@@ -1,1 +1,1 @@
-:droplet:
+:ghost:
