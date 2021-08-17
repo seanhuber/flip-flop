@@ -1,1 +1,1 @@
-:cold_sweat:
+:speech_balloon:
