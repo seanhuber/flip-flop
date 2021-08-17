@@ -1,1 +1,1 @@
-:hotsprings:
+:joy_cat:
