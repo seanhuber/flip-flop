@@ -1,1 +1,1 @@
-:ghost:
+:white_large_square:
