@@ -1,1 +1,1 @@
-:anchor:
+:six_pointed_star:
