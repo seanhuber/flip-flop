@@ -1,1 +1,1 @@
-:racehorse:
+:speech_balloon:
