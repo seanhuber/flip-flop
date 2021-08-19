@@ -1,1 +1,1 @@
-:melon:
+:fast_forward:
