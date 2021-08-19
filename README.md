@@ -1,1 +1,1 @@
-:phone:
+:ideograph_advantage:
