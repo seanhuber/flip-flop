@@ -1,1 +1,1 @@
-:vibration_mode:
+:rice_cracker:
