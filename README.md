@@ -1,1 +1,1 @@
-:minibus:
+:bust_in_silhouette:
