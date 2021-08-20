@@ -1,1 +1,1 @@
-:page_facing_up:
+:arrow_heading_down:
