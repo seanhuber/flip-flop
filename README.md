@@ -1,1 +1,1 @@
-:twisted_rightwards_arrows:
+:vibration_mode:
