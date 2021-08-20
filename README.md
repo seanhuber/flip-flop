@@ -1,1 +1,1 @@
-:baby_chick:
+:rotating_light:
