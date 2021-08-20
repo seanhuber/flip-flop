@@ -1,1 +1,1 @@
-:rice_cracker:
+:wind_chime:
