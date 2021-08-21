@@ -1,1 +1,1 @@
-:mahjong:
+:no_bell:
