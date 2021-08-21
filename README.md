@@ -1,1 +1,1 @@
-:european_castle:
+:currency_exchange:
