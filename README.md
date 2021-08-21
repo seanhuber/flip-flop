@@ -1,1 +1,1 @@
-:virgo:
+:no_entry:
