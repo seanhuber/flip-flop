@@ -1,1 +1,1 @@
-:eight:
+:mountain_cableway:
