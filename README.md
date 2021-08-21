@@ -1,1 +1,1 @@
-:telephone_receiver:
+:waxing_crescent_moon:
