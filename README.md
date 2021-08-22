@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:roller_coaster:
