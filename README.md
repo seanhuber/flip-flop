@@ -1,1 +1,1 @@
-:ox:
+:bust_in_silhouette:
