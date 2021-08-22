@@ -1,1 +1,1 @@
-:haircut:
+:white_square_button:
