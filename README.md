@@ -1,1 +1,1 @@
-:snowboarder:
+:point_right:
