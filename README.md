@@ -1,1 +1,1 @@
-:waning_gibbous_moon:
+:six_pointed_star:
