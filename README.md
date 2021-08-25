@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:two_women_holding_hands:
