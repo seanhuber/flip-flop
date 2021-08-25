@@ -1,1 +1,1 @@
-:chicken:
+:waxing_gibbous_moon:
