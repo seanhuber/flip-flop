@@ -1,1 +1,1 @@
-:dress:
+:blue_book:
