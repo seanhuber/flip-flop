@@ -1,1 +1,1 @@
-:email:
+:accept:
