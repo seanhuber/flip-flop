@@ -1,1 +1,1 @@
-:mailbox_with_no_mail:
+:bridge_at_night:
