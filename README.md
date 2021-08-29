@@ -1,1 +1,1 @@
-:speaker:
+:white_circle:
