@@ -1,1 +1,1 @@
-:sweat:
+:money_with_wings:
