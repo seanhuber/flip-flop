@@ -1,1 +1,1 @@
-:clock6:
+:waning_gibbous_moon:
