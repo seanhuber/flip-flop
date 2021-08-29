@@ -1,1 +1,1 @@
-:white_circle:
+:mailbox_with_no_mail:
