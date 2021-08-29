@@ -1,1 +1,1 @@
-:cow:
+:white_small_square:
