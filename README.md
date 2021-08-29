@@ -1,1 +1,1 @@
-:cold_sweat:
+:white_medium_square:
