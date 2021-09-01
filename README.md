@@ -1,1 +1,1 @@
-:paperclip:
+:four_leaf_clover:
