@@ -1,1 +1,1 @@
-:shipit:
+:heavy_check_mark:
