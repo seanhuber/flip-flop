@@ -1,1 +1,1 @@
-:red_circle:
+:heart_decoration:
