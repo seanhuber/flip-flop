@@ -1,1 +1,1 @@
-:mega:
+:inbox_tray:
