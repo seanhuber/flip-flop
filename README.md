@@ -1,1 +1,1 @@
-:fish:
+:heavy_multiplication_x:
