@@ -1,1 +1,1 @@
-:warning:
+:red_circle:
