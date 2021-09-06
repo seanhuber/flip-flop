@@ -1,1 +1,1 @@
-:steam_locomotive:
+:closed_lock_with_key:
