@@ -1,1 +1,1 @@
-:soccer:
+:pray:
