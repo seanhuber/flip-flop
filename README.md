@@ -1,1 +1,1 @@
-:no_bell:
+:orange_book:
