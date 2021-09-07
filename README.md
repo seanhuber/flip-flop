@@ -1,1 +1,1 @@
-:light_rail:
+:bride_with_veil:
