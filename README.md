@@ -1,1 +1,1 @@
-:pager:
+:sparkler:
