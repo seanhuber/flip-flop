@@ -1,1 +1,1 @@
-:symbols:
+:jack_o_lantern:
