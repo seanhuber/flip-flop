@@ -1,1 +1,1 @@
-:ramen:
+:first_quarter_moon:
