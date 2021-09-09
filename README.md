@@ -1,1 +1,1 @@
-:trumpet:
+:large_orange_diamond:
