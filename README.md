@@ -1,1 +1,1 @@
-:ice_cream:
+:large_orange_diamond:
