@@ -1,1 +1,1 @@
-:hourglass:
+:ice_cream:
