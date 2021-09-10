@@ -1,1 +1,1 @@
-:speedboat:
+:twisted_rightwards_arrows:
