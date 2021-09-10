@@ -1,1 +1,1 @@
-:flags:
+:fast_forward:
