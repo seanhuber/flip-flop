@@ -1,1 +1,1 @@
-:twisted_rightwards_arrows:
+:last_quarter_moon_with_face:
