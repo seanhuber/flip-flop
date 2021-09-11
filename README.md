@@ -1,1 +1,1 @@
-:art:
+:waning_crescent_moon:
