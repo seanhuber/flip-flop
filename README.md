@@ -1,1 +1,1 @@
-:u7121:
+:heavy_dollar_sign:
