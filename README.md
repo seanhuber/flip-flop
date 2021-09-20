@@ -1,1 +1,1 @@
-:low_brightness:
+:bride_with_veil:
