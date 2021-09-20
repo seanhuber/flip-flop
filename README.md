@@ -1,1 +1,1 @@
-:corn:
+:waning_gibbous_moon:
