@@ -1,1 +1,1 @@
-:crown:
+:heavy_exclamation_mark:
