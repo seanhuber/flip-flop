@@ -1,1 +1,1 @@
-:wavy_dash:
+:white_large_square:
