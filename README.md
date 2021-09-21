@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:heavy_multiplication_x:
