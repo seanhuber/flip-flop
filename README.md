@@ -1,1 +1,1 @@
-:closed_umbrella:
+:outbox_tray:
