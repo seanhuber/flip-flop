@@ -1,1 +1,1 @@
-:guardsman:
+:currency_exchange:
