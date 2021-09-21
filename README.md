@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:heavy_minus_sign:
