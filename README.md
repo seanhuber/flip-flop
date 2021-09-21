@@ -1,1 +1,1 @@
-:aquarius:
+:point_down:
