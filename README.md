@@ -1,1 +1,1 @@
-:spaghetti:
+:tired_face:
