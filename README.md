@@ -1,1 +1,1 @@
-:libra:
+:white_medium_square:
