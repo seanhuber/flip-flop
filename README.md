@@ -1,1 +1,1 @@
-:pray:
+:speak_no_evil:
