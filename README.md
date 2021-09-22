@@ -1,1 +1,1 @@
-:no_bicycles:
+:black_small_square:
