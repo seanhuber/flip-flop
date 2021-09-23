@@ -1,1 +1,1 @@
-:princess:
+:couple:
