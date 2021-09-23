@@ -1,1 +1,1 @@
-:cat2:
+:triangular_flag_on_post:
