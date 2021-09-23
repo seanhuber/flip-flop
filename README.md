@@ -1,1 +1,1 @@
-:triangular_flag_on_post:
+:arrow_heading_up:
