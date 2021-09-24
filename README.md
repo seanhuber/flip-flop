@@ -1,1 +1,1 @@
-:satisfied:
+:mortar_board:
