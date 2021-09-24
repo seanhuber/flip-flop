@@ -1,1 +1,1 @@
-:warning:
+:high_brightness:
