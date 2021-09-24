@@ -1,1 +1,1 @@
-:ticket:
+:paw_prints:
