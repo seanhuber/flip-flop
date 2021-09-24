@@ -1,1 +1,1 @@
-:mega:
+:mailbox_with_mail:
