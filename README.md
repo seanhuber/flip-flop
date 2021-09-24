@@ -1,1 +1,1 @@
-:nut_and_bolt:
+:man_with_turban:
