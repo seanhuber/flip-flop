@@ -1,1 +1,1 @@
-:mans_shoe:
+:nut_and_bolt:
