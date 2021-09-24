@@ -1,1 +1,1 @@
-:trollface:
+:chocolate_bar:
