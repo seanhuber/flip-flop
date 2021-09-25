@@ -1,1 +1,1 @@
-:fu:
+:statue_of_liberty:
