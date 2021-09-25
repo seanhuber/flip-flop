@@ -1,1 +1,1 @@
-:pensive:
+:articulated_lorry:
