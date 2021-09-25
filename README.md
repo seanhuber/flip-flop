@@ -1,1 +1,1 @@
-:fist:
+:construction_worker:
