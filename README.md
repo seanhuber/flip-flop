@@ -1,1 +1,1 @@
-:hammer:
+:last_quarter_moon:
