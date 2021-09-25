@@ -1,1 +1,1 @@
-:christmas_tree:
+:information_desk_person:
