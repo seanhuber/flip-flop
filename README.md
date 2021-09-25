@@ -1,1 +1,1 @@
-:fountain:
+:monkey_face:
