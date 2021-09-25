@@ -1,1 +1,1 @@
-:corn:
+:new_moon:
