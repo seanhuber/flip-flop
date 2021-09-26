@@ -1,1 +1,1 @@
-:clipboard:
+:no_smoking:
