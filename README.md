@@ -1,1 +1,1 @@
-:seat:
+:bookmark_tabs:
