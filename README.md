@@ -1,1 +1,1 @@
-:point_up:
+:white_medium_square:
