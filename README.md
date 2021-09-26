@@ -1,1 +1,1 @@
-:no_smoking:
+:scroll:
