@@ -1,1 +1,1 @@
-:bell:
+:sunglasses:
