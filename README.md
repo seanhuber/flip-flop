@@ -1,1 +1,1 @@
-:top:
+:no_smoking:
