@@ -1,1 +1,1 @@
-:ru:
+:wind_chime:
