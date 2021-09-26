@@ -1,1 +1,1 @@
-:scroll:
+:point_up:
