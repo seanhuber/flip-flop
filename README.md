@@ -1,1 +1,1 @@
-:honey_pot:
+:maple_leaf:
