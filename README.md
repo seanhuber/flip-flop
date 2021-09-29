@@ -1,1 +1,1 @@
-:moyai:
+:mount_fuji:
