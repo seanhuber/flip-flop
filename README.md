@@ -1,1 +1,1 @@
-:toilet:
+:moyai:
