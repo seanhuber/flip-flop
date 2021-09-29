@@ -1,1 +1,1 @@
-:fireworks:
+:light_rail:
