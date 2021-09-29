@@ -1,1 +1,1 @@
-:pouting_cat:
+:smile_cat:
