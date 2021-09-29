@@ -1,1 +1,1 @@
-:smiling_imp:
+:part_alternation_mark:
