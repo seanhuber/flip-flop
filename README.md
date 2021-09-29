@@ -1,1 +1,1 @@
-:no_smoking:
+:panda_face:
