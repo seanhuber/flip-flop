@@ -1,1 +1,1 @@
-:ballot_box_with_check:
+:sun_with_face:
