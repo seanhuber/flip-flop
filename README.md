@@ -1,1 +1,1 @@
-:smile_cat:
+:large_blue_diamond:
