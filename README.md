@@ -1,1 +1,1 @@
-:cyclone:
+:pouting_cat:
