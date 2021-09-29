@@ -1,1 +1,1 @@
-:monkey_face:
+:bullettrain_side:
