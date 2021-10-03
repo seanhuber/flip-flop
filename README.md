@@ -1,1 +1,1 @@
-:tiger:
+:wind_chime:
