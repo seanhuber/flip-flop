@@ -1,1 +1,1 @@
-:scissors:
+:school_satchel:
