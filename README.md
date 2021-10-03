@@ -1,1 +1,1 @@
-:school_satchel:
+:no_bell:
