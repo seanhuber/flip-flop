@@ -1,1 +1,1 @@
-:raised_hand:
+:rice_cracker:
