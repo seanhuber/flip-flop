@@ -1,1 +1,1 @@
-:feelsgood:
+:waxing_gibbous_moon:
