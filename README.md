@@ -1,1 +1,1 @@
-:monorail:
+:raised_hand:
