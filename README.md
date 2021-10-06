@@ -1,1 +1,1 @@
-:man:
+:arrow_backward:
