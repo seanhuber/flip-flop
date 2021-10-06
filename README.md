@@ -1,1 +1,1 @@
-:envelope:
+:mag_right:
