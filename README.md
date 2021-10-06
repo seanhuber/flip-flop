@@ -1,1 +1,1 @@
-:gift:
+:part_alternation_mark:
