@@ -1,1 +1,1 @@
-:recycle:
+:arrows_clockwise:
