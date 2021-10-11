@@ -1,1 +1,1 @@
-:tulip:
+:low_brightness:
