@@ -1,1 +1,1 @@
-:clock830:
+:high_brightness:
