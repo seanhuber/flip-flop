@@ -1,1 +1,1 @@
-:necktie:
+:credit_card:
