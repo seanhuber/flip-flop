@@ -1,1 +1,1 @@
-:clock6:
+:low_brightness:
