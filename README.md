@@ -1,1 +1,1 @@
-:smirk:
+:department_store:
