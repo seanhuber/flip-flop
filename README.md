@@ -1,1 +1,1 @@
-:egg:
+:raising_hand:
