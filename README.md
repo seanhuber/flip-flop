@@ -1,1 +1,1 @@
-:snowman:
+:tired_face:
