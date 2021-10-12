@@ -1,1 +1,1 @@
-:mens:
+:bowtie:
