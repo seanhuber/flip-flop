@@ -1,1 +1,1 @@
-:poultry_leg:
+:tanabata_tree:
