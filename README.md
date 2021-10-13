@@ -1,1 +1,1 @@
-:point_down:
+:ear_of_rice:
