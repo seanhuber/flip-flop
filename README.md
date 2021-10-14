@@ -1,1 +1,1 @@
-:honey_pot:
+:bust_in_silhouette:
