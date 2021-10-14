@@ -1,1 +1,1 @@
-:volcano:
+:musical_note:
