@@ -1,1 +1,1 @@
-:leopard:
+:mobile_phone_off:
