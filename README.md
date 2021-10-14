@@ -1,1 +1,1 @@
-:musical_note:
+:speak_no_evil:
