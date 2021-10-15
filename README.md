@@ -1,1 +1,1 @@
-:moyai:
+:potable_water:
