@@ -1,1 +1,1 @@
-:capital_abcd:
+:wine_glass:
