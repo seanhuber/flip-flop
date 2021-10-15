@@ -1,1 +1,1 @@
-:boy:
+:rice_cracker:
