@@ -1,1 +1,1 @@
-:blue_heart:
+:school_satchel:
