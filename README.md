@@ -1,1 +1,1 @@
-:hand:
+:capital_abcd:
