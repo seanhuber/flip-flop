@@ -1,1 +1,1 @@
-:bangbang:
+:mountain_railway:
