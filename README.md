@@ -1,1 +1,1 @@
-:bikini:
+:cold_sweat:
