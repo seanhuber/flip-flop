@@ -1,1 +1,1 @@
-:8ball:
+:microscope:
