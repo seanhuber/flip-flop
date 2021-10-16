@@ -1,1 +1,1 @@
-:facepunch:
+:izakaya_lantern:
