@@ -1,1 +1,1 @@
-:skull:
+:page_facing_up:
