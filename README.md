@@ -1,1 +1,1 @@
-:moneybag:
+:heavy_multiplication_x:
