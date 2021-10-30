@@ -1,1 +1,1 @@
-:hamster:
+:fire_engine:
