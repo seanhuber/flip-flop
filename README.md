@@ -1,1 +1,1 @@
-:fire_engine:
+:white_medium_small_square:
