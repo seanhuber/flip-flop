@@ -1,1 +1,1 @@
-:pouch:
+:potable_water:
