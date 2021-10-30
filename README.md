@@ -1,1 +1,1 @@
-:jeans:
+:tokyo_tower:
