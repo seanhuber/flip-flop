@@ -1,1 +1,1 @@
-:8ball:
+:no_entry_sign:
