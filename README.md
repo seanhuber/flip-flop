@@ -1,1 +1,1 @@
-:heart:
+:white_small_square:
