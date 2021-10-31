@@ -1,1 +1,1 @@
-:hankey:
+:palm_tree:
