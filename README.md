@@ -1,1 +1,1 @@
-:green_book:
+:signal_strength:
