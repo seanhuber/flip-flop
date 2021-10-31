@@ -1,1 +1,1 @@
-:lollipop:
+:heavy_division_sign:
