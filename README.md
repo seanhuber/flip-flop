@@ -1,1 +1,1 @@
-:pig_nose:
+:white_medium_square:
