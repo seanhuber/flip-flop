@@ -1,1 +1,1 @@
-:euro:
+:steam_locomotive:
