@@ -1,1 +1,1 @@
-:sunny:
+:spades:
