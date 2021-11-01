@@ -1,1 +1,1 @@
-:womans_clothes:
+:ok_hand:
