@@ -1,1 +1,1 @@
-:sagittarius:
+:page_with_curl:
