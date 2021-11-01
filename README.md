@@ -1,1 +1,1 @@
-:tropical_drink:
+:taxi:
