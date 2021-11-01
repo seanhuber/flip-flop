@@ -1,1 +1,1 @@
-:arrow_down_small:
+:man_with_gua_pi_mao:
