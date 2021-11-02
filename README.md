@@ -1,1 +1,1 @@
-:heart_eyes:
+:earth_americas:
