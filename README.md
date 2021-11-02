@@ -1,1 +1,1 @@
-:vibration_mode:
+:money_with_wings:
