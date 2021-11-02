@@ -1,1 +1,1 @@
-:ru:
+:palm_tree:
