@@ -1,1 +1,1 @@
-:low_brightness:
+:earth_asia:
