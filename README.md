@@ -1,1 +1,1 @@
-:beers:
+:sweat_drops:
