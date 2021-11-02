@@ -1,1 +1,1 @@
-:cow:
+:last_quarter_moon:
