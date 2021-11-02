@@ -1,1 +1,1 @@
-:earth_americas:
+:black_square_button:
