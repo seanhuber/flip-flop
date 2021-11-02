@@ -1,1 +1,1 @@
-:sweat_drops:
+:closed_umbrella:
