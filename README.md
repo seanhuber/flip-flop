@@ -1,1 +1,1 @@
-:seat:
+:vibration_mode:
