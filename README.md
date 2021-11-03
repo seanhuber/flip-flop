@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:hotel:
