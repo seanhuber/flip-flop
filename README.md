@@ -1,1 +1,1 @@
-:eight:
+:stars:
