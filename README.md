@@ -1,1 +1,1 @@
-:sparkler:
+:earth_africa:
