@@ -1,1 +1,1 @@
-:fax:
+:vertical_traffic_light:
