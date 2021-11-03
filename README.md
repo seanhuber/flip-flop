@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:low_brightness:
