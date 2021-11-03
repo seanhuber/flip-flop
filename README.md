@@ -1,1 +1,1 @@
-:feet:
+:information_desk_person:
