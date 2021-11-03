@@ -1,1 +1,1 @@
-:monkey:
+:cow2:
