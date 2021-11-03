@@ -1,1 +1,1 @@
-:haircut:
+:coffee:
