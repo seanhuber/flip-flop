@@ -1,1 +1,1 @@
-:mega:
+:haircut:
