@@ -1,1 +1,1 @@
-:dragon_face:
+:heavy_minus_sign:
