@@ -1,1 +1,1 @@
-:leopard:
+:maple_leaf:
