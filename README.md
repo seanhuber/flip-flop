@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:point_right:
