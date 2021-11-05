@@ -1,1 +1,1 @@
-:cyclone:
+:bowling:
