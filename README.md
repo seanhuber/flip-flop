@@ -1,1 +1,1 @@
-:eggplant:
+:smirk_cat:
