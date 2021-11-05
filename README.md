@@ -1,1 +1,1 @@
-:crocodile:
+:baby_chick:
