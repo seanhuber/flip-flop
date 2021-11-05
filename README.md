@@ -1,1 +1,1 @@
-:smirk_cat:
+:black_square_button:
