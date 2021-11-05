@@ -1,1 +1,1 @@
-:mask:
+:capital_abcd:
