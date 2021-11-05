@@ -1,1 +1,1 @@
-:sunflower:
+:crescent_moon:
