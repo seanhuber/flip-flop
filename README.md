@@ -1,1 +1,1 @@
-:dragon:
+:chicken:
