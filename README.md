@@ -1,1 +1,1 @@
-:video_camera:
+:high_heel:
