@@ -1,1 +1,1 @@
-:door:
+:four_leaf_clover:
