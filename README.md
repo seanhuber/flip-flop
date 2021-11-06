@@ -1,1 +1,1 @@
-:four_leaf_clover:
+:video_camera:
