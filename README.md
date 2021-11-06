@@ -1,1 +1,1 @@
-:running_shirt_with_sash:
+:blue_book:
