@@ -1,1 +1,1 @@
-:suspension_railway:
+:currency_exchange:
