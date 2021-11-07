@@ -1,1 +1,1 @@
-:aquarius:
+:white_square_button:
