@@ -1,1 +1,1 @@
-:heart_eyes_cat:
+:arrow_right_hook:
