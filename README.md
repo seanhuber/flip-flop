@@ -1,1 +1,1 @@
-:pineapple:
+:video_game:
