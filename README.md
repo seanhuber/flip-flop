@@ -1,1 +1,1 @@
-:warning:
+:heart_eyes_cat:
