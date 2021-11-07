@@ -1,1 +1,1 @@
-:flashlight:
+:nail_care:
