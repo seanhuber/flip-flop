@@ -1,1 +1,1 @@
-:ship:
+:necktie:
