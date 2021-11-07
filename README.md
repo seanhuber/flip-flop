@@ -1,1 +1,1 @@
-:white_circle:
+:hear_no_evil:
