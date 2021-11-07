@@ -1,1 +1,1 @@
-:strawberry:
+:milky_way:
