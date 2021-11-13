@@ -1,1 +1,1 @@
-:rooster:
+:diamonds:
