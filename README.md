@@ -1,1 +1,1 @@
-:abc:
+:eight_spoked_asterisk:
