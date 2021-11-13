@@ -1,1 +1,1 @@
-:point_left:
+:grey_question:
