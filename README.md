@@ -1,1 +1,1 @@
-:nine:
+:heavy_dollar_sign:
