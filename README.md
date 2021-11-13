@@ -1,1 +1,1 @@
-:revolving_hearts:
+:simple_smile:
