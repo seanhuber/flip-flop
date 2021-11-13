@@ -1,1 +1,1 @@
-:fax:
+:statue_of_liberty:
