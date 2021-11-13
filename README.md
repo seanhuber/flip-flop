@@ -1,1 +1,1 @@
-:suspension_railway:
+:point_left:
