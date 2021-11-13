@@ -1,1 +1,1 @@
-:currency_exchange:
+:ok_hand:
