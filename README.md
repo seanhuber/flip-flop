@@ -1,1 +1,1 @@
-:simple_smile:
+:small_orange_diamond:
