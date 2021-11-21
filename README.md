@@ -1,1 +1,1 @@
-:tiger:
+:arrow_down_small:
