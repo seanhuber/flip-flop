@@ -1,1 +1,1 @@
-:facepunch:
+:traffic_light:
