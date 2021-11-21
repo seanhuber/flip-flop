@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:see_no_evil:
