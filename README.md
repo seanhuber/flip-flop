@@ -1,1 +1,1 @@
-:ophiuchus:
+:smiley_cat:
