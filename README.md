@@ -1,1 +1,1 @@
-:apple:
+:neutral_face:
