@@ -1,1 +1,1 @@
-:ear:
+:maple_leaf:
