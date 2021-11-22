@@ -1,1 +1,1 @@
-:gun:
+:izakaya_lantern:
