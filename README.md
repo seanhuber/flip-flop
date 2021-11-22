@@ -1,1 +1,1 @@
-:maple_leaf:
+:monkey_face:
