@@ -1,1 +1,1 @@
-:confetti_ball:
+:nose:
