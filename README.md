@@ -1,1 +1,1 @@
-:pill:
+:black_joker:
