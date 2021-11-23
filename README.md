@@ -1,1 +1,1 @@
-:virgo:
+:raised_hands:
