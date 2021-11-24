@@ -1,1 +1,1 @@
-:fax:
+:minidisc:
