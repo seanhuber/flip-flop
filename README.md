@@ -1,1 +1,1 @@
-:trophy:
+:passport_control:
