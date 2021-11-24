@@ -1,1 +1,1 @@
-:cake:
+:necktie:
