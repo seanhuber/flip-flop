@@ -1,1 +1,1 @@
-:trolleybus:
+:carousel_horse:
