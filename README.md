@@ -1,1 +1,1 @@
-:dollar:
+:city_sunset:
