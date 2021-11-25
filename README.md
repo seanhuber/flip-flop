@@ -1,1 +1,1 @@
-:pound:
+:white_square_button:
