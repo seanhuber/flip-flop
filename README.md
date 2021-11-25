@@ -1,1 +1,1 @@
-:worried:
+:recycle:
