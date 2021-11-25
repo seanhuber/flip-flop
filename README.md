@@ -1,1 +1,1 @@
-:pencil:
+:icecream:
