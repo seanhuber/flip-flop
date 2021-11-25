@@ -1,1 +1,1 @@
-:syringe:
+:point_down:
