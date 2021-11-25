@@ -1,1 +1,1 @@
-:raised_hands:
+:signal_strength:
