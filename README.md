@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:arrow_heading_down:
