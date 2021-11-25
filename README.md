@@ -1,1 +1,1 @@
-:whale2:
+:raised_hands:
