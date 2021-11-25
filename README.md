@@ -1,1 +1,1 @@
-:sweat:
+:repeat_one:
