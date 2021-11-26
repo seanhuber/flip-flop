@@ -1,1 +1,1 @@
-:pig_nose:
+:large_orange_diamond:
