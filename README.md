@@ -1,1 +1,1 @@
-:eyes:
+:sweat_drops:
