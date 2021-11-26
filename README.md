@@ -1,1 +1,1 @@
-:rice_ball:
+:video_game:
