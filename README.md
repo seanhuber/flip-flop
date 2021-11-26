@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:four_leaf_clover:
