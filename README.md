@@ -1,1 +1,1 @@
-:tired_face:
+:capital_abcd:
