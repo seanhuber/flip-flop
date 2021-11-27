@@ -1,1 +1,1 @@
-:pig:
+:red_circle:
