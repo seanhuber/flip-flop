@@ -1,1 +1,1 @@
-:sandal:
+:partly_sunny:
