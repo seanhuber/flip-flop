@@ -1,1 +1,1 @@
-:pouting_cat:
+:arrow_heading_up:
