@@ -1,1 +1,1 @@
-:peach:
+:fried_shrimp:
