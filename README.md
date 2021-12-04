@@ -1,1 +1,1 @@
-:pill:
+:steam_locomotive:
