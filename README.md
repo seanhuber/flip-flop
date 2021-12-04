@@ -1,1 +1,1 @@
-:tropical_drink:
+:mailbox_with_no_mail:
