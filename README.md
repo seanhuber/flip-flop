@@ -1,1 +1,1 @@
-:notebook:
+:city_sunset:
