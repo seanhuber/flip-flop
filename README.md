@@ -1,1 +1,1 @@
-:sunglasses:
+:small_orange_diamond:
