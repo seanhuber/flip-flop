@@ -1,1 +1,1 @@
-:anger:
+:pill:
