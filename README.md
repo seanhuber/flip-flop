@@ -1,1 +1,1 @@
-:chestnut:
+:telephone_receiver:
