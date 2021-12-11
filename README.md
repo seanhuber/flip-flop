@@ -1,1 +1,1 @@
-:sparkler:
+:european_post_office:
