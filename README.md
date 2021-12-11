@@ -1,1 +1,1 @@
-:ok:
+:circus_tent:
