@@ -1,1 +1,1 @@
-:fast_forward:
+:arrow_right:
