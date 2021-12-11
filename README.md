@@ -1,1 +1,1 @@
-:blue_heart:
+:mailbox_with_no_mail:
