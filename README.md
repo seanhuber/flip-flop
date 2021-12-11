@@ -1,1 +1,1 @@
-:diamonds:
+:blue_heart:
