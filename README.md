@@ -1,1 +1,1 @@
-:art:
+:sweat_smile:
