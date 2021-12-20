@@ -1,1 +1,1 @@
-:man_with_turban:
+:heart_decoration:
