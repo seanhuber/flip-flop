@@ -1,1 +1,1 @@
-:boar:
+:rice_scene:
