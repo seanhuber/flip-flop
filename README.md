@@ -1,1 +1,1 @@
-:nose:
+:man_with_turban:
