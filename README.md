@@ -1,1 +1,1 @@
-:fish:
+:stuck_out_tongue:
