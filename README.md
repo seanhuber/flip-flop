@@ -1,1 +1,1 @@
-:barber:
+:star2:
