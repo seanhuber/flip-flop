@@ -1,1 +1,1 @@
-:black_medium_square:
+:chart_with_downwards_trend:
