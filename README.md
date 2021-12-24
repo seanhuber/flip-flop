@@ -1,1 +1,1 @@
-:dizzy_face:
+:sparkling_heart:
