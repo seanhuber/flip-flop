@@ -1,1 +1,1 @@
-:chart_with_downwards_trend:
+:small_blue_diamond:
