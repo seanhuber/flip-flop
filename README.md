@@ -1,1 +1,1 @@
-:lipstick:
+:dizzy_face:
