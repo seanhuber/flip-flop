@@ -1,1 +1,1 @@
-:alarm_clock:
+:two_women_holding_hands:
