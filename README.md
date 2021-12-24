@@ -1,1 +1,1 @@
-:rice_scene:
+:black_medium_square:
