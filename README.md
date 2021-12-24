@@ -1,1 +1,1 @@
-:secret:
+:rice_scene:
