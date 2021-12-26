@@ -1,1 +1,1 @@
-:mount_fuji:
+:slot_machine:
