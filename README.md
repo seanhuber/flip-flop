@@ -1,1 +1,1 @@
-:smirk:
+:capital_abcd:
