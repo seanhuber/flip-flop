@@ -1,1 +1,1 @@
-:capital_abcd:
+:arrow_lower_left:
