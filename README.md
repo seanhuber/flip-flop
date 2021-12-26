@@ -1,1 +1,1 @@
-:bangbang:
+:keycap_ten:
