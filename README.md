@@ -1,1 +1,1 @@
-:slot_machine:
+:tired_face:
