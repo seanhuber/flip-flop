@@ -1,1 +1,1 @@
-:cinema:
+:speech_balloon:
