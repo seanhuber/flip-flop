@@ -1,1 +1,1 @@
-:accept:
+:alarm_clock:
