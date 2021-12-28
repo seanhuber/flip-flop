@@ -1,1 +1,1 @@
-:tea:
+:outbox_tray:
