@@ -1,1 +1,1 @@
-:jeans:
+:fast_forward:
