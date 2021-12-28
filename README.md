@@ -1,1 +1,1 @@
-:microscope:
+:thought_balloon:
