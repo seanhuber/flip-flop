@@ -1,1 +1,1 @@
-:thought_balloon:
+:potable_water:
