@@ -1,1 +1,1 @@
-:space_invader:
+:arrow_upper_right:
