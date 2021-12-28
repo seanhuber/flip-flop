@@ -1,1 +1,1 @@
-:kimono:
+:wine_glass:
