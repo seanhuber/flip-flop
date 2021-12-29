@@ -1,1 +1,1 @@
-:balloon:
+:ok_hand:
