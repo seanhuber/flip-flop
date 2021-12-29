@@ -1,1 +1,1 @@
-:libra:
+:waning_crescent_moon:
