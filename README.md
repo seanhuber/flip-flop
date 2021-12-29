@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:sunrise_over_mountains:
