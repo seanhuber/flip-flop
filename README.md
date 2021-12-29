@@ -1,1 +1,1 @@
-:doughnut:
+:high_heel:
