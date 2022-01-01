@@ -1,1 +1,1 @@
-:clock2:
+:smirk_cat:
