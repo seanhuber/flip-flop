@@ -1,1 +1,1 @@
-:jeans:
+:point_up:
