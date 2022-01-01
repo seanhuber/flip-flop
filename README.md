@@ -1,1 +1,1 @@
-:point_up:
+:dizzy_face:
