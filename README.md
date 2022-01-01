@@ -1,1 +1,1 @@
-:japanese_ogre:
+:articulated_lorry:
