@@ -1,1 +1,1 @@
-:dizzy_face:
+:partly_sunny:
