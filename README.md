@@ -1,1 +1,1 @@
-:bug:
+:rice_ball:
