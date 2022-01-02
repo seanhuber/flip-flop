@@ -1,1 +1,1 @@
-:sweet_potato:
+:pencil2:
