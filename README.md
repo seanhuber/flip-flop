@@ -1,1 +1,1 @@
-:train2:
+:joy_cat:
