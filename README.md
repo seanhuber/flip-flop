@@ -1,1 +1,1 @@
-:card_index:
+:arrow_right_hook:
