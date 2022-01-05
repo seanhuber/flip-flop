@@ -1,1 +1,1 @@
-:copyright:
+:heart_eyes:
