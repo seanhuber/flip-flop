@@ -1,1 +1,1 @@
-:muscle:
+:smiley:
