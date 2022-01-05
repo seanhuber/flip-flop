@@ -1,1 +1,1 @@
-:octopus:
+:busts_in_silhouette:
