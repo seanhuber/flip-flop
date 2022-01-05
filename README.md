@@ -1,1 +1,1 @@
-:sake:
+:currency_exchange:
