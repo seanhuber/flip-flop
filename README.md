@@ -1,1 +1,1 @@
-:crying_cat_face:
+:japanese_castle:
