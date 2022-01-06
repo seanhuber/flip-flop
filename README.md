@@ -1,1 +1,1 @@
-:wolf:
+:angry:
