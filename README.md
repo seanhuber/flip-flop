@@ -1,1 +1,1 @@
-:hospital:
+:earth_africa:
