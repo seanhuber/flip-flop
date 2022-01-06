@@ -1,1 +1,1 @@
-:bicyclist:
+:globe_with_meridians:
