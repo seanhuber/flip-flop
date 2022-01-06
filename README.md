@@ -1,1 +1,1 @@
-:tongue:
+:sweet_potato:
