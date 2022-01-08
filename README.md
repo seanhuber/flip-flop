@@ -1,1 +1,1 @@
-:symbols:
+:high_brightness:
