@@ -1,1 +1,1 @@
-:helicopter:
+:aerial_tramway:
