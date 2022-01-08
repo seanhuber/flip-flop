@@ -1,1 +1,1 @@
-:clubs:
+:signal_strength:
