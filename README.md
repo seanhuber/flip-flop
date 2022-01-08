@@ -1,1 +1,1 @@
-:honeybee:
+:sweat_smile:
