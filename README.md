@@ -1,1 +1,1 @@
-:two_women_holding_hands:
+:money_with_wings:
