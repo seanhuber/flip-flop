@@ -1,1 +1,1 @@
-:aerial_tramway:
+:waning_crescent_moon:
