@@ -1,1 +1,1 @@
-:high_brightness:
+:two_women_holding_hands:
