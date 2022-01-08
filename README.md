@@ -1,1 +1,1 @@
-:scream:
+:no_entry_sign:
