@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:man_with_turban:
