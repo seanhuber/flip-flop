@@ -1,1 +1,1 @@
-:eggplant:
+:ideograph_advantage:
