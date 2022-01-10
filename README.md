@@ -1,1 +1,1 @@
-:smirk:
+:ice_cream:
