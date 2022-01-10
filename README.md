@@ -1,1 +1,1 @@
-:oncoming_bus:
+:video_game:
