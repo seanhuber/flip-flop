@@ -1,1 +1,1 @@
-:seven:
+:statue_of_liberty:
