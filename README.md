@@ -1,1 +1,1 @@
-:mortar_board:
+:japanese_goblin:
