@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:green_apple:
