@@ -1,1 +1,1 @@
-:microscope:
+:construction_worker:
