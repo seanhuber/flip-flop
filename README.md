@@ -1,1 +1,1 @@
-:unlock:
+:mortar_board:
