@@ -1,1 +1,1 @@
-:hamster:
+:flower_playing_cards:
