@@ -1,1 +1,1 @@
-:barber:
+:no_bell:
