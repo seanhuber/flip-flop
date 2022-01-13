@@ -1,1 +1,1 @@
-:snowflake:
+:bridge_at_night:
