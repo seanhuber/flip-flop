@@ -1,1 +1,1 @@
-:godmode:
+:traffic_light:
