@@ -1,1 +1,1 @@
-:traffic_light:
+:fried_shrimp:
