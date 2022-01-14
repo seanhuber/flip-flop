@@ -1,1 +1,1 @@
-:baby_chick:
+:heavy_plus_sign:
