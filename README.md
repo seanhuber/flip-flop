@@ -1,1 +1,1 @@
-:mens:
+:dromedary_camel:
