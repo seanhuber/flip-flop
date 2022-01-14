@@ -1,1 +1,1 @@
-:helicopter:
+:meat_on_bone:
