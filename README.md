@@ -1,1 +1,1 @@
-:angel:
+:wave:
