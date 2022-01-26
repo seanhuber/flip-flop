@@ -1,1 +1,1 @@
-:no_mouth:
+:construction_worker:
