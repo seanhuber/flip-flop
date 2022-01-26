@@ -1,1 +1,1 @@
-:parking:
+:raised_hand:
