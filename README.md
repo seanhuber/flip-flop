@@ -1,1 +1,1 @@
-:eggplant:
+:inbox_tray:
