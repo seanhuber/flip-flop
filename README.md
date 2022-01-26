@@ -1,1 +1,1 @@
-:name_badge:
+:man_with_turban:
