@@ -1,1 +1,1 @@
-:moyai:
+:name_badge:
