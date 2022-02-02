@@ -1,1 +1,1 @@
-:factory:
+:flower_playing_cards:
