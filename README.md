@@ -1,1 +1,1 @@
-:diamonds:
+:tired_face:
