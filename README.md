@@ -1,1 +1,1 @@
-:herb:
+:yellow_heart:
