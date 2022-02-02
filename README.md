@@ -1,1 +1,1 @@
-:euro:
+:name_badge:
