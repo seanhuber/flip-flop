@@ -1,1 +1,1 @@
-:high_heel:
+:information_source:
