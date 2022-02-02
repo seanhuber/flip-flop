@@ -1,1 +1,1 @@
-:information_source:
+:statue_of_liberty:
