@@ -1,1 +1,1 @@
-:camera:
+:womans_hat:
