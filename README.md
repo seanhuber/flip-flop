@@ -1,1 +1,1 @@
-:curry:
+:no_bell:
