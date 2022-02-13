@@ -1,1 +1,1 @@
-:no_bell:
+:european_post_office:
