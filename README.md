@@ -1,1 +1,1 @@
-:european_post_office:
+:ear_of_rice:
