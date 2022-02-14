@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:mountain_bicyclist:
