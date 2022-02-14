@@ -1,1 +1,1 @@
-:mahjong:
+:oncoming_taxi:
