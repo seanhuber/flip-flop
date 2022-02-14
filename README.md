@@ -1,1 +1,1 @@
-:running:
+:partly_sunny:
