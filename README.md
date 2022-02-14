@@ -1,1 +1,1 @@
-:partly_sunny:
+:izakaya_lantern:
