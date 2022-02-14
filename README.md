@@ -1,1 +1,1 @@
-:tanabata_tree:
+:tropical_drink:
