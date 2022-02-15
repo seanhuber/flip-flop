@@ -1,1 +1,1 @@
-:japanese_ogre:
+:maple_leaf:
