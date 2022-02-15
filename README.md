@@ -1,1 +1,1 @@
-:mag:
+:japanese_ogre:
