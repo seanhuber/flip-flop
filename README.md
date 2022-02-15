@@ -1,1 +1,1 @@
-:tomato:
+:black_large_square:
