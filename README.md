@@ -1,1 +1,1 @@
-:mortar_board:
+:smiling_imp:
