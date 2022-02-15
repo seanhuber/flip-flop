@@ -1,1 +1,1 @@
-:eyes:
+:mortar_board:
