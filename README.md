@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:chart_with_upwards_trend:
