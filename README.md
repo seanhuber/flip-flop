@@ -1,1 +1,1 @@
-:department_store:
+:open_file_folder:
