@@ -1,1 +1,1 @@
-:no_entry_sign:
+:negative_squared_cross_mark:
