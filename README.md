@@ -1,1 +1,1 @@
-:crossed_flags:
+:no_entry_sign:
