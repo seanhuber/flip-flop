@@ -1,1 +1,1 @@
-:astonished:
+:curly_loop:
