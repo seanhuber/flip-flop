@@ -1,1 +1,1 @@
-:pouting_cat:
+:smirk_cat:
