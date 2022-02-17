@@ -1,1 +1,1 @@
-:floppy_disk:
+:six_pointed_star:
