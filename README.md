@@ -1,1 +1,1 @@
-:european_castle:
+:small_red_triangle_down:
