@@ -1,1 +1,1 @@
-:foggy:
+:arrow_lower_right:
