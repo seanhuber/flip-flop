@@ -1,1 +1,1 @@
-:link:
+:heavy_minus_sign:
