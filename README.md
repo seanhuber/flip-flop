@@ -1,1 +1,1 @@
-:japanese_goblin:
+:crying_cat_face:
