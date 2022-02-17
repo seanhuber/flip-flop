@@ -1,1 +1,1 @@
-:family:
+:aerial_tramway:
