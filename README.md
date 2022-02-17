@@ -1,1 +1,1 @@
-:straight_ruler:
+:ok_hand:
