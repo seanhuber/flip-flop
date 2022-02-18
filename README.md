@@ -1,1 +1,1 @@
-:mail:
+:helicopter:
