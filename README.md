@@ -1,1 +1,1 @@
-:white_flower:
+:dromedary_camel:
