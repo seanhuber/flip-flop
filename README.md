@@ -1,1 +1,1 @@
-:jeans:
+:arrow_upper_right:
