@@ -1,1 +1,1 @@
-:golf:
+:raised_hands:
