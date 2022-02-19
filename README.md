@@ -1,1 +1,1 @@
-:rowboat:
+:telescope:
