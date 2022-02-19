@@ -1,1 +1,1 @@
-:dango:
+:large_orange_diamond:
