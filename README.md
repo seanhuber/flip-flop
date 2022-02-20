@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:light_rail:
