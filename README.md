@@ -1,1 +1,1 @@
-:light_rail:
+:small_orange_diamond:
