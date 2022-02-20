@@ -1,1 +1,1 @@
-:arrow_up:
+:incoming_envelope:
