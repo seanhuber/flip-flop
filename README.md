@@ -1,1 +1,1 @@
-:pound:
+:earth_africa:
