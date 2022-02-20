@@ -1,1 +1,1 @@
-:alarm_clock:
+:white_square_button:
