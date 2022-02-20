@@ -1,1 +1,1 @@
-:atm:
+:no_smoking:
