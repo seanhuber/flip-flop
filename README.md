@@ -1,1 +1,1 @@
-:ambulance:
+:large_blue_diamond:
