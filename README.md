@@ -1,1 +1,1 @@
-:ferris_wheel:
+:money_with_wings:
