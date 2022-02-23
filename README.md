@@ -1,1 +1,1 @@
-:libra:
+:ferris_wheel:
