@@ -1,1 +1,1 @@
-:crocodile:
+:do_not_litter:
