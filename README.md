@@ -1,1 +1,1 @@
-:crying_cat_face:
+:heavy_dollar_sign:
