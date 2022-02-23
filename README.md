@@ -1,1 +1,1 @@
-:money_with_wings:
+:first_quarter_moon:
