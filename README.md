@@ -1,1 +1,1 @@
-:euro:
+:crying_cat_face:
