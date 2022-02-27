@@ -1,1 +1,1 @@
-:white_medium_small_square:
+:small_red_triangle_down:
