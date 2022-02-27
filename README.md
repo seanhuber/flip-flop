@@ -1,1 +1,1 @@
-:sos:
+:curly_loop:
