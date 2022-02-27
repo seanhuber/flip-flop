@@ -1,1 +1,1 @@
-:ambulance:
+:foggy:
