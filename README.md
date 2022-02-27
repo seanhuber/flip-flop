@@ -1,1 +1,1 @@
-:ribbon:
+:heart_decoration:
