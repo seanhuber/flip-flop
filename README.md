@@ -1,1 +1,1 @@
-:ophiuchus:
+:mailbox_with_mail:
