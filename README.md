@@ -1,1 +1,1 @@
-:bomb:
+:womans_hat:
