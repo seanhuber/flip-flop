@@ -1,1 +1,1 @@
-:helicopter:
+:grey_question:
