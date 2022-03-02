@@ -1,1 +1,1 @@
-:person_with_pouting_face:
+:heart_eyes_cat:
