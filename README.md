@@ -1,1 +1,1 @@
-:mahjong:
+:hatching_chick:
