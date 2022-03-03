@@ -1,1 +1,1 @@
-:grapes:
+:trophy:
