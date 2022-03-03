@@ -1,1 +1,1 @@
-:bullettrain_front:
+:no_bicycles:
