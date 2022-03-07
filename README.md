@@ -1,1 +1,1 @@
-:monkey:
+:trolleybus:
