@@ -1,1 +1,1 @@
-:clapper:
+:red_circle:
