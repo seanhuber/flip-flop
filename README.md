@@ -1,1 +1,1 @@
-:ok_hand:
+:part_alternation_mark:
