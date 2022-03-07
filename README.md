@@ -1,1 +1,1 @@
-:hatched_chick:
+:wine_glass:
