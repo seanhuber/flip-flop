@@ -1,1 +1,1 @@
-:trolleybus:
+:ok_hand:
