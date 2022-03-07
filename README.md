@@ -1,1 +1,1 @@
-:sandal:
+:stuck_out_tongue:
