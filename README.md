@@ -1,1 +1,1 @@
-:sos:
+:card_index:
