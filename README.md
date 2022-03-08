@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:mountain_cableway:
