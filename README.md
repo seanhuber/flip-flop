@@ -1,1 +1,1 @@
-:point_left:
+:wind_chime:
