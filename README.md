@@ -1,1 +1,1 @@
-:boat:
+:light_rail:
