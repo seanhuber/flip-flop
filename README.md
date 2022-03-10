@@ -1,1 +1,1 @@
-:smirk_cat:
+:left_luggage:
