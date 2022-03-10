@@ -1,1 +1,1 @@
-:no_entry:
+:pencil2:
