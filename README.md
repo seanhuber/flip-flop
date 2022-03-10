@@ -1,1 +1,1 @@
-:video_game:
+:jack_o_lantern:
