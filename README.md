@@ -1,1 +1,1 @@
-:relaxed:
+:video_game:
