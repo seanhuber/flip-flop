@@ -1,1 +1,1 @@
-:mouse:
+:no_bicycles:
