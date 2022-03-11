@@ -1,1 +1,1 @@
-:clock130:
+:traffic_light:
