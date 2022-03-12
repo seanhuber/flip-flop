@@ -1,1 +1,1 @@
-:six_pointed_star:
+:fork_and_knife:
