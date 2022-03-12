@@ -1,1 +1,1 @@
-:pencil:
+:black_small_square:
