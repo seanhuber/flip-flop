@@ -1,1 +1,1 @@
-:feet:
+:six_pointed_star:
