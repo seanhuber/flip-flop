@@ -1,1 +1,1 @@
-:mouse:
+:department_store:
