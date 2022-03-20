@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:page_with_curl:
