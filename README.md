@@ -1,1 +1,1 @@
-:black_square_button:
+:convenience_store:
