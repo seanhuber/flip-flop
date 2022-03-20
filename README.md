@@ -1,1 +1,1 @@
-:herb:
+:potable_water:
