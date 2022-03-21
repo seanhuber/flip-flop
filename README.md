@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:love_letter:
