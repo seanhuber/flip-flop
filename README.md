@@ -1,1 +1,1 @@
-:wc:
+:mag_right:
