@@ -1,1 +1,1 @@
-:point_down:
+:hear_no_evil:
