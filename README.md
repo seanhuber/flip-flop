@@ -1,1 +1,1 @@
-:lemon:
+:keycap_ten:
