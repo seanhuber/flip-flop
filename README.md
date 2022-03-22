@@ -1,1 +1,1 @@
-:haircut:
+:japan:
