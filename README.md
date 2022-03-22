@@ -1,1 +1,1 @@
-:japan:
+:sweat_smile:
