@@ -1,1 +1,1 @@
-:nose:
+:crossed_flags:
