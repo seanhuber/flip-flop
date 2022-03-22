@@ -1,1 +1,1 @@
-:de:
+:rotating_light:
