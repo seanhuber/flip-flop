@@ -1,1 +1,1 @@
-:cookie:
+:seat:
