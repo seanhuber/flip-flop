@@ -1,1 +1,1 @@
-:traffic_light:
+:arrow_up_down:
