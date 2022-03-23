@@ -1,1 +1,1 @@
-:egg:
+:money_with_wings:
