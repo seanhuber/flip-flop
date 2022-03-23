@@ -1,1 +1,1 @@
-:loop:
+:first_quarter_moon:
