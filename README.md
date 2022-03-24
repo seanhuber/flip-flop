@@ -1,1 +1,1 @@
-:goat:
+:hushed:
