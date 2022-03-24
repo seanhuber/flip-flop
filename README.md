@@ -1,1 +1,1 @@
-:squirrel:
+:neutral_face:
