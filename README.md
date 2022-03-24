@@ -1,1 +1,1 @@
-:ambulance:
+:honey_pot:
