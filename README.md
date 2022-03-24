@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:credit_card:
