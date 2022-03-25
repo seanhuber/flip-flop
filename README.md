@@ -1,1 +1,1 @@
-:smirk:
+:cancer:
