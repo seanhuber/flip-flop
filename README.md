@@ -1,1 +1,1 @@
-:circus_tent:
+:arrow_forward:
