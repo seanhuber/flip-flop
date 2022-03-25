@@ -1,1 +1,1 @@
-:camel:
+:wine_glass:
