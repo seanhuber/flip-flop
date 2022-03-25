@@ -1,1 +1,1 @@
-:hospital:
+:circus_tent:
