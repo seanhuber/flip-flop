@@ -1,1 +1,1 @@
-:page_facing_up:
+:point_right:
