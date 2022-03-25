@@ -1,1 +1,1 @@
-:crown:
+:page_facing_up:
