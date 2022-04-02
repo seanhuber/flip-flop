@@ -1,1 +1,1 @@
-:joy:
+:heavy_division_sign:
