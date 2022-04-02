@@ -1,1 +1,1 @@
-:mahjong:
+:small_red_triangle:
