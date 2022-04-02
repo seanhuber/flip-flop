@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:articulated_lorry:
