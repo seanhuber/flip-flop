@@ -1,1 +1,1 @@
-:mouse:
+:page_with_curl:
