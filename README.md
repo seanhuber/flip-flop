@@ -1,1 +1,1 @@
-:pager:
+:nail_care:
