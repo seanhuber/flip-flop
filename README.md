@@ -1,1 +1,1 @@
-:zzz:
+:video_camera:
