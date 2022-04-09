@@ -1,1 +1,1 @@
-:green_apple:
+:arrow_upper_right:
