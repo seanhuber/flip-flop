@@ -1,1 +1,1 @@
-:sparkle:
+:no_pedestrians:
