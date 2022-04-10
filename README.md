@@ -1,1 +1,1 @@
-:blue_car:
+:open_file_folder:
