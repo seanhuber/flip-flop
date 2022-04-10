@@ -1,1 +1,1 @@
-:nail_care:
+:partly_sunny:
