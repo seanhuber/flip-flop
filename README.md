@@ -1,1 +1,1 @@
-:ring:
+:chocolate_bar:
