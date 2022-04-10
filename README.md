@@ -1,1 +1,1 @@
-:syringe:
+:kissing_closed_eyes:
