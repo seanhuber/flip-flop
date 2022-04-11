@@ -1,1 +1,1 @@
-:wedding:
+:ok_woman:
