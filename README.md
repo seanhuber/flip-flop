@@ -1,1 +1,1 @@
-:bank:
+:telephone_receiver:
