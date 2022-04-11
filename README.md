@@ -1,1 +1,1 @@
-:persevere:
+:bank:
