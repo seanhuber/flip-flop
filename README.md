@@ -1,1 +1,1 @@
-:grinning:
+:small_orange_diamond:
