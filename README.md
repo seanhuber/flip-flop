@@ -1,1 +1,1 @@
-:mans_shoe:
+:baby_symbol:
