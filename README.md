@@ -1,1 +1,1 @@
-:school_satchel:
+:alarm_clock:
