@@ -1,1 +1,1 @@
-:octopus:
+:crossed_flags:
