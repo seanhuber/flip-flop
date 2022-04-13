@@ -1,1 +1,1 @@
-:alarm_clock:
+:waxing_gibbous_moon:
