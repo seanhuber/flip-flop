@@ -1,1 +1,1 @@
-:spades:
+:school_satchel:
