@@ -1,1 +1,1 @@
-:worried:
+:checkered_flag:
