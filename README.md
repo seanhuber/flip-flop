@@ -1,1 +1,1 @@
-:school:
+:department_store:
