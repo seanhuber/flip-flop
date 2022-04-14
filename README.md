@@ -1,1 +1,1 @@
-:ambulance:
+:post_office:
