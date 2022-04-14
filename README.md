@@ -1,1 +1,1 @@
-:taxi:
+:european_castle:
