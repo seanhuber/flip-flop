@@ -1,1 +1,1 @@
-:ship:
+:persevere:
