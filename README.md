@@ -1,1 +1,1 @@
-:smiley:
+:point_up:
