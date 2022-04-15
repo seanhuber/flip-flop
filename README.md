@@ -1,1 +1,1 @@
-:strawberry:
+:crescent_moon:
