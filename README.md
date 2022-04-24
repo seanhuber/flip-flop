@@ -1,1 +1,1 @@
-:dollar:
+:sparkling_heart:
