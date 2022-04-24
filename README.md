@@ -1,1 +1,1 @@
-:eight:
+:repeat:
