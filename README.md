@@ -1,1 +1,1 @@
-:herb:
+:articulated_lorry:
