@@ -1,1 +1,1 @@
-:loudspeaker:
+:card_index:
