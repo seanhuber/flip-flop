@@ -1,1 +1,1 @@
-:sweat_drops:
+:roller_coaster:
