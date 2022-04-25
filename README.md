@@ -1,1 +1,1 @@
-:snowboarder:
+:white_large_square:
