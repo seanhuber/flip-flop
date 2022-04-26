@@ -1,1 +1,1 @@
-:loudspeaker:
+:black_medium_square:
