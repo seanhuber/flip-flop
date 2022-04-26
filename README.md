@@ -1,1 +1,1 @@
-:ribbon:
+:raised_hands:
