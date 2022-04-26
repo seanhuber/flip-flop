@@ -1,1 +1,1 @@
-:triumph:
+:house_with_garden:
