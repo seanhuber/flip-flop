@@ -1,1 +1,1 @@
-:arrow_right_hook:
+:black_nib:
