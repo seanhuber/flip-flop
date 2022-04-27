@@ -1,1 +1,1 @@
-:scissors:
+:see_no_evil:
