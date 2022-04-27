@@ -1,1 +1,1 @@
-:currency_exchange:
+:fast_forward:
