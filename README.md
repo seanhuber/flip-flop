@@ -1,1 +1,1 @@
-:envelope:
+:currency_exchange:
