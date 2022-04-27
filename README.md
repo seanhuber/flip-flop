@@ -1,1 +1,1 @@
-:metal:
+:chocolate_bar:
