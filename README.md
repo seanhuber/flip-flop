@@ -1,1 +1,1 @@
-:arrow_up_down:
+:heavy_plus_sign:
