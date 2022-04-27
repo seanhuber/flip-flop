@@ -1,1 +1,1 @@
-:tea:
+:wavy_dash:
