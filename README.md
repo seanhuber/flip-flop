@@ -1,1 +1,1 @@
-:telephone_receiver:
+:full_moon:
