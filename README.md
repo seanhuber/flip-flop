@@ -1,1 +1,1 @@
-:japanese_goblin:
+:telephone_receiver:
