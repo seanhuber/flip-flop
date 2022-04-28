@@ -1,1 +1,1 @@
-:bike:
+:ok_woman:
