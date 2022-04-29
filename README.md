@@ -1,1 +1,1 @@
-:ok_hand:
+:couple_with_heart:
