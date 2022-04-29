@@ -1,1 +1,1 @@
-:bikini:
+:currency_exchange:
