@@ -1,1 +1,1 @@
-:arrow_down_small:
+:ok_hand:
