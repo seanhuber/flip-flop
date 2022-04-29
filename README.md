@@ -1,1 +1,1 @@
-:haircut:
+:five:
