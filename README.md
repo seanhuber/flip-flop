@@ -1,1 +1,1 @@
-:mountain_railway:
+:arrow_right:
