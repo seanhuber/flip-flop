@@ -1,1 +1,1 @@
-:camel:
+:panda_face:
