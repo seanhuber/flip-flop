@@ -1,1 +1,1 @@
-:mahjong:
+:steam_locomotive:
