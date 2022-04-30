@@ -1,1 +1,1 @@
-:airplane:
+:camel:
