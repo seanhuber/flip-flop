@@ -1,1 +1,1 @@
-:rabbit:
+:raised_hands:
