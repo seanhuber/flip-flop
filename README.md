@@ -1,1 +1,1 @@
-:small_red_triangle_down:
+:ear_of_rice:
