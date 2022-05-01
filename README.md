@@ -1,1 +1,1 @@
-:cool:
+:rotating_light:
