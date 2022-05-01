@@ -1,1 +1,1 @@
-:ok_woman:
+:small_red_triangle_down:
