@@ -1,1 +1,1 @@
-:star:
+:european_castle:
