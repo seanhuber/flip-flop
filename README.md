@@ -1,1 +1,1 @@
-:golf:
+:partly_sunny:
