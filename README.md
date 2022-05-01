@@ -1,1 +1,1 @@
-:thumbsdown:
+:earth_asia:
