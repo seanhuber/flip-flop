@@ -1,1 +1,1 @@
-:tea:
+:dromedary_camel:
