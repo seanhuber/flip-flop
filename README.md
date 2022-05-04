@@ -1,1 +1,1 @@
-:japanese_goblin:
+:ballot_box_with_check:
