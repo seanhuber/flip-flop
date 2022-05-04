@@ -1,1 +1,1 @@
-:dromedary_camel:
+:stars:
