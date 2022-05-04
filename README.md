@@ -1,1 +1,1 @@
-:four_leaf_clover:
+:do_not_litter:
