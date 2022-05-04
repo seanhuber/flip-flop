@@ -1,1 +1,1 @@
-:stars:
+:japanese_goblin:
