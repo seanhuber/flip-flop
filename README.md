@@ -1,1 +1,1 @@
-:tropical_drink:
+:money_with_wings:
