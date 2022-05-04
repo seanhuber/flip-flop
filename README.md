@@ -1,1 +1,1 @@
-:city_sunset:
+:european_castle:
