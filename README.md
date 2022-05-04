@@ -1,1 +1,1 @@
-:pill:
+:four_leaf_clover:
