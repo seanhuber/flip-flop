@@ -1,1 +1,1 @@
-:zap:
+:black_small_square:
