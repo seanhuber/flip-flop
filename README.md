@@ -1,1 +1,1 @@
-:heavy_plus_sign:
+:large_orange_diamond:
