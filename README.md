@@ -1,1 +1,1 @@
-:office:
+:bar_chart:
