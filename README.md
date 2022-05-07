@@ -1,1 +1,1 @@
-:rice:
+:speedboat:
