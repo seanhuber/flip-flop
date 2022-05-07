@@ -1,1 +1,1 @@
-:shell:
+:arrows_counterclockwise:
