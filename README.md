@@ -1,1 +1,1 @@
-:shit:
+:tokyo_tower:
