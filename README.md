@@ -1,1 +1,1 @@
-:busstop:
+:waxing_crescent_moon:
