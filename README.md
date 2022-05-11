@@ -1,1 +1,1 @@
-:ok_hand:
+:open_hands:
