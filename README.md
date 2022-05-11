@@ -1,1 +1,1 @@
-:shoe:
+:blue_car:
