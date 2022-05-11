@@ -1,1 +1,1 @@
-:barber:
+:alarm_clock:
