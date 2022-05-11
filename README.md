@@ -1,1 +1,1 @@
-:crossed_flags:
+:bar_chart:
