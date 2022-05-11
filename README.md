@@ -1,1 +1,1 @@
-:heartpulse:
+:ok_hand:
