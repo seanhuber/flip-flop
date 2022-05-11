@@ -1,1 +1,1 @@
-:sleeping:
+:cow2:
