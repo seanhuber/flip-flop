@@ -1,1 +1,1 @@
-:bowling:
+:baggage_claim:
