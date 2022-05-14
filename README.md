@@ -1,1 +1,1 @@
-:symbols:
+:video_camera:
