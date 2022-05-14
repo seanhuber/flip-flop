@@ -1,1 +1,1 @@
-:registered:
+:articulated_lorry:
