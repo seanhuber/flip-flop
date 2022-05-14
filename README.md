@@ -1,1 +1,1 @@
-:smoking:
+:traffic_light:
