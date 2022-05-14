@@ -1,1 +1,1 @@
-:video_camera:
+:crossed_flags:
