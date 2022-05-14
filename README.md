@@ -1,1 +1,1 @@
-:dango:
+:four_leaf_clover:
