@@ -1,1 +1,1 @@
-:minibus:
+:rugby_football:
