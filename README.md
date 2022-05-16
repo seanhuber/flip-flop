@@ -1,1 +1,1 @@
-:bangbang:
+:orange_book:
