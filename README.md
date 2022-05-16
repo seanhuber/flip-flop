@@ -1,1 +1,1 @@
-:tractor:
+:smiley_cat:
