@@ -1,1 +1,1 @@
-:b:
+:traffic_light:
