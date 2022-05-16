@@ -1,1 +1,1 @@
-:thumbsdown:
+:wavy_dash:
