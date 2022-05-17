@@ -1,1 +1,1 @@
-:couplekiss:
+:black_square_button:
