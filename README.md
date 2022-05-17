@@ -1,1 +1,1 @@
-:diamonds:
+:tropical_fish:
