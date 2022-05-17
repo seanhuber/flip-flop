@@ -1,1 +1,1 @@
-:tropical_fish:
+:six_pointed_star:
