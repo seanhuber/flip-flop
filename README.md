@@ -1,1 +1,1 @@
-:moyai:
+:first_quarter_moon:
