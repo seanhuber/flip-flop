@@ -1,1 +1,1 @@
-:woman:
+:wine_glass:
