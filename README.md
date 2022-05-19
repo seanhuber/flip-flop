@@ -1,1 +1,1 @@
-:evergreen_tree:
+:low_brightness:
