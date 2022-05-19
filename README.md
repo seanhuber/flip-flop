@@ -1,1 +1,1 @@
-:monorail:
+:white_large_square:
