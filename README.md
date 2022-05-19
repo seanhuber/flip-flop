@@ -1,1 +1,1 @@
-:dog:
+:mailbox_with_mail:
