@@ -1,1 +1,1 @@
-:panda_face:
+:four_leaf_clover:
