@@ -1,1 +1,1 @@
-:love_letter:
+:oncoming_bus:
