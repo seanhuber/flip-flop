@@ -1,1 +1,1 @@
-:guardsman:
+:mount_fuji:
