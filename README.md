@@ -1,1 +1,1 @@
-:link:
+:curly_loop:
