@@ -1,1 +1,1 @@
-:curly_loop:
+:four_leaf_clover:
