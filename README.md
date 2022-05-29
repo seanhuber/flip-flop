@@ -1,1 +1,1 @@
-:mouse:
+:shaved_ice:
