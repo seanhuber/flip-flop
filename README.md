@@ -1,1 +1,1 @@
-:mobile_phone_off:
+:bullettrain_side:
