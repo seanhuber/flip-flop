@@ -1,1 +1,1 @@
-:school:
+:mailbox_with_mail:
