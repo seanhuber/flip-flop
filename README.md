@@ -1,1 +1,1 @@
-:five:
+:stuck_out_tongue:
