@@ -1,1 +1,1 @@
-:ballot_box_with_check:
+:poultry_leg:
