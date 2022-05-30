@@ -1,1 +1,1 @@
-:barber:
+:heavy_multiplication_x:
