@@ -1,1 +1,1 @@
-:wine_glass:
+:six_pointed_star:
