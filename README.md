@@ -1,1 +1,1 @@
-:u55b6:
+:ballot_box_with_check:
