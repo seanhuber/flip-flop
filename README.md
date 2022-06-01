@@ -1,1 +1,1 @@
-:battery:
+:jack_o_lantern:
