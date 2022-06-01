@@ -1,1 +1,1 @@
-:bicyclist:
+:white_large_square:
