@@ -1,1 +1,1 @@
-:congratulations:
+:bust_in_silhouette:
