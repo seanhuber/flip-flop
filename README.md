@@ -1,1 +1,1 @@
-:notebook:
+:postal_horn:
