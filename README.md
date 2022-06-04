@@ -1,1 +1,1 @@
-:articulated_lorry:
+:tropical_drink:
