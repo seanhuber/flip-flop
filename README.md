@@ -1,1 +1,1 @@
-:clap:
+:green_heart:
