@@ -1,1 +1,1 @@
-:beginner:
+:mortar_board:
