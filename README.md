@@ -1,1 +1,1 @@
-:seven:
+:articulated_lorry:
