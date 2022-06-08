@@ -1,1 +1,1 @@
-:seven:
+:man_with_turban:
