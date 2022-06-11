@@ -1,1 +1,1 @@
-:mag:
+:point_up:
