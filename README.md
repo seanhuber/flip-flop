@@ -1,1 +1,1 @@
-:corn:
+:straight_ruler:
