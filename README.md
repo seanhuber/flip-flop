@@ -1,1 +1,1 @@
-:monkey:
+:european_castle:
