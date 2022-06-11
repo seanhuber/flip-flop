@@ -1,1 +1,1 @@
-:post_office:
+:black_square_button:
