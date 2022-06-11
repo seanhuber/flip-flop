@@ -1,1 +1,1 @@
-:point_left:
+:file_folder:
