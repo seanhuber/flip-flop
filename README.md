@@ -1,1 +1,1 @@
-:boy:
+:mag_right:
