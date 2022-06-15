@@ -1,1 +1,1 @@
-:dash:
+:small_red_triangle:
