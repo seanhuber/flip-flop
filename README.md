@@ -1,1 +1,1 @@
-:loudspeaker:
+:dromedary_camel:
