@@ -1,1 +1,1 @@
-:wrench:
+:left_luggage:
