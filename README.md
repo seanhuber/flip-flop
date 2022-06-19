@@ -1,1 +1,1 @@
-:cow2:
+:scream_cat:
