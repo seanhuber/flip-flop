@@ -1,1 +1,1 @@
-:hospital:
+:nail_care:
