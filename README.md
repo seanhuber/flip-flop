@@ -1,1 +1,1 @@
-:cocktail:
+:hotel:
