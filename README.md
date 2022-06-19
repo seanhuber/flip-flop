@@ -1,1 +1,1 @@
-:mute:
+:ice_cream:
