@@ -1,1 +1,1 @@
-:trident:
+:white_medium_square:
