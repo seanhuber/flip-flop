@@ -1,1 +1,1 @@
-:peach:
+:smile_cat:
