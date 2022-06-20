@@ -1,1 +1,1 @@
-:racehorse:
+:aerial_tramway:
