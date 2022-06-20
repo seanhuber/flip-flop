@@ -1,1 +1,1 @@
-:arrow_up_down:
+:mountain_cableway:
