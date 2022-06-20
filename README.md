@@ -1,1 +1,1 @@
-:rage:
+:small_orange_diamond:
