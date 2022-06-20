@@ -1,1 +1,1 @@
-:clapper:
+:sparkling_heart:
