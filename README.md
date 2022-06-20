@@ -1,1 +1,1 @@
-:aerial_tramway:
+:twisted_rightwards_arrows:
