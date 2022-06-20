@@ -1,1 +1,1 @@
-:smoking:
+:oncoming_automobile:
