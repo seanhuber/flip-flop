@@ -1,1 +1,1 @@
-:poultry_leg:
+:large_orange_diamond:
