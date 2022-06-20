@@ -1,1 +1,1 @@
-:clapper:
+:small_blue_diamond:
