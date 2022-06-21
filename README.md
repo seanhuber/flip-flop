@@ -1,1 +1,1 @@
-:suspect:
+:small_blue_diamond:
