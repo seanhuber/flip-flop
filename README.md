@@ -1,1 +1,1 @@
-:clock6:
+:large_blue_circle:
