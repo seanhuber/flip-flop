@@ -1,1 +1,1 @@
-:door:
+:thought_balloon:
