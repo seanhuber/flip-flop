@@ -1,1 +1,1 @@
-:smoking:
+:waxing_gibbous_moon:
