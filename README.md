@@ -1,1 +1,1 @@
-:no_good:
+:musical_keyboard:
