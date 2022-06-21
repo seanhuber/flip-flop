@@ -1,1 +1,1 @@
-:kissing:
+:hourglass:
