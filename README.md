@@ -1,1 +1,1 @@
-:stuck_out_tongue:
+:page_with_curl:
