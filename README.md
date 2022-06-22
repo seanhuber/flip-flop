@@ -1,1 +1,1 @@
-:bowling:
+:heavy_minus_sign:
