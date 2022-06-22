@@ -1,1 +1,1 @@
-:factory:
+:blue_book:
