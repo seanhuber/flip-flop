@@ -1,1 +1,1 @@
-:mushroom:
+:open_hands:
