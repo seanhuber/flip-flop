@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:hatched_chick:
