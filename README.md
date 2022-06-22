@@ -1,1 +1,1 @@
-:pager:
+:no_entry_sign:
