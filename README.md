@@ -1,1 +1,1 @@
-:balloon:
+:heavy_minus_sign:
