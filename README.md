@@ -1,1 +1,1 @@
-:guitar:
+:bullettrain_side:
