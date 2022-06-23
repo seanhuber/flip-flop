@@ -1,1 +1,1 @@
-:fast_forward:
+:white_check_mark:
