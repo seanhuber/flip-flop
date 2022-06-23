@@ -1,1 +1,1 @@
-:trolleybus:
+:blue_book:
