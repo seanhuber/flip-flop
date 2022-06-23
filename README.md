@@ -1,1 +1,1 @@
-:blue_book:
+:vertical_traffic_light:
