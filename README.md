@@ -1,1 +1,1 @@
-:santa:
+:heavy_division_sign:
