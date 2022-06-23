@@ -1,1 +1,1 @@
-:camel:
+:green_heart:
