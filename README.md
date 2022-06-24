@@ -1,1 +1,1 @@
-:anger:
+:part_alternation_mark:
