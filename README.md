@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:information_desk_person:
