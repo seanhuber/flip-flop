@@ -1,1 +1,1 @@
-:alien:
+:speak_no_evil:
