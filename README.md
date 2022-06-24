@@ -1,1 +1,1 @@
-:restroom:
+:anger:
