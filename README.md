@@ -1,1 +1,1 @@
-:seven:
+:white_large_square:
