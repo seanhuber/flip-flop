@@ -1,1 +1,1 @@
-:lock:
+:dromedary_camel:
