@@ -1,1 +1,1 @@
-:man_with_turban:
+:railway_car:
