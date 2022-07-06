@@ -1,1 +1,1 @@
-:u7533:
+:man_with_turban:
