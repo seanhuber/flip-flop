@@ -1,1 +1,1 @@
-:guardsman:
+:movie_camera:
