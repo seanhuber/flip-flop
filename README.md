@@ -1,1 +1,1 @@
-:movie_camera:
+:performing_arts:
