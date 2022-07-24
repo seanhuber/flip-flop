@@ -1,1 +1,1 @@
-:ok_woman:
+:womans_hat:
