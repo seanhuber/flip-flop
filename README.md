@@ -1,1 +1,1 @@
-:mask:
+:credit_card:
