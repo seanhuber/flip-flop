@@ -1,1 +1,1 @@
-:trollface:
+:hatching_chick:
