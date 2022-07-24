@@ -1,1 +1,1 @@
-:skull:
+:statue_of_liberty:
