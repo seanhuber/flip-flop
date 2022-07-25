@@ -1,1 +1,1 @@
-:star:
+:no_pedestrians:
