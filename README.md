@@ -1,1 +1,1 @@
-:scissors:
+:dollar:
