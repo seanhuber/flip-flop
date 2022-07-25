@@ -1,1 +1,1 @@
-:sagittarius:
+:loudspeaker:
