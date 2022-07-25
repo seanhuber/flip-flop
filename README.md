@@ -1,1 +1,1 @@
-:neckbeard:
+:telephone_receiver:
