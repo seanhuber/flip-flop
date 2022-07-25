@@ -1,1 +1,1 @@
-:no_pedestrians:
+:large_blue_diamond:
