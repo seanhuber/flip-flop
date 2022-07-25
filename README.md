@@ -1,1 +1,1 @@
-:fearful:
+:earth_americas:
