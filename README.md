@@ -1,1 +1,1 @@
-:hankey:
+:crossed_flags:
