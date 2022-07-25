@@ -1,1 +1,1 @@
-:camera:
+:bridge_at_night:
