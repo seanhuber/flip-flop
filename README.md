@@ -1,1 +1,1 @@
-:loudspeaker:
+:waxing_crescent_moon:
