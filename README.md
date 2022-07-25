@@ -1,1 +1,1 @@
-:ship:
+:mobile_phone_off:
