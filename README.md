@@ -1,1 +1,1 @@
-:dragon:
+:curly_loop:
