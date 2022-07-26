@@ -1,1 +1,1 @@
-:mahjong:
+:round_pushpin:
