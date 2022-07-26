@@ -1,1 +1,1 @@
-:corn:
+:recycle:
