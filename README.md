@@ -1,1 +1,1 @@
-:recycle:
+:construction_worker:
