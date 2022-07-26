@@ -1,1 +1,1 @@
-:wind_chime:
+:man_with_gua_pi_mao:
