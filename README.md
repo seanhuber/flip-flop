@@ -1,1 +1,1 @@
-:cupid:
+:crystal_ball:
