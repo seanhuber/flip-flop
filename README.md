@@ -1,1 +1,1 @@
-:bride_with_veil:
+:see_no_evil:
