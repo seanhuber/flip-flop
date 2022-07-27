@@ -1,1 +1,1 @@
-:hocho:
+:bride_with_veil:
