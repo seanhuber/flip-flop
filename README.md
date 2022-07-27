@@ -1,1 +1,1 @@
-:see_no_evil:
+:last_quarter_moon:
