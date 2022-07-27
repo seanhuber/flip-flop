@@ -1,1 +1,1 @@
-:barber:
+:black_nib:
