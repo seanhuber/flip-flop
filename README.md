@@ -1,1 +1,1 @@
-:surfer:
+:mobile_phone_off:
