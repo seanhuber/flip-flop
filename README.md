@@ -1,1 +1,1 @@
-:love_hotel:
+:new_moon:
