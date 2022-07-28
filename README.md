@@ -1,1 +1,1 @@
-:bell:
+:do_not_litter:
