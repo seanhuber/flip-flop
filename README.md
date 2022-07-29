@@ -1,1 +1,1 @@
-:mortar_board:
+:grey_question:
