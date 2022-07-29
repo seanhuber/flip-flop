@@ -1,1 +1,1 @@
-:shit:
+:smiling_imp:
