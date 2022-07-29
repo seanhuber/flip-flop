@@ -1,1 +1,1 @@
-:leopard:
+:rice_cracker:
