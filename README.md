@@ -1,1 +1,1 @@
-:helicopter:
+:left_right_arrow:
