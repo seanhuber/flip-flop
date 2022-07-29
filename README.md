@@ -1,1 +1,1 @@
-:ram:
+:mortar_board:
