@@ -1,1 +1,1 @@
-:japan:
+:outbox_tray:
