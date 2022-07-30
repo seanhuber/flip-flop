@@ -1,1 +1,1 @@
-:spades:
+:orange_book:
