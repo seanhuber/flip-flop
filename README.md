@@ -1,1 +1,1 @@
-:fried_shrimp:
+:point_down:
