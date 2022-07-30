@@ -1,1 +1,1 @@
-:cinema:
+:poultry_leg:
