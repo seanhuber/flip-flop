@@ -1,1 +1,1 @@
-:point_down:
+:lock_with_ink_pen:
