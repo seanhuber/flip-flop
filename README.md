@@ -1,1 +1,1 @@
-:full_moon:
+:fried_shrimp:
