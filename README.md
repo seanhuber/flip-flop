@@ -1,1 +1,1 @@
-:mountain_railway:
+:white_large_square:
