@@ -1,1 +1,1 @@
-:boar:
+:newspaper:
