@@ -1,1 +1,1 @@
-:newspaper:
+:iphone:
