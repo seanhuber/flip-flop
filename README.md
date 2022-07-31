@@ -1,1 +1,1 @@
-:coffee:
+:european_post_office:
