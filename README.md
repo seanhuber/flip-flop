@@ -1,1 +1,1 @@
-:monorail:
+:arrow_up:
