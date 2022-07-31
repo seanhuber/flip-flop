@@ -1,1 +1,1 @@
-:dolphin:
+:signal_strength:
