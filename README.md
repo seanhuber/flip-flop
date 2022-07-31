@@ -1,1 +1,1 @@
-:small_blue_diamond:
+:man_with_turban:
