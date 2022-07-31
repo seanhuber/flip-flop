@@ -1,1 +1,1 @@
-:no_good:
+:small_blue_diamond:
