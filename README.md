@@ -1,1 +1,1 @@
-:signal_strength:
+:small_orange_diamond:
