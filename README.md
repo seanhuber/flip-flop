@@ -1,1 +1,1 @@
-:cat:
+:ice_cream:
