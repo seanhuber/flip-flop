@@ -1,1 +1,1 @@
-:snowboarder:
+:city_sunset:
