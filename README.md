@@ -1,1 +1,1 @@
-:information_desk_person:
+:diamond_shape_with_a_dot_inside:
