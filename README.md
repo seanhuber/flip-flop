@@ -1,1 +1,1 @@
-:person_with_blond_hair:
+:chart_with_upwards_trend:
