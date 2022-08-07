@@ -1,1 +1,1 @@
-:tractor:
+:vertical_traffic_light:
