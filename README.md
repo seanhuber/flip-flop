@@ -1,1 +1,1 @@
-:chocolate_bar:
+:blue_book:
