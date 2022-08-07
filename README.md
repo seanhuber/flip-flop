@@ -1,1 +1,1 @@
-:vertical_traffic_light:
+:mountain_cableway:
