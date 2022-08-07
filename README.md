@@ -1,1 +1,1 @@
-:blue_book:
+:white_medium_square:
