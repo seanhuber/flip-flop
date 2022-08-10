@@ -1,1 +1,1 @@
-:crossed_flags:
+:maple_leaf:
