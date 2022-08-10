@@ -1,1 +1,1 @@
-:tiger2:
+:baby_symbol:
