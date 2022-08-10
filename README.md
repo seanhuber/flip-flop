@@ -1,1 +1,1 @@
-:wheelchair:
+:crossed_flags:
