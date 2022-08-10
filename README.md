@@ -1,1 +1,1 @@
-:kissing_cat:
+:incoming_envelope:
