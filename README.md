@@ -1,1 +1,1 @@
-:japanese_castle:
+:new_moon_with_face:
