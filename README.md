@@ -1,1 +1,1 @@
-:baby_symbol:
+:globe_with_meridians:
