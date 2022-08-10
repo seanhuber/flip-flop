@@ -1,1 +1,1 @@
-:maple_leaf:
+:hatching_chick:
