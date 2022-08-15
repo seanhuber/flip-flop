@@ -1,1 +1,1 @@
-:wedding:
+:battery:
