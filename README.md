@@ -1,1 +1,1 @@
-:cl:
+:vertical_traffic_light:
