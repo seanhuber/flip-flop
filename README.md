@@ -1,1 +1,1 @@
-:cat:
+:part_alternation_mark:
