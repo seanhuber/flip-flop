@@ -1,1 +1,1 @@
-:baggage_claim:
+:sun_with_face:
