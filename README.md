@@ -1,1 +1,1 @@
-:seedling:
+:deciduous_tree:
