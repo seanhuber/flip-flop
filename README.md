@@ -1,1 +1,1 @@
-:tada:
+:waning_crescent_moon:
