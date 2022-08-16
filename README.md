@@ -1,1 +1,1 @@
-:fireworks:
+:black_square_button:
