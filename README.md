@@ -1,1 +1,1 @@
-:earth_africa:
+:cold_sweat:
