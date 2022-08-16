@@ -1,1 +1,1 @@
-:hourglass:
+:fish_cake:
