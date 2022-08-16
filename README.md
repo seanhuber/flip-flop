@@ -1,1 +1,1 @@
-:hamburger:
+:baby_chick:
