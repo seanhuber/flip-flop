@@ -1,1 +1,1 @@
-:wheelchair:
+:repeat_one:
