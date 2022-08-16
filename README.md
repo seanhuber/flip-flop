@@ -1,1 +1,1 @@
-:ribbon:
+:city_sunset:
