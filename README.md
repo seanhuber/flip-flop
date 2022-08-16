@@ -1,1 +1,1 @@
-:dango:
+:six_pointed_star:
