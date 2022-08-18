@@ -1,1 +1,1 @@
-:bamboo:
+:black_square_button:
