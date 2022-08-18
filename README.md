@@ -1,1 +1,1 @@
-:punch:
+:jack_o_lantern:
