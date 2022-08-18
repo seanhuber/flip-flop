@@ -1,1 +1,1 @@
-:point_up_2:
+:oncoming_automobile:
