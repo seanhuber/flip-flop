@@ -1,1 +1,1 @@
-:baggage_claim:
+:heavy_dollar_sign:
