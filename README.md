@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:arrow_heading_down:
