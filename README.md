@@ -1,1 +1,1 @@
-:black_square_button:
+:baggage_claim:
