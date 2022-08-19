@@ -1,1 +1,1 @@
-:raised_hand:
+:partly_sunny:
