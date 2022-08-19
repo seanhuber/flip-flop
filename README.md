@@ -1,1 +1,1 @@
-:beers:
+:rugby_football:
