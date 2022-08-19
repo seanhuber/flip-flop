@@ -1,1 +1,1 @@
-:partly_sunny:
+:low_brightness:
