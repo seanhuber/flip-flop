@@ -1,1 +1,1 @@
-:ghost:
+:raised_hand:
