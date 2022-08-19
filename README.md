@@ -1,1 +1,1 @@
-:relaxed:
+:heavy_minus_sign:
