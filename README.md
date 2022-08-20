@@ -1,1 +1,1 @@
-:car:
+:raising_hand:
