@@ -1,1 +1,1 @@
-:tokyo_tower:
+:ferris_wheel:
