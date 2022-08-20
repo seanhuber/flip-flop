@@ -1,1 +1,1 @@
-:8ball:
+:wind_chime:
