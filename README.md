@@ -1,1 +1,1 @@
-:person_frowning:
+:white_square_button:
