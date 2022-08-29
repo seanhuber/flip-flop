@@ -1,1 +1,1 @@
-:interrobang:
+:japanese_ogre:
