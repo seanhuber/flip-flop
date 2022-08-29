@@ -1,1 +1,1 @@
-:couple:
+:mag:
