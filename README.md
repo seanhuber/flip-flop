@@ -1,1 +1,1 @@
-:potable_water:
+:black_small_square:
