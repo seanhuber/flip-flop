@@ -1,1 +1,1 @@
-:koko:
+:potable_water:
