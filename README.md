@@ -1,1 +1,1 @@
-:swimmer:
+:school_satchel:
