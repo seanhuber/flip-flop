@@ -1,1 +1,1 @@
-:tractor:
+:white_circle:
