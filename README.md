@@ -1,1 +1,1 @@
-:bullettrain_side:
+:heavy_multiplication_x:
