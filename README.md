@@ -1,1 +1,1 @@
-:stars:
+:couple_with_heart:
