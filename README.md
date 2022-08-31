@@ -1,1 +1,1 @@
-:cow:
+:smiley_cat:
