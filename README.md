@@ -1,1 +1,1 @@
-:tokyo_tower:
+:city_sunrise:
