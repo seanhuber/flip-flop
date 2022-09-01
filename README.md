@@ -1,1 +1,1 @@
-:city_sunrise:
+:kissing_cat:
