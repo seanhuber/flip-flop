@@ -1,1 +1,1 @@
-:arrow_up_small:
+:waxing_crescent_moon:
