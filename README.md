@@ -1,1 +1,1 @@
-:punch:
+:small_red_triangle:
