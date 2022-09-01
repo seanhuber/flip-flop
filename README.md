@@ -1,1 +1,1 @@
-:tiger:
+:cold_sweat:
