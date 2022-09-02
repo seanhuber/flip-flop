@@ -1,1 +1,1 @@
-:black_small_square:
+:straight_ruler:
