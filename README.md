@@ -1,1 +1,1 @@
-:baby_bottle:
+:white_medium_small_square:
