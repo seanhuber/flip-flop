@@ -1,1 +1,1 @@
-:fries:
+:black_small_square:
