@@ -1,1 +1,1 @@
-:speaker:
+:kr:
