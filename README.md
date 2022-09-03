@@ -1,1 +1,1 @@
-:kr:
+:fried_shrimp:
