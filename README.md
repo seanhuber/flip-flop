@@ -1,1 +1,1 @@
-:pager:
+:six_pointed_star:
