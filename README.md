@@ -1,1 +1,1 @@
-:golf:
+:horse_racing:
