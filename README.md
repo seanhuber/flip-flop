@@ -1,1 +1,1 @@
-:six:
+:mount_fuji:
