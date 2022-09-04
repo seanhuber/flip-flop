@@ -1,1 +1,1 @@
-:jp:
+:arrow_double_down:
