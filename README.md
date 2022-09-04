@@ -1,1 +1,1 @@
-:mega:
+:ok_woman:
