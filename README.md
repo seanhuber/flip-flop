@@ -1,1 +1,1 @@
-:horse_racing:
+:heavy_multiplication_x:
