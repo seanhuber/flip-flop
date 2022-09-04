@@ -1,1 +1,1 @@
-:bathtub:
+:ear_of_rice:
