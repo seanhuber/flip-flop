@@ -1,1 +1,1 @@
-:ear_of_rice:
+:speech_balloon:
