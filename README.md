@@ -1,1 +1,1 @@
-:bowtie:
+:currency_exchange:
