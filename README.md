@@ -1,1 +1,1 @@
-:necktie:
+:waxing_gibbous_moon:
