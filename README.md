@@ -1,1 +1,1 @@
-:birthday:
+:mag_right:
