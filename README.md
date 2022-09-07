@@ -1,1 +1,1 @@
-:chicken:
+:bar_chart:
