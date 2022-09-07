@@ -1,1 +1,1 @@
-:facepunch:
+:necktie:
