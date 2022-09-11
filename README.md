@@ -1,1 +1,1 @@
-:bike:
+:speech_balloon:
