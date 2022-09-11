@@ -1,1 +1,1 @@
-:vhs:
+:aerial_tramway:
