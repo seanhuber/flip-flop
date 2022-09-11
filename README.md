@@ -1,1 +1,1 @@
-:scorpius:
+:left_luggage:
