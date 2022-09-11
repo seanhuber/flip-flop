@@ -1,1 +1,1 @@
-:u7a7a:
+:ideograph_advantage:
