@@ -1,1 +1,1 @@
-:simple_smile:
+:scream_cat:
