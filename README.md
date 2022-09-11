@@ -1,1 +1,1 @@
-:left_luggage:
+:simple_smile:
