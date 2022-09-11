@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:money_with_wings:
