@@ -1,1 +1,1 @@
-:green_apple:
+:rabbit2:
