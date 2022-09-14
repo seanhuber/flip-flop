@@ -1,1 +1,1 @@
-:trophy:
+:ok_woman:
