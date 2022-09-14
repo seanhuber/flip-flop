@@ -1,1 +1,1 @@
-:heart_decoration:
+:honey_pot:
