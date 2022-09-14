@@ -1,1 +1,1 @@
-:gem:
+:credit_card:
