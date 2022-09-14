@@ -1,1 +1,1 @@
-:microphone:
+:inbox_tray:
