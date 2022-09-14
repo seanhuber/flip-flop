@@ -1,1 +1,1 @@
-:skull:
+:curly_loop:
