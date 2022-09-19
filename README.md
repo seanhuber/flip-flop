@@ -1,1 +1,1 @@
-:cinema:
+:construction_worker:
