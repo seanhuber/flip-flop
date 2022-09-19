@@ -1,1 +1,1 @@
-:telephone_receiver:
+:arrow_up_small:
