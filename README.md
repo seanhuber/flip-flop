@@ -1,1 +1,1 @@
-:hotel:
+:telephone_receiver:
