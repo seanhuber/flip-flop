@@ -1,1 +1,1 @@
-:loudspeaker:
+:bullettrain_front:
