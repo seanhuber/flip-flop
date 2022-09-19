@@ -1,1 +1,1 @@
-:mouse:
+:dromedary_camel:
