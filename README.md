@@ -1,1 +1,1 @@
-:sunglasses:
+:performing_arts:
