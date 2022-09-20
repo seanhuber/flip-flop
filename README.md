@@ -1,1 +1,1 @@
-:bullettrain_front:
+:red_circle:
