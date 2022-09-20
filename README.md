@@ -1,1 +1,1 @@
-:koko:
+:arrow_forward:
