@@ -1,1 +1,1 @@
-:red_circle:
+:black_nib:
