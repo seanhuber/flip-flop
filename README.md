@@ -1,1 +1,1 @@
-:ghost:
+:whale2:
