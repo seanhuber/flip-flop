@@ -1,1 +1,1 @@
-:department_store:
+:arrow_double_down:
