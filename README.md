@@ -1,1 +1,1 @@
-:grinning:
+:black_large_square:
