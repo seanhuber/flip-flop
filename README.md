@@ -1,1 +1,1 @@
-:bangbang:
+:department_store:
