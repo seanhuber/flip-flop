@@ -1,1 +1,1 @@
-:microphone:
+:heavy_multiplication_x:
