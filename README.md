@@ -1,1 +1,1 @@
-:sagittarius:
+:horse:
