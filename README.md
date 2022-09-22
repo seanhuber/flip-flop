@@ -1,1 +1,1 @@
-:thought_balloon:
+:white_square_button:
