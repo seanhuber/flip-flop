@@ -1,1 +1,1 @@
-:telephone:
+:white_circle:
