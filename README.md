@@ -1,1 +1,1 @@
-:poodle:
+:hourglass:
