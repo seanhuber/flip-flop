@@ -1,1 +1,1 @@
-:boom:
+:orange_book:
