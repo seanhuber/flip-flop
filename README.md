@@ -1,1 +1,1 @@
-:truck:
+:heart_decoration:
