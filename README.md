@@ -1,1 +1,1 @@
-:hearts:
+:earth_asia:
