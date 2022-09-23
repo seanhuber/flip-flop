@@ -1,1 +1,1 @@
-:sunglasses:
+:movie_camera:
