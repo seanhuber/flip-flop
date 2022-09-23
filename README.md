@@ -1,1 +1,1 @@
-:movie_camera:
+:black_large_square:
