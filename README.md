@@ -1,1 +1,1 @@
-:earth_asia:
+:ok_hand:
