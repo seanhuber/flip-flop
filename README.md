@@ -1,1 +1,1 @@
-:snowflake:
+:light_rail:
