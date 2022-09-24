@@ -1,1 +1,1 @@
-:factory:
+:grey_question:
