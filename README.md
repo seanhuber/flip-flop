@@ -1,1 +1,1 @@
-:watch:
+:slot_machine:
