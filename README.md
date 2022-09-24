@@ -1,1 +1,1 @@
-:light_rail:
+:city_sunset:
