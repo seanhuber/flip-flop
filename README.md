@@ -1,1 +1,1 @@
-:blue_book:
+:cow2:
