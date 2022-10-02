@@ -1,1 +1,1 @@
-:haircut:
+:crossed_flags:
