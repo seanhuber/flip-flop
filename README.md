@@ -1,1 +1,1 @@
-:pencil2:
+:blue_book:
