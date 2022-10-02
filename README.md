@@ -1,1 +1,1 @@
-:beginner:
+:large_blue_circle:
