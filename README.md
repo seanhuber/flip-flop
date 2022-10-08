@@ -1,1 +1,1 @@
-:rooster:
+:raised_hand:
