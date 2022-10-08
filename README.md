@@ -1,1 +1,1 @@
-:curry:
+:stuck_out_tongue:
