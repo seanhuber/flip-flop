@@ -1,1 +1,1 @@
-:eyes:
+:no_bell:
