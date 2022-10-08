@@ -1,1 +1,1 @@
-:ru:
+:radio_button:
