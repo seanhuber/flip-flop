@@ -1,1 +1,1 @@
-:gun:
+:currency_exchange:
