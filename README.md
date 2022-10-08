@@ -1,1 +1,1 @@
-:tangerine:
+:green_book:
