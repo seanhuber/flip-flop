@@ -1,1 +1,1 @@
-:computer:
+:floppy_disk:
