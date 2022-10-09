@@ -1,1 +1,1 @@
-:dog:
+:ice_cream:
