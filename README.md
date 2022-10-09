@@ -1,1 +1,1 @@
-:white_flower:
+:joy_cat:
