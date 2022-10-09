@@ -1,1 +1,1 @@
-:neutral_face:
+:white_flower:
