@@ -1,1 +1,1 @@
-:pisces:
+:computer:
