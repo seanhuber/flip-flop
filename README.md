@@ -1,1 +1,1 @@
-:school:
+:bullettrain_side:
