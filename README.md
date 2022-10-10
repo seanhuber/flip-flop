@@ -1,1 +1,1 @@
-:heart_decoration:
+:waning_gibbous_moon:
