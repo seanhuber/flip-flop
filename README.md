@@ -1,1 +1,1 @@
-:mega:
+:nut_and_bolt:
