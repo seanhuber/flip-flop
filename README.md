@@ -1,1 +1,1 @@
-:city_sunset:
+:white_medium_small_square:
