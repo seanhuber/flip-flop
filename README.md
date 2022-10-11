@@ -1,1 +1,1 @@
-:sailboat:
+:floppy_disk:
