@@ -1,1 +1,1 @@
-:vs:
+:carousel_horse:
