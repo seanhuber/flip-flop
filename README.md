@@ -1,1 +1,1 @@
-:fu:
+:japanese_ogre:
