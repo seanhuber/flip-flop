@@ -1,1 +1,1 @@
-:japanese_ogre:
+:suspension_railway:
