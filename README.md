@@ -1,1 +1,1 @@
-:zzz:
+:small_orange_diamond:
