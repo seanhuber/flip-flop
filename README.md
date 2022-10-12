@@ -1,1 +1,1 @@
-:red_circle:
+:shaved_ice:
