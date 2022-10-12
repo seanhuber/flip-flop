@@ -1,1 +1,1 @@
-:neckbeard:
+:baby_chick:
