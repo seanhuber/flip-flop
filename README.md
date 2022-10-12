@@ -1,1 +1,1 @@
-:snowman:
+:page_with_curl:
