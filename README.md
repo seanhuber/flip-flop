@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:waning_gibbous_moon:
