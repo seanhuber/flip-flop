@@ -1,1 +1,1 @@
-:beers:
+:globe_with_meridians:
