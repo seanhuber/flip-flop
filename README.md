@@ -1,1 +1,1 @@
-:kissing_heart:
+:ok_woman:
