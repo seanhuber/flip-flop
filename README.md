@@ -1,1 +1,1 @@
-:wind_chime:
+:video_game:
