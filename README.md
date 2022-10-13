@@ -1,1 +1,1 @@
-:two_women_holding_hands:
+:last_quarter_moon:
