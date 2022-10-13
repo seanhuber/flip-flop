@@ -1,1 +1,1 @@
-:godmode:
+:dromedary_camel:
