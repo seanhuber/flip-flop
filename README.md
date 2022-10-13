@@ -1,1 +1,1 @@
-:dromedary_camel:
+:open_hands:
