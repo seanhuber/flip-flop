@@ -1,1 +1,1 @@
-:bell:
+:kissing_closed_eyes:
