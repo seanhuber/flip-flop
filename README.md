@@ -1,1 +1,1 @@
-:pound:
+:heavy_plus_sign:
