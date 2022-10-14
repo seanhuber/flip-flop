@@ -1,1 +1,1 @@
-:mail:
+:video_game:
