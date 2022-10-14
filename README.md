@@ -1,1 +1,1 @@
-:crossed_flags:
+:keycap_ten:
