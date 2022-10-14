@@ -1,1 +1,1 @@
-:boy:
+:joy_cat:
