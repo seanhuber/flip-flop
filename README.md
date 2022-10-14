@@ -1,1 +1,1 @@
-:stars:
+:bullettrain_side:
