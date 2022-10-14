@@ -1,1 +1,1 @@
-:yen:
+:baggage_claim:
