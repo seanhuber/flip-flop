@@ -1,1 +1,1 @@
-:arrow_double_down:
+:blue_car:
