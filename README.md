@@ -1,1 +1,1 @@
-:sunny:
+:arrow_double_down:
