@@ -1,1 +1,1 @@
-:shirt:
+:globe_with_meridians:
