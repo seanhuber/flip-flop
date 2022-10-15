@@ -1,1 +1,1 @@
-:cookie:
+:traffic_light:
