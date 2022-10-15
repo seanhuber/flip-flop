@@ -1,1 +1,1 @@
-:tram:
+:left_luggage:
