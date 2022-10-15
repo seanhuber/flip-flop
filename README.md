@@ -1,1 +1,1 @@
-:doughnut:
+:black_medium_square:
