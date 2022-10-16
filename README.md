@@ -1,1 +1,1 @@
-:relaxed:
+:potable_water:
