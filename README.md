@@ -1,1 +1,1 @@
-:seven:
+:video_camera:
