@@ -1,1 +1,1 @@
-:video_camera:
+:water_buffalo:
