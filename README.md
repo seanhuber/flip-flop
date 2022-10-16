@@ -1,1 +1,1 @@
-:kr:
+:baby_chick:
