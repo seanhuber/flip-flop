@@ -1,1 +1,1 @@
-:black_nib:
+:chocolate_bar:
