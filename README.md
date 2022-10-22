@@ -1,1 +1,1 @@
-:sunny:
+:dollar:
