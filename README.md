@@ -1,1 +1,1 @@
-:floppy_disk:
+:kissing_closed_eyes:
