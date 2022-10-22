@@ -1,1 +1,1 @@
-:yum:
+:black_large_square:
