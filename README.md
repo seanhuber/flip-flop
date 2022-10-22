@@ -1,1 +1,1 @@
-:hatched_chick:
+:christmas_tree:
