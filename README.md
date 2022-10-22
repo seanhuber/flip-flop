@@ -1,1 +1,1 @@
-:unamused:
+:floppy_disk:
