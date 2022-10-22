@@ -1,1 +1,1 @@
-:seat:
+:hatched_chick:
