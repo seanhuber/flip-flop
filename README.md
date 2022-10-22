@@ -1,1 +1,1 @@
-:spades:
+:moyai:
