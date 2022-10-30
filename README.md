@@ -1,1 +1,1 @@
-:dolls:
+:white_medium_square:
