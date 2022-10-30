@@ -1,1 +1,1 @@
-:cinema:
+:heavy_dollar_sign:
