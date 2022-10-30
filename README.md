@@ -1,1 +1,1 @@
-:earth_asia:
+:sunrise_over_mountains:
