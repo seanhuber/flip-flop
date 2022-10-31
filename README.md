@@ -1,1 +1,1 @@
-:fu:
+:green_heart:
