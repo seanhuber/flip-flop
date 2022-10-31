@@ -1,1 +1,1 @@
-:bulb:
+:black_square_button:
