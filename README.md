@@ -1,1 +1,1 @@
-:angel:
+:bar_chart:
