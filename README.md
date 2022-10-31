@@ -1,1 +1,1 @@
-:art:
+:bullettrain_side:
