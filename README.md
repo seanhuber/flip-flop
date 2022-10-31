@@ -1,1 +1,1 @@
-:bar_chart:
+:thought_balloon:
