@@ -1,1 +1,1 @@
-:black_square_button:
+:kissing_closed_eyes:
