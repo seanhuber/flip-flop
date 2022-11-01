@@ -1,1 +1,1 @@
-:chicken:
+:sweat_smile:
