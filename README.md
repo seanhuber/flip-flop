@@ -1,1 +1,1 @@
-:sweat_smile:
+:blue_book:
