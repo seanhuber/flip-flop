@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:bust_in_silhouette:
