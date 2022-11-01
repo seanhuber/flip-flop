@@ -1,1 +1,1 @@
-:bust_in_silhouette:
+:wind_chime:
