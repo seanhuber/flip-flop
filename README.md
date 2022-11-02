@@ -1,1 +1,1 @@
-:moyai:
+:rugby_football:
