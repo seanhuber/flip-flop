@@ -1,1 +1,1 @@
-:currency_exchange:
+:carousel_horse:
