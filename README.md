@@ -1,1 +1,1 @@
-:pineapple:
+:aerial_tramway:
