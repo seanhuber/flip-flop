@@ -1,1 +1,1 @@
-:godmode:
+:money_with_wings:
