@@ -1,1 +1,1 @@
-:japanese_ogre:
+:currency_exchange:
