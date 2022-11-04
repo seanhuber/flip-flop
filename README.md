@@ -1,1 +1,1 @@
-:department_store:
+:alarm_clock:
