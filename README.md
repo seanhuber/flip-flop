@@ -1,1 +1,1 @@
-:seat:
+:raised_hands:
