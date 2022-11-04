@@ -1,1 +1,1 @@
-:broken_heart:
+:game_die:
