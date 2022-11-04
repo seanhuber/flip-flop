@@ -1,1 +1,1 @@
-:cool:
+:page_facing_up:
