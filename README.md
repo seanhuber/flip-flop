@@ -1,1 +1,1 @@
-:hotsprings:
+:curly_loop:
