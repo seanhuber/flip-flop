@@ -1,1 +1,1 @@
-:restroom:
+:smile_cat:
