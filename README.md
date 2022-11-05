@@ -1,1 +1,1 @@
-:love_hotel:
+:repeat_one:
