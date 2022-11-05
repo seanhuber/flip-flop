@@ -1,1 +1,1 @@
-:frog:
+:busts_in_silhouette:
