@@ -1,1 +1,1 @@
-:mailbox_closed:
+:triangular_ruler:
