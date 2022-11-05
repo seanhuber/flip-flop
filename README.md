@@ -1,1 +1,1 @@
-:briefcase:
+:love_hotel:
