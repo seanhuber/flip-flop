@@ -1,1 +1,1 @@
-:smirk:
+:sweat_drops:
