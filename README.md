@@ -1,1 +1,1 @@
-:japanese_castle:
+:musical_score:
