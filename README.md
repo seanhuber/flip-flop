@@ -1,1 +1,1 @@
-:hand:
+:vertical_traffic_light:
