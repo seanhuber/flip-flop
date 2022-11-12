@@ -1,1 +1,1 @@
-:repeat_one:
+:japanese_castle:
