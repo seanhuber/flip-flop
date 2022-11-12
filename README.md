@@ -1,1 +1,1 @@
-:gift_heart:
+:two_hearts:
