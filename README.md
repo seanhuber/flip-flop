@@ -1,1 +1,1 @@
-:water_buffalo:
+:potable_water:
