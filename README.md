@@ -1,1 +1,1 @@
-:potable_water:
+:repeat_one:
