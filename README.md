@@ -1,1 +1,1 @@
-:sparkle:
+:maple_leaf:
