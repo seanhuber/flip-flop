@@ -1,1 +1,1 @@
-:arrow_up:
+:crystal_ball:
