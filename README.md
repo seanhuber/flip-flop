@@ -1,1 +1,1 @@
-:cry:
+:electric_plug:
