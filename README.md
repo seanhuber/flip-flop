@@ -1,1 +1,1 @@
-:wine_glass:
+:mailbox_closed:
