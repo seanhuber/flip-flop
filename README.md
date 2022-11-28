@@ -1,1 +1,1 @@
-:arrow_up_small:
+:file_folder:
