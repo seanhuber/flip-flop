@@ -1,1 +1,1 @@
-:tv:
+:partly_sunny:
