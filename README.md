@@ -1,1 +1,1 @@
-:vibration_mode:
+:neutral_face:
