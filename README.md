@@ -1,1 +1,1 @@
-:circus_tent:
+:ear_of_rice:
