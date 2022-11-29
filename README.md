@@ -1,1 +1,1 @@
-:wavy_dash:
+:vibration_mode:
