@@ -1,1 +1,1 @@
-:bike:
+:womans_hat:
