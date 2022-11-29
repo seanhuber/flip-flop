@@ -1,1 +1,1 @@
-:de:
+:wavy_dash:
