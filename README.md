@@ -1,1 +1,1 @@
-:lipstick:
+:cupid:
