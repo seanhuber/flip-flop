@@ -1,1 +1,1 @@
-:mask:
+:love_letter:
