@@ -1,1 +1,1 @@
-:umbrella:
+:bar_chart:
