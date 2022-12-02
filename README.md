@@ -1,1 +1,1 @@
-:dancer:
+:rice_ball:
