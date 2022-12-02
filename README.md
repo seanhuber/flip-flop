@@ -1,1 +1,1 @@
-:pizza:
+:hatching_chick:
