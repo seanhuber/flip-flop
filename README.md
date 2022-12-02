@@ -1,1 +1,1 @@
-:busstop:
+:jack_o_lantern:
