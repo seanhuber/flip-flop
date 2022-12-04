@@ -1,1 +1,1 @@
-:mushroom:
+:performing_arts:
