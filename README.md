@@ -1,1 +1,1 @@
-:rice_cracker:
+:high_brightness:
