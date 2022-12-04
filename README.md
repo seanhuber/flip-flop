@@ -1,1 +1,1 @@
-:blue_heart:
+:rice_cracker:
