@@ -1,1 +1,1 @@
-:loudspeaker:
+:crescent_moon:
