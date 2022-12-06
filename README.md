@@ -1,1 +1,1 @@
-:passport_control:
+:game_die:
