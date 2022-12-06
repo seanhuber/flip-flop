@@ -1,1 +1,1 @@
-:whale:
+:snail:
