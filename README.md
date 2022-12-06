@@ -1,1 +1,1 @@
-:game_die:
+:mortar_board:
