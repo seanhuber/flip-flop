@@ -1,1 +1,1 @@
-:rainbow:
+:part_alternation_mark:
