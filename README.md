@@ -1,1 +1,1 @@
-:minibus:
+:hotel:
