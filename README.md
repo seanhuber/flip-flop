@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:milky_way:
