@@ -1,1 +1,1 @@
-:necktie:
+:repeat_one:
