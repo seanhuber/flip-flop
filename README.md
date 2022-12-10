@@ -1,1 +1,1 @@
-:wedding:
+:oncoming_automobile:
