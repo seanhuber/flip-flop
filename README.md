@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:arrow_up:
