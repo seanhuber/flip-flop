@@ -1,1 +1,1 @@
-:milky_way:
+:wavy_dash:
