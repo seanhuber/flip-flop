@@ -1,1 +1,1 @@
-:department_store:
+:sweat_drops:
