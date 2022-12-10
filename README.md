@@ -1,1 +1,1 @@
-:car:
+:ambulance:
