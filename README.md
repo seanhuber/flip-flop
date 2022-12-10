@@ -1,1 +1,1 @@
-:sweat_drops:
+:arrow_double_up:
