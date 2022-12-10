@@ -1,1 +1,1 @@
-:angel:
+:left_luggage:
