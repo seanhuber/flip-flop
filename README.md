@@ -1,1 +1,1 @@
-:ambulance:
+:arrow_lower_left:
