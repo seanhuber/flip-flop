@@ -1,1 +1,1 @@
-:wave:
+:department_store:
