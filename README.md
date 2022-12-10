@@ -1,1 +1,1 @@
-:left_luggage:
+:space_invader:
