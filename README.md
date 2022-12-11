@@ -1,1 +1,1 @@
-:leo:
+:rotating_light:
