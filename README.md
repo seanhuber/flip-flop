@@ -1,1 +1,1 @@
-:libra:
+:white_check_mark:
