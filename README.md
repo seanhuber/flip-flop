@@ -1,1 +1,1 @@
-:earth_africa:
+:kissing_smiling_eyes:
