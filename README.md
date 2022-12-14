@@ -1,1 +1,1 @@
-:banana:
+:milky_way:
