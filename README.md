@@ -1,1 +1,1 @@
-:cd:
+:european_post_office:
