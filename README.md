@@ -1,1 +1,1 @@
-:hotel:
+:no_bell:
