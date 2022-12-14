@@ -1,1 +1,1 @@
-:no_bell:
+:low_brightness:
