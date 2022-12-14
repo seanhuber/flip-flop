@@ -1,1 +1,1 @@
-:roller_coaster:
+:open_file_folder:
