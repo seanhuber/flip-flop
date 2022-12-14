@@ -1,1 +1,1 @@
-:question:
+:chocolate_bar:
