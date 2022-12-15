@@ -1,1 +1,1 @@
-:book:
+:raised_hands:
