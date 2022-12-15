@@ -1,1 +1,1 @@
-:pouting_cat:
+:busts_in_silhouette:
