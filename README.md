@@ -1,1 +1,1 @@
-:train2:
+:small_blue_diamond:
