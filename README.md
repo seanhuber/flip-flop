@@ -1,1 +1,1 @@
-:door:
+:tired_face:
