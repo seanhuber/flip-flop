@@ -1,1 +1,1 @@
-:ghost:
+:twisted_rightwards_arrows:
