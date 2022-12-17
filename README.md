@@ -1,1 +1,1 @@
-:space_invader:
+:point_right:
