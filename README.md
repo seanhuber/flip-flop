@@ -1,1 +1,1 @@
-:point_right:
+:cupid:
