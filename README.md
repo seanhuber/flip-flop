@@ -1,1 +1,1 @@
-:hatching_chick:
+:full_moon_with_face:
