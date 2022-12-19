@@ -1,1 +1,1 @@
-:turtle:
+:hatching_chick:
