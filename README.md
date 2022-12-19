@@ -1,1 +1,1 @@
-:penguin:
+:fork_and_knife:
