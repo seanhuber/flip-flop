@@ -1,1 +1,1 @@
-:mailbox_closed:
+:black_medium_small_square:
