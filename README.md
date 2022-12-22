@@ -1,1 +1,1 @@
-:point_up_2:
+:mailbox_closed:
