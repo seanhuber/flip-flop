@@ -1,1 +1,1 @@
-:cactus:
+:point_up_2:
