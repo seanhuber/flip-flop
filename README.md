@@ -1,1 +1,1 @@
-:crystal_ball:
+:european_castle:
