@@ -1,1 +1,1 @@
-:scroll:
+:fast_forward:
