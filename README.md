@@ -1,1 +1,1 @@
-:bell:
+:guitar:
