@@ -1,1 +1,1 @@
-:sparkles:
+:raised_hand:
