@@ -1,1 +1,1 @@
-:melon:
+:pill:
