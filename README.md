@@ -1,1 +1,1 @@
-:white_medium_square:
+:bookmark_tabs:
