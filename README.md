@@ -1,1 +1,1 @@
-:hourglass:
+:last_quarter_moon:
