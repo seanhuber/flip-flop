@@ -1,1 +1,1 @@
-:blossom:
+:waxing_crescent_moon:
