@@ -1,1 +1,1 @@
-:tophat:
+:baby_chick:
