@@ -1,1 +1,1 @@
-:card_index:
+:ok_hand:
