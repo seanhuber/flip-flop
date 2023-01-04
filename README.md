@@ -1,1 +1,1 @@
-:briefcase:
+:incoming_envelope:
