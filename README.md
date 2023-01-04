@@ -1,1 +1,1 @@
-:finnadie:
+:vertical_traffic_light:
