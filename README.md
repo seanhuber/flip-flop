@@ -1,1 +1,1 @@
-:tropical_fish:
+:floppy_disk:
