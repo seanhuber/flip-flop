@@ -1,1 +1,1 @@
-:gift:
+:japanese_castle:
