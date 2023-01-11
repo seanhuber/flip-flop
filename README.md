@@ -1,1 +1,1 @@
-:dragon:
+:money_with_wings:
