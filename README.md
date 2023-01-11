@@ -1,1 +1,1 @@
-:japanese_castle:
+:arrow_down_small:
