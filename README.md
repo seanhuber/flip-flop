@@ -1,1 +1,1 @@
-:ok_hand:
+:point_up_2:
