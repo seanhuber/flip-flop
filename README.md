@@ -1,1 +1,1 @@
-:dollar:
+:clock12:
