@@ -1,1 +1,1 @@
-:cyclone:
+:mans_shoe:
