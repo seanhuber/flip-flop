@@ -1,1 +1,1 @@
-:clap:
+:no_mouth:
