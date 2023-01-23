@@ -1,1 +1,1 @@
-:hamburger:
+:no_mobile_phones:
