@@ -1,1 +1,1 @@
-:jeans:
+:construction_worker:
