@@ -1,1 +1,1 @@
-:boy:
+:department_store:
