@@ -1,1 +1,1 @@
-:tiger:
+:mountain_cableway:
