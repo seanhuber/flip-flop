@@ -1,1 +1,1 @@
-:sparkler:
+:raising_hand:
