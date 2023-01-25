@@ -1,1 +1,1 @@
-:cinema:
+:cold_sweat:
