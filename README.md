@@ -1,1 +1,1 @@
-:stars:
+:white_flower:
