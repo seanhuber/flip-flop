@@ -1,1 +1,1 @@
-:joy:
+:railway_car:
