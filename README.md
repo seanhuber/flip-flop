@@ -1,1 +1,1 @@
-:stuck_out_tongue_closed_eyes:
+:white_medium_small_square:
