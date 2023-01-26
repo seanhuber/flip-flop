@@ -1,1 +1,1 @@
-:paw_prints:
+:sweet_potato:
