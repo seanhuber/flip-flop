@@ -1,1 +1,1 @@
-:sweet_potato:
+:u55b6:
