@@ -1,1 +1,1 @@
-:sparkles:
+:rotating_light:
