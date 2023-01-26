@@ -1,1 +1,1 @@
-:tiger:
+:red_circle:
