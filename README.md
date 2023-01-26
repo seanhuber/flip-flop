@@ -1,1 +1,1 @@
-:performing_arts:
+:ear_of_rice:
