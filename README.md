@@ -1,1 +1,1 @@
-:red_circle:
+:paw_prints:
