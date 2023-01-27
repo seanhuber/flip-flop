@@ -1,1 +1,1 @@
-:eight:
+:earth_africa:
