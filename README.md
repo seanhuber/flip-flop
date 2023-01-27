@@ -1,1 +1,1 @@
-:red_car:
+:oncoming_bus:
