@@ -1,1 +1,1 @@
-:ok_hand:
+:white_medium_small_square:
