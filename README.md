@@ -1,1 +1,1 @@
-:camel:
+:ok_hand:
