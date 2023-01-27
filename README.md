@@ -1,1 +1,1 @@
-:rat:
+:first_quarter_moon:
