@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:ideograph_advantage:
