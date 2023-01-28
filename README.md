@@ -1,1 +1,1 @@
-:wrench:
+:vertical_traffic_light:
