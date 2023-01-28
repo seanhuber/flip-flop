@@ -1,1 +1,1 @@
-:house_with_garden:
+:last_quarter_moon:
