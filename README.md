@@ -1,1 +1,1 @@
-:city_sunset:
+:waxing_crescent_moon:
