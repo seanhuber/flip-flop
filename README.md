@@ -1,1 +1,1 @@
-:card_index:
+:heavy_plus_sign:
