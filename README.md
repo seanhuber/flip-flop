@@ -1,1 +1,1 @@
-:baby_symbol:
+:green_book:
