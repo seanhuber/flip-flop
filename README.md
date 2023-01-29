@@ -1,1 +1,1 @@
-:repeat:
+:white_large_square:
