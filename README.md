@@ -1,1 +1,1 @@
-:no_mouth:
+:no_good:
