@@ -1,1 +1,1 @@
-:heartpulse:
+:no_mouth:
