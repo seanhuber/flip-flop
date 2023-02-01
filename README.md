@@ -1,1 +1,1 @@
-:racehorse:
+:black_small_square:
