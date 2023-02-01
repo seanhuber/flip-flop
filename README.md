@@ -1,1 +1,1 @@
-:green_apple:
+:fries:
