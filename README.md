@@ -1,1 +1,1 @@
-:no_good:
+:no_mobile_phones:
