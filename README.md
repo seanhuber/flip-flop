@@ -1,1 +1,1 @@
-:nose:
+:arrows_counterclockwise:
