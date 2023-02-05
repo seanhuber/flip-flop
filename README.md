@@ -1,1 +1,1 @@
-:tram:
+:point_up_2:
