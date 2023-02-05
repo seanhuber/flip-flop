@@ -1,1 +1,1 @@
-:ship:
+:convenience_store:
