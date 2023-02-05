@@ -1,1 +1,1 @@
-:necktie:
+:japanese_castle:
