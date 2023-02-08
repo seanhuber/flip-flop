@@ -1,1 +1,1 @@
-:snowflake:
+:point_right:
