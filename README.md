@@ -1,1 +1,1 @@
-:yen:
+:high_brightness:
