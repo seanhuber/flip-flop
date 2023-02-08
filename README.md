@@ -1,1 +1,1 @@
-:bike:
+:ideograph_advantage:
