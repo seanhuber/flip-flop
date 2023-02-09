@@ -1,1 +1,1 @@
-:microphone:
+:school_satchel:
