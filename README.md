@@ -1,1 +1,1 @@
-:smiling_imp:
+:fallen_leaf:
