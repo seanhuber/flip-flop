@@ -1,1 +1,1 @@
-:one:
+:point_right:
