@@ -1,1 +1,1 @@
-:hocho:
+:small_orange_diamond:
