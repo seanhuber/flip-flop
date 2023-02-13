@@ -1,1 +1,1 @@
-:sushi:
+:arrow_backward:
