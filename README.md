@@ -1,1 +1,1 @@
-:ambulance:
+:potable_water:
