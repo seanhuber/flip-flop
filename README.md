@@ -1,1 +1,1 @@
-:wavy_dash:
+:smiling_imp:
