@@ -1,1 +1,1 @@
-:fist:
+:wavy_dash:
