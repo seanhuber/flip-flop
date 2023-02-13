@@ -1,1 +1,1 @@
-:loop:
+:money_with_wings:
