@@ -1,1 +1,1 @@
-:potable_water:
+:sparkling_heart:
