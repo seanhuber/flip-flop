@@ -1,1 +1,1 @@
-:hotel:
+:blue_book:
