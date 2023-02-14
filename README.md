@@ -1,1 +1,1 @@
-:clock530:
+:globe_with_meridians:
