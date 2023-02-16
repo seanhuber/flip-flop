@@ -1,1 +1,1 @@
-:lock:
+:black_square_button:
