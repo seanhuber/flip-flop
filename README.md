@@ -1,1 +1,1 @@
-:fuelpump:
+:no_pedestrians:
