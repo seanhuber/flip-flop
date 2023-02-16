@@ -1,1 +1,1 @@
-:no_pedestrians:
+:womans_clothes:
