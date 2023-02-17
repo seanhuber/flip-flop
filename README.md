@@ -1,1 +1,1 @@
-:cow:
+:fork_and_knife:
