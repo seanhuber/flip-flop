@@ -1,1 +1,1 @@
-:clock6:
+:simple_smile:
