@@ -1,1 +1,1 @@
-:high_heel:
+:open_hands:
