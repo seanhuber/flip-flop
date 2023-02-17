@@ -1,1 +1,1 @@
-:open_hands:
+:white_check_mark:
