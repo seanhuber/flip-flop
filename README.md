@@ -1,1 +1,1 @@
-:clock7:
+:large_orange_diamond:
