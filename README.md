@@ -1,1 +1,1 @@
-:sparkling_heart:
+:space_invader:
