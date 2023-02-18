@@ -1,1 +1,1 @@
-:newspaper:
+:clock1030:
