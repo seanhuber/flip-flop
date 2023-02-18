@@ -1,1 +1,1 @@
-:church:
+:sweat_smile:
