@@ -1,1 +1,1 @@
-:camel:
+:game_die:
