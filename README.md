@@ -1,1 +1,1 @@
-:sweat_smile:
+:heavy_dollar_sign:
