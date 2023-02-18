@@ -1,1 +1,1 @@
-:heavy_multiplication_x:
+:jack_o_lantern:
