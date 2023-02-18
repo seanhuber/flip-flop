@@ -1,1 +1,1 @@
-:hatched_chick:
+:heavy_multiplication_x:
