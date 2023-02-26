@@ -1,1 +1,1 @@
-:syringe:
+:thought_balloon:
