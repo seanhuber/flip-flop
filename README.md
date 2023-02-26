@@ -1,1 +1,1 @@
-:dog2:
+:waxing_crescent_moon:
