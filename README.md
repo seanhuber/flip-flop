@@ -1,1 +1,1 @@
-:two_women_holding_hands:
+:person_with_pouting_face:
