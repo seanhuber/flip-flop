@@ -1,1 +1,1 @@
-:godmode:
+:open_hands:
