@@ -1,1 +1,1 @@
-:telephone:
+:steam_locomotive:
