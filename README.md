@@ -1,1 +1,1 @@
-:tangerine:
+:trophy:
