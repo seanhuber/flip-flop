@@ -1,1 +1,1 @@
-:satisfied:
+:speech_balloon:
