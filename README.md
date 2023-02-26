@@ -1,1 +1,1 @@
-:closed_umbrella:
+:two_women_holding_hands:
