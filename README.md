@@ -1,1 +1,1 @@
-:relieved:
+:traffic_light:
