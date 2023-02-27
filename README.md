@@ -1,1 +1,1 @@
-:skull:
+:closed_umbrella:
