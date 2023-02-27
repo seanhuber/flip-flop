@@ -1,1 +1,1 @@
-:aquarius:
+:dash:
