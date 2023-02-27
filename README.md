@@ -1,1 +1,1 @@
-:ru:
+:large_orange_diamond:
