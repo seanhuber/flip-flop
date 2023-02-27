@@ -1,1 +1,1 @@
-:dash:
+:womans_hat:
