@@ -1,1 +1,1 @@
-:battery:
+:currency_exchange:
