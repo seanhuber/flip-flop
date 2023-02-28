@@ -1,1 +1,1 @@
-:traffic_light:
+:bust_in_silhouette:
