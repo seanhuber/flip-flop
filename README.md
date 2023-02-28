@@ -1,1 +1,1 @@
-:radio:
+:point_right:
