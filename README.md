@@ -1,1 +1,1 @@
-:currency_exchange:
+:traffic_light:
