@@ -1,1 +1,1 @@
-:u55b6:
+:izakaya_lantern:
