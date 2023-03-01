@@ -1,1 +1,1 @@
-:triumph:
+:mount_fuji:
