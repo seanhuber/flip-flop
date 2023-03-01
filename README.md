@@ -1,1 +1,1 @@
-:a:
+:open_mouth:
