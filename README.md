@@ -1,1 +1,1 @@
-:speaker:
+:guitar:
