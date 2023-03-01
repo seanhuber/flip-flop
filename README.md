@@ -1,1 +1,1 @@
-:bird:
+:confetti_ball:
