@@ -1,1 +1,1 @@
-:rowboat:
+:no_bell:
