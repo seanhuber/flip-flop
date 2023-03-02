@@ -1,1 +1,1 @@
-:tokyo_tower:
+:part_alternation_mark:
