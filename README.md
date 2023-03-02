@@ -1,1 +1,1 @@
-:pill:
+:waning_gibbous_moon:
