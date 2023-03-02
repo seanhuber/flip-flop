@@ -1,1 +1,1 @@
-:watermelon:
+:eight_spoked_asterisk:
