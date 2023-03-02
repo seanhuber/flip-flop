@@ -1,1 +1,1 @@
-:slot_machine:
+:dromedary_camel:
