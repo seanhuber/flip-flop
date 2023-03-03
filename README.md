@@ -1,1 +1,1 @@
-:mailbox:
+:arrow_upper_left:
