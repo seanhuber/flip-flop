@@ -1,1 +1,1 @@
-:fries:
+:smiley_cat:
