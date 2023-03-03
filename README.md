@@ -1,1 +1,1 @@
-:question:
+:sweat_drops:
