@@ -1,1 +1,1 @@
-:mailbox:
+:light_rail:
