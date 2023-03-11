@@ -1,1 +1,1 @@
-:no_bicycles:
+:black_joker:
