@@ -1,1 +1,1 @@
-:scorpius:
+:dromedary_camel:
