@@ -1,1 +1,1 @@
-:ab:
+:arrow_right_hook:
