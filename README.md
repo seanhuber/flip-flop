@@ -1,1 +1,1 @@
-:wheelchair:
+:heavy_check_mark:
