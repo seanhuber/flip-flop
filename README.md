@@ -1,1 +1,1 @@
-:dromedary_camel:
+:arrow_backward:
