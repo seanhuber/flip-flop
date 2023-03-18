@@ -1,1 +1,1 @@
-:dash:
+:jack_o_lantern:
