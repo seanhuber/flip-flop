@@ -1,1 +1,1 @@
-:game_die:
+:rotating_light:
