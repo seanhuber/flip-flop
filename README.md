@@ -1,1 +1,1 @@
-:pizza:
+:game_die:
