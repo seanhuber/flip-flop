@@ -1,1 +1,1 @@
-:person_with_blond_hair:
+:ballot_box_with_check:
