@@ -1,1 +1,1 @@
-:bar_chart:
+:person_with_blond_hair:
