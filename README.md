@@ -1,1 +1,1 @@
-:scorpius:
+:convenience_store:
