@@ -1,1 +1,1 @@
-:light_rail:
+:heart_decoration:
