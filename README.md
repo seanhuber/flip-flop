@@ -1,1 +1,1 @@
-:strawberry:
+:white_check_mark:
