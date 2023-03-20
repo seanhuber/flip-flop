@@ -1,1 +1,1 @@
-:crocodile:
+:arrow_double_up:
