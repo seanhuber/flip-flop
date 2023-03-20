@@ -1,1 +1,1 @@
-:rowboat:
+:ice_cream:
