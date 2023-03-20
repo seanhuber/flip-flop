@@ -1,1 +1,1 @@
-:nut_and_bolt:
+:arrow_right_hook:
