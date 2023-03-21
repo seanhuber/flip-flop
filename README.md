@@ -1,1 +1,1 @@
-:bangbang:
+:u55b6:
