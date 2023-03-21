@@ -1,1 +1,1 @@
-:tent:
+:closed_umbrella:
