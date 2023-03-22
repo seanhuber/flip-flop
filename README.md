@@ -1,1 +1,1 @@
-:hash:
+:earth_asia:
