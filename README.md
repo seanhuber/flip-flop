@@ -1,1 +1,1 @@
-:factory:
+:arrow_heading_down:
