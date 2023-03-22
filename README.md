@@ -1,1 +1,1 @@
-:closed_book:
+:horse_racing:
