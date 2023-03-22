@@ -1,1 +1,1 @@
-:zero:
+:left_luggage:
