@@ -1,1 +1,1 @@
-:no_entry:
+:poultry_leg:
