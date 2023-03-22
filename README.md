@@ -1,1 +1,1 @@
-:egg:
+:fireworks:
