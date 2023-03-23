@@ -1,1 +1,1 @@
-:performing_arts:
+:checkered_flag:
