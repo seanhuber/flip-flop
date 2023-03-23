@@ -1,1 +1,1 @@
-:blue_car:
+:crystal_ball:
