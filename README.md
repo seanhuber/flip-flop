@@ -1,1 +1,1 @@
-:vs:
+:arrow_left:
