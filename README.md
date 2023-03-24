@@ -1,1 +1,1 @@
-:information_source:
+:crying_cat_face:
