@@ -1,1 +1,1 @@
-:european_castle:
+:twisted_rightwards_arrows:
