@@ -1,1 +1,1 @@
-:satisfied:
+:sparkle:
