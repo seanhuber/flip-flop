@@ -1,1 +1,1 @@
-:sparkle:
+:minibus:
