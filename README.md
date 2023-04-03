@@ -1,1 +1,1 @@
-:purple_heart:
+:mailbox_closed:
