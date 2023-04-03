@@ -1,1 +1,1 @@
-:seat:
+:laughing:
