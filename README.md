@@ -1,1 +1,1 @@
-:sparkles:
+:purple_heart:
