@@ -1,1 +1,1 @@
-:raising_hand:
+:fast_forward:
