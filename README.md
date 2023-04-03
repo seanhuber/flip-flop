@@ -1,1 +1,1 @@
-:flags:
+:mount_fuji:
