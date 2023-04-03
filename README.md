@@ -1,1 +1,1 @@
-:revolving_hearts:
+:raising_hand:
