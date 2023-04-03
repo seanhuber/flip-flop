@@ -1,1 +1,1 @@
-:calendar:
+:heavy_minus_sign:
