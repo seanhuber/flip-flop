@@ -1,1 +1,1 @@
-:ribbon:
+:money_with_wings:
