@@ -1,1 +1,1 @@
-:anger:
+:high_brightness:
