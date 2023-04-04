@@ -1,1 +1,1 @@
-:currency_exchange:
+:point_up:
