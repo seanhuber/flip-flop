@@ -1,1 +1,1 @@
-:tram:
+:first_quarter_moon:
