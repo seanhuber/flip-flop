@@ -1,1 +1,1 @@
-:yum:
+:white_check_mark:
