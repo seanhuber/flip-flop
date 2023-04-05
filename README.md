@@ -1,1 +1,1 @@
-:wolf:
+:bar_chart:
