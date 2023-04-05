@@ -1,1 +1,1 @@
-:alien:
+:postal_horn:
