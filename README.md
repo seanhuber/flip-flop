@@ -1,1 +1,1 @@
-:sandal:
+:man_with_turban:
