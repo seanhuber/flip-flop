@@ -1,1 +1,1 @@
-:postal_horn:
+:telephone_receiver:
