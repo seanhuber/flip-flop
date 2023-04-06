@@ -1,1 +1,1 @@
-:rice_ball:
+:left_right_arrow:
