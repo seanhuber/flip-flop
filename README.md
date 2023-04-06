@@ -1,1 +1,1 @@
-:bike:
+:strawberry:
