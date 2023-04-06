@@ -1,1 +1,1 @@
-:strawberry:
+:open_hands:
