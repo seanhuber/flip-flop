@@ -1,1 +1,1 @@
-:vhs:
+:large_blue_diamond:
