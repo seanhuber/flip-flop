@@ -1,1 +1,1 @@
-:strawberry:
+:arrow_up_small:
