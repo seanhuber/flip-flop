@@ -1,1 +1,1 @@
-:beers:
+:white_medium_square:
