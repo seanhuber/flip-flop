@@ -1,1 +1,1 @@
-:department_store:
+:person_with_pouting_face:
