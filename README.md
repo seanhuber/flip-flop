@@ -1,1 +1,1 @@
-:cherries:
+:confetti_ball:
