@@ -1,1 +1,1 @@
-:person_with_pouting_face:
+:vertical_traffic_light:
