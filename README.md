@@ -1,1 +1,1 @@
-:white_medium_square:
+:waning_gibbous_moon:
