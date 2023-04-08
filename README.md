@@ -1,1 +1,1 @@
-:fuelpump:
+:closed_umbrella:
