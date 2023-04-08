@@ -1,1 +1,1 @@
-:closed_umbrella:
+:heavy_check_mark:
