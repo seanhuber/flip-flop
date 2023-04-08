@@ -1,1 +1,1 @@
-:snowboarder:
+:chocolate_bar:
