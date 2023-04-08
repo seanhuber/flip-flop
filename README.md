@@ -1,1 +1,1 @@
-:pound:
+:heavy_dollar_sign:
