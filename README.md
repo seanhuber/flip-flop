@@ -1,1 +1,1 @@
-:hankey:
+:heavy_division_sign:
