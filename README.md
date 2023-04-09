@@ -1,1 +1,1 @@
-:potable_water:
+:musical_keyboard:
