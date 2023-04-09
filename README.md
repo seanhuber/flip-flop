@@ -1,1 +1,1 @@
-:couple_with_heart:
+:black_medium_small_square:
