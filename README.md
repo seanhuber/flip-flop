@@ -1,1 +1,1 @@
-:up:
+:potable_water:
