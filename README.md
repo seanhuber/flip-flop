@@ -1,1 +1,1 @@
-:sushi:
+:suspension_railway:
