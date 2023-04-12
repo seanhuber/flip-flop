@@ -1,1 +1,1 @@
-:japanese_goblin:
+:meat_on_bone:
