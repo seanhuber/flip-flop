@@ -1,1 +1,1 @@
-:computer:
+:rotating_light:
