@@ -1,1 +1,1 @@
-:rice_scene:
+:couple_with_heart:
