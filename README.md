@@ -1,1 +1,1 @@
-:tulip:
+:point_left:
