@@ -1,1 +1,1 @@
-:angry:
+:rice_scene:
