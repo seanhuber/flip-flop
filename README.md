@@ -1,1 +1,1 @@
-:negative_squared_cross_mark:
+:two_women_holding_hands:
