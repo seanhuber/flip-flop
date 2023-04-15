@@ -1,1 +1,1 @@
-:apple:
+:point_right:
