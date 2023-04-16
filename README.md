@@ -1,1 +1,1 @@
-:octopus:
+:waxing_crescent_moon:
