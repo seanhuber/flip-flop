@@ -1,1 +1,1 @@
-:whale:
+:high_brightness:
