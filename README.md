@@ -1,1 +1,1 @@
-:doughnut:
+:suspension_railway:
