@@ -1,1 +1,1 @@
-:bell:
+:arrow_up_down:
