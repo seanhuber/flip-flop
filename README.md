@@ -1,1 +1,1 @@
-:fireworks:
+:money_with_wings:
