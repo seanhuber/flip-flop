@@ -1,1 +1,1 @@
-:telescope:
+:ramen:
