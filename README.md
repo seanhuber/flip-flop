@@ -1,1 +1,1 @@
-:raised_hand:
+:black_medium_square:
