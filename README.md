@@ -1,1 +1,1 @@
-:sandal:
+:heavy_multiplication_x:
