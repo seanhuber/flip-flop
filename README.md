@@ -1,1 +1,1 @@
-:speaker:
+:mobile_phone_off:
