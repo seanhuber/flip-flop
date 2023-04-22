@@ -1,1 +1,1 @@
-:no_good:
+:blue_car:
