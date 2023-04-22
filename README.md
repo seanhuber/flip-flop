@@ -1,1 +1,1 @@
-:railway_car:
+:no_good:
