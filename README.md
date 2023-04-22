@@ -1,1 +1,1 @@
-:stars:
+:railway_car:
