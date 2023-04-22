@@ -1,1 +1,1 @@
-:blue_car:
+:wine_glass:
