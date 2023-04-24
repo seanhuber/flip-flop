@@ -1,1 +1,1 @@
-:mahjong:
+:ledger:
