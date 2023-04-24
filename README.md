@@ -1,1 +1,1 @@
-:blowfish:
+:black_circle:
