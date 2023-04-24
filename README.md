@@ -1,1 +1,1 @@
-:black_circle:
+:mailbox_closed:
