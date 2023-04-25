@@ -1,1 +1,1 @@
-:raised_hands:
+:checkered_flag:
