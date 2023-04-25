@@ -1,1 +1,1 @@
-:paperclip:
+:red_car:
