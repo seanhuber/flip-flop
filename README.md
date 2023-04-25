@@ -1,1 +1,1 @@
-:no_bell:
+:japanese_goblin:
