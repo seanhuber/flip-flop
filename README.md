@@ -1,1 +1,1 @@
-:arrow_double_down:
+:raised_hands:
