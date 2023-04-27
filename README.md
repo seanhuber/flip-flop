@@ -1,1 +1,1 @@
-:white_medium_square:
+:traffic_light:
