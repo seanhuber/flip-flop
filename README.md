@@ -1,1 +1,1 @@
-:snowflake:
+:white_medium_square:
