@@ -1,1 +1,1 @@
-:coffee:
+:floppy_disk:
