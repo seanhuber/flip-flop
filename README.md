@@ -1,1 +1,1 @@
-:nose:
+:checkered_flag:
