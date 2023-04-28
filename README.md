@@ -1,1 +1,1 @@
-:smirk_cat:
+:eight_pointed_black_star:
