@@ -1,1 +1,1 @@
-:bullettrain_side:
+:low_brightness:
