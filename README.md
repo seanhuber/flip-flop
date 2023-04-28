@@ -1,1 +1,1 @@
-:chart_with_upwards_trend:
+:person_with_pouting_face:
