@@ -1,1 +1,1 @@
-:low_brightness:
+:o2:
