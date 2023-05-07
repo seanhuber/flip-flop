@@ -1,1 +1,1 @@
-:electric_plug:
+:red_car:
