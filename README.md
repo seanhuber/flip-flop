@@ -1,1 +1,1 @@
-:hatching_chick:
+:cold_sweat:
