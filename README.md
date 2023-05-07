@@ -1,1 +1,1 @@
-:kissing_closed_eyes:
+:white_circle:
