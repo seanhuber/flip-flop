@@ -1,1 +1,1 @@
-:minidisc:
+:hatching_chick:
