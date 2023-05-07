@@ -1,1 +1,1 @@
-:white_circle:
+:electric_plug:
