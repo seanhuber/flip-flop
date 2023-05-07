@@ -1,1 +1,1 @@
-:red_car:
+:six_pointed_star:
