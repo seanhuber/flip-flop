@@ -1,1 +1,1 @@
-:pager:
+:hourglass_flowing_sand:
