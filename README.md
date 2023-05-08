@@ -1,1 +1,1 @@
-:snowflake:
+:carousel_horse:
