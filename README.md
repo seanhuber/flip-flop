@@ -1,1 +1,1 @@
-:lemon:
+:large_blue_circle:
