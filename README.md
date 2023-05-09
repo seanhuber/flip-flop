@@ -1,1 +1,1 @@
-:memo:
+:small_red_triangle:
