@@ -1,1 +1,1 @@
-:moyai:
+:musical_note:
