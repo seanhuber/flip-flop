@@ -1,1 +1,1 @@
-:microscope:
+:joy_cat:
