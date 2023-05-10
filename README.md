@@ -1,1 +1,1 @@
-:fuelpump:
+:bridge_at_night:
