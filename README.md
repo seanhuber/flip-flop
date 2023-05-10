@@ -1,1 +1,1 @@
-:dog:
+:traffic_light:
