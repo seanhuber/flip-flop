@@ -1,1 +1,1 @@
-:fireworks:
+:heavy_check_mark:
