@@ -1,1 +1,1 @@
-:mag_right:
+:carousel_horse:
