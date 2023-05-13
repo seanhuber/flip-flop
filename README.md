@@ -1,1 +1,1 @@
-:dolphin:
+:mag_right:
