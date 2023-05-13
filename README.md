@@ -1,1 +1,1 @@
-:smoking:
+:raising_hand:
