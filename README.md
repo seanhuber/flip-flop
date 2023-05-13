@@ -1,1 +1,1 @@
-:stuck_out_tongue:
+:black_medium_small_square:
