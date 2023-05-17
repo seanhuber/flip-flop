@@ -1,1 +1,1 @@
-:nut_and_bolt:
+:diamond_shape_with_a_dot_inside:
