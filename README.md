@@ -1,1 +1,1 @@
-:mag:
+:evergreen_tree:
