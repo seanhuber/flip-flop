@@ -1,1 +1,1 @@
-:evergreen_tree:
+:ok_hand:
