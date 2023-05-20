@@ -1,1 +1,1 @@
-:skull:
+:japanese_ogre:
