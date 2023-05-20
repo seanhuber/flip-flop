@@ -1,1 +1,1 @@
-:battery:
+:hatched_chick:
