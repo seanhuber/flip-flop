@@ -1,1 +1,1 @@
-:angel:
+:ideograph_advantage:
