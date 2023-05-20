@@ -1,1 +1,1 @@
-:memo:
+:japanese_castle:
