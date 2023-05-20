@@ -1,1 +1,1 @@
-:strawberry:
+:trolleybus:
