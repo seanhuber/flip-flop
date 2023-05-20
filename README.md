@@ -1,1 +1,1 @@
-:triumph:
+:point_up_2:
