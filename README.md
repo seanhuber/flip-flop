@@ -1,1 +1,1 @@
-:hatched_chick:
+:no_entry:
