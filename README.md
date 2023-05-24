@@ -1,1 +1,1 @@
-:trolleybus:
+:potable_water:
