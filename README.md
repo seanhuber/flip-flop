@@ -1,1 +1,1 @@
-:couple_with_heart:
+:smiley_cat:
