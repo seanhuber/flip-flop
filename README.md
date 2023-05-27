@@ -1,1 +1,1 @@
-:heart_decoration:
+:telephone_receiver:
