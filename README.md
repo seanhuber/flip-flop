@@ -1,1 +1,1 @@
-:tram:
+:red_circle:
