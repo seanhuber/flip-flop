@@ -1,1 +1,1 @@
-:scream_cat:
+:heart_decoration:
