@@ -1,1 +1,1 @@
-:battery:
+:ok_hand:
