@@ -1,1 +1,1 @@
-:kissing_cat:
+:smiling_imp:
