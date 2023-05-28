@@ -1,1 +1,1 @@
-:musical_note:
+:telephone_receiver:
