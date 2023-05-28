@@ -1,1 +1,1 @@
-:girl:
+:kissing_cat:
