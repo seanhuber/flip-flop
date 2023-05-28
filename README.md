@@ -1,1 +1,1 @@
-:high_heel:
+:pouting_cat:
