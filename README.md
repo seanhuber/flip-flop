@@ -1,1 +1,1 @@
-:cherries:
+:white_square_button:
