@@ -1,1 +1,1 @@
-:sparkling_heart:
+:electric_plug:
