@@ -1,1 +1,1 @@
-:kissing_cat:
+:white_medium_small_square:
