@@ -1,1 +1,1 @@
-:musical_keyboard:
+:busts_in_silhouette:
