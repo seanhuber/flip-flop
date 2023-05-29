@@ -1,1 +1,1 @@
-:information_source:
+:black_medium_square:
