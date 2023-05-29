@@ -1,1 +1,1 @@
-:white_square_button:
+:notebook_with_decorative_cover:
