@@ -1,1 +1,1 @@
-:womens:
+:earth_asia:
