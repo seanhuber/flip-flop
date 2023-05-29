@@ -1,1 +1,1 @@
-:expressionless:
+:heavy_minus_sign:
