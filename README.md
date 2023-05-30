@@ -1,1 +1,1 @@
-:clock130:
+:rotating_light:
