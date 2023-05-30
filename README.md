@@ -1,1 +1,1 @@
-:taurus:
+:simple_smile:
