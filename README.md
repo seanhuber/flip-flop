@@ -1,1 +1,1 @@
-:hotsprings:
+:rice:
