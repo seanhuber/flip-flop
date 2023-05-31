@@ -1,1 +1,1 @@
-:heart_decoration:
+:heavy_check_mark:
