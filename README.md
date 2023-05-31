@@ -1,1 +1,1 @@
-:repeat:
+:snake:
