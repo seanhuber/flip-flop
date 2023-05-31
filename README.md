@@ -1,1 +1,1 @@
-:dancer:
+:keycap_ten:
