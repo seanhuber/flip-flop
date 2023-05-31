@@ -1,1 +1,1 @@
-:panda_face:
+:notebook_with_decorative_cover:
