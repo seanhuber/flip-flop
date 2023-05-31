@@ -1,1 +1,1 @@
-:high_brightness:
+:nut_and_bolt:
