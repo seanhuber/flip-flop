@@ -1,1 +1,1 @@
-:notebook_with_decorative_cover:
+:white_medium_small_square:
