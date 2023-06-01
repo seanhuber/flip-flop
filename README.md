@@ -1,1 +1,1 @@
-:bow:
+:handbag:
