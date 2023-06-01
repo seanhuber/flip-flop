@@ -1,1 +1,1 @@
-:mega:
+:japanese_ogre:
