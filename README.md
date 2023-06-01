@@ -1,1 +1,1 @@
-:tractor:
+:arrow_upper_right:
