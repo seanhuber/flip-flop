@@ -1,1 +1,1 @@
-:coffee:
+:bullettrain_side:
