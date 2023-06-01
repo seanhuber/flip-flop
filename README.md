@@ -1,1 +1,1 @@
-:weary:
+:love_letter:
