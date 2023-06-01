@@ -1,1 +1,1 @@
-:ok_hand:
+:eight_spoked_asterisk:
