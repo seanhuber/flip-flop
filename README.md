@@ -1,1 +1,1 @@
-:love_hotel:
+:closed_book:
