@@ -1,1 +1,1 @@
-:black_joker:
+:horse_racing:
