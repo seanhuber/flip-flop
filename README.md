@@ -1,1 +1,1 @@
-:love_letter:
+:panda_face:
