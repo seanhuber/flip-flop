@@ -1,1 +1,1 @@
-:hamster:
+:christmas_tree:
