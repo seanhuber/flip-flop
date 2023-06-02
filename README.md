@@ -1,1 +1,1 @@
-:notebook:
+:railway_car:
