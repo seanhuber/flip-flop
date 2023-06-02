@@ -1,1 +1,1 @@
-:collision:
+:keycap_ten:
