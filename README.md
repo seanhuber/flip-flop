@@ -1,1 +1,1 @@
-:dress:
+:convenience_store:
