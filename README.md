@@ -1,1 +1,1 @@
-:japanese_goblin:
+:no_entry:
