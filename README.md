@@ -1,1 +1,1 @@
-:black_circle:
+:left_right_arrow:
