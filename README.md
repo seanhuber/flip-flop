@@ -1,1 +1,1 @@
-:partly_sunny:
+:bullettrain_side:
