@@ -1,1 +1,1 @@
-:elephant:
+:japanese_goblin:
