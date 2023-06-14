@@ -1,1 +1,1 @@
-:octopus:
+:heavy_minus_sign:
