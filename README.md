@@ -1,1 +1,1 @@
-:japan:
+:black_circle:
