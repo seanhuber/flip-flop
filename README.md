@@ -1,1 +1,1 @@
-:satisfied:
+:vibration_mode:
