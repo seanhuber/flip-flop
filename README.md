@@ -1,1 +1,1 @@
-:traffic_light:
+:paw_prints:
