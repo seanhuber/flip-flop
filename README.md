@@ -1,1 +1,1 @@
-:construction_worker:
+:money_with_wings:
