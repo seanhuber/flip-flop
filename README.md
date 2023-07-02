@@ -1,1 +1,1 @@
-:mortar_board:
+:inbox_tray:
