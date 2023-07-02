@@ -1,1 +1,1 @@
-:trollface:
+:sweat_drops:
