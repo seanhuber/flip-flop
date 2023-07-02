@@ -1,1 +1,1 @@
-:train:
+:straight_ruler:
