@@ -1,1 +1,1 @@
-:handbag:
+:squirrel:
