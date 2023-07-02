@@ -1,1 +1,1 @@
-:inbox_tray:
+:full_moon:
