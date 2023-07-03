@@ -1,1 +1,1 @@
-:monkey:
+:inbox_tray:
