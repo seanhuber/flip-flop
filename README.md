@@ -1,1 +1,1 @@
-:crossed_flags:
+:point_right:
