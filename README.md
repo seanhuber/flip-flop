@@ -1,1 +1,1 @@
-:stars:
+:tropical_drink:
