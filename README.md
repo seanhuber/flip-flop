@@ -1,1 +1,1 @@
-:point_right:
+:traffic_light:
