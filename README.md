@@ -1,1 +1,1 @@
-:ring:
+:repeat:
