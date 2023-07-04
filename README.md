@@ -1,1 +1,1 @@
-:earth_americas:
+:evergreen_tree:
