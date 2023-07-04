@@ -1,1 +1,1 @@
-:gem:
+:electric_plug:
