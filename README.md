@@ -1,1 +1,1 @@
-:repeat:
+:mailbox_closed:
