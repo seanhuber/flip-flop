@@ -1,1 +1,1 @@
-:candy:
+:minibus:
