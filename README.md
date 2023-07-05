@@ -1,1 +1,1 @@
-:mortar_board:
+:floppy_disk:
