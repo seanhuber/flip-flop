@@ -1,1 +1,1 @@
-:rowboat:
+:mans_shoe:
