@@ -1,1 +1,1 @@
-:metal:
+:mortar_board:
