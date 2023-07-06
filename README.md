@@ -1,1 +1,1 @@
-:round_pushpin:
+:tokyo_tower:
