@@ -1,1 +1,1 @@
-:dango:
+:round_pushpin:
