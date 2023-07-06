@@ -1,1 +1,1 @@
-:cloud:
+:mountain_cableway:
