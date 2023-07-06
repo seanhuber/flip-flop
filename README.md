@@ -1,1 +1,1 @@
-:bulb:
+:chocolate_bar:
