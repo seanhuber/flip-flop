@@ -1,1 +1,1 @@
-:fire:
+:fast_forward:
