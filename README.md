@@ -1,1 +1,1 @@
-:small_red_triangle:
+:couple:
