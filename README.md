@@ -1,1 +1,1 @@
-:gun:
+:no_bicycles:
