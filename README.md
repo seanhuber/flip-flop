@@ -1,1 +1,1 @@
-:sake:
+:small_red_triangle:
