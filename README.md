@@ -1,1 +1,1 @@
-:calling:
+:vibration_mode:
