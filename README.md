@@ -1,1 +1,1 @@
-:water_buffalo:
+:mans_shoe:
