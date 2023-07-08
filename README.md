@@ -1,1 +1,1 @@
-:trumpet:
+:skull:
