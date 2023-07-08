@@ -1,1 +1,1 @@
-:goat:
+:waxing_gibbous_moon:
