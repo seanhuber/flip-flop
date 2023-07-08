@@ -1,1 +1,1 @@
-:no_mouth:
+:water_buffalo:
