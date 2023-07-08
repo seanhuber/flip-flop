@@ -1,1 +1,1 @@
-:dizzy:
+:taurus:
