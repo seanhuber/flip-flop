@@ -1,1 +1,1 @@
-:cn:
+:no_mobile_phones:
