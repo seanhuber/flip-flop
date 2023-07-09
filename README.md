@@ -1,1 +1,1 @@
-:european_castle:
+:wavy_dash:
