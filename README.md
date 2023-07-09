@@ -1,1 +1,1 @@
-:smirk_cat:
+:keycap_ten:
