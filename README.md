@@ -1,1 +1,1 @@
-:fries:
+:sun_with_face:
