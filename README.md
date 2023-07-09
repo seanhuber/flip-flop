@@ -1,1 +1,1 @@
-:wavy_dash:
+:heavy_dollar_sign:
