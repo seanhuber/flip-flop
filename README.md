@@ -1,1 +1,1 @@
-:new:
+:movie_camera:
