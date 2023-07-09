@@ -1,1 +1,1 @@
-:sweat:
+:ok_hand:
