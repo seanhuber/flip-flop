@@ -1,1 +1,1 @@
-:ok_hand:
+:boot:
