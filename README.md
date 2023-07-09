@@ -1,1 +1,1 @@
-:scroll:
+:white_medium_square:
