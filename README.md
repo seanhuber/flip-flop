@@ -1,1 +1,1 @@
-:baby_symbol:
+:twisted_rightwards_arrows:
