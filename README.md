@@ -1,1 +1,1 @@
-:camera:
+:coffee:
