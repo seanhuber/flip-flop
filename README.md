@@ -1,1 +1,1 @@
-:rooster:
+:japanese_goblin:
