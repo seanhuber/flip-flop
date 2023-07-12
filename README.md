@@ -1,1 +1,1 @@
-:crocodile:
+:camera:
