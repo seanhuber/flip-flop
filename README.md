@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:musical_score:
