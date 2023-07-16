@@ -1,1 +1,1 @@
-:whale:
+:snowman:
