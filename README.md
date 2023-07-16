@@ -1,1 +1,1 @@
-:girl:
+:high_brightness:
