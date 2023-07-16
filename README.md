@@ -1,1 +1,1 @@
-:school:
+:ferris_wheel:
