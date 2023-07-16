@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:arrow_forward:
