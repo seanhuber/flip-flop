@@ -1,1 +1,1 @@
-:ferris_wheel:
+:ideograph_advantage:
