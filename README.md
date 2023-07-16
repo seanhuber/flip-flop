@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:panda_face:
