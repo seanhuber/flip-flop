@@ -1,1 +1,1 @@
-:ghost:
+:performing_arts:
