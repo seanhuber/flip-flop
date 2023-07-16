@@ -1,1 +1,1 @@
-:zap:
+:european_post_office:
