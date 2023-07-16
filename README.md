@@ -1,1 +1,1 @@
-:capital_abcd:
+:chart_with_downwards_trend:
