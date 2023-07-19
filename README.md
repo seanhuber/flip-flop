@@ -1,1 +1,1 @@
-:game_die:
+:black_circle:
