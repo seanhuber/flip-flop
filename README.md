@@ -1,1 +1,1 @@
-:strawberry:
+:game_die:
