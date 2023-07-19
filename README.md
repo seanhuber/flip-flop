@@ -1,1 +1,1 @@
-:point_left:
+:rice_scene:
