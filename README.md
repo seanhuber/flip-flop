@@ -1,1 +1,1 @@
-:fishing_pole_and_fish:
+:negative_squared_cross_mark:
