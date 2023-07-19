@@ -1,1 +1,1 @@
-:boy:
+:fallen_leaf:
