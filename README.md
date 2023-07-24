@@ -1,1 +1,1 @@
-:baby_symbol:
+:waning_gibbous_moon:
