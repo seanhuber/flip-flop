@@ -1,1 +1,1 @@
-:black_nib:
+:ok_hand:
