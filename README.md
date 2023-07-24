@@ -1,1 +1,1 @@
-:bikini:
+:baby_symbol:
