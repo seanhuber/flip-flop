@@ -1,1 +1,1 @@
-:woman:
+:cocktail:
