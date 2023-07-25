@@ -1,1 +1,1 @@
-:computer:
+:running_shirt_with_sash:
