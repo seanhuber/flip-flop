@@ -1,1 +1,1 @@
-:honeybee:
+:star2:
