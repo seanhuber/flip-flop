@@ -1,1 +1,1 @@
-:no_good:
+:speak_no_evil:
