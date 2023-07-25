@@ -1,1 +1,1 @@
-:pineapple:
+:articulated_lorry:
