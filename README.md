@@ -1,1 +1,1 @@
-:squirrel:
+:black_medium_square:
