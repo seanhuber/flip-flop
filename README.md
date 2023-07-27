@@ -1,1 +1,1 @@
-:earth_asia:
+:cow:
