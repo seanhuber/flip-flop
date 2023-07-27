@@ -1,1 +1,1 @@
-:pizza:
+:earth_asia:
