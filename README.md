@@ -1,1 +1,1 @@
-:black_medium_square:
+:blue_heart:
