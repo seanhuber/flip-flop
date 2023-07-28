@@ -1,1 +1,1 @@
-:dango:
+:point_up:
