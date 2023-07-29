@@ -1,1 +1,1 @@
-:loudspeaker:
+:mobile_phone_off:
