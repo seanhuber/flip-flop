@@ -1,1 +1,1 @@
-:ticket:
+:heart_decoration:
