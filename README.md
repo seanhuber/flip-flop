@@ -1,1 +1,1 @@
-:penguin:
+:microscope:
