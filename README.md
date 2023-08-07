@@ -1,1 +1,1 @@
-:bar_chart:
+:heavy_dollar_sign:
