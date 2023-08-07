@@ -1,1 +1,1 @@
-:racehorse:
+:japanese_castle:
