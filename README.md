@@ -1,1 +1,1 @@
-:dog2:
+:bar_chart:
