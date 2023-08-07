@@ -1,1 +1,1 @@
-:underage:
+:keycap_ten:
