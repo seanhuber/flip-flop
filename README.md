@@ -1,1 +1,1 @@
-:a:
+:bride_with_veil:
