@@ -1,1 +1,1 @@
-:neckbeard:
+:black_large_square:
