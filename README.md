@@ -1,1 +1,1 @@
-:smiling_imp:
+:arrow_down_small:
