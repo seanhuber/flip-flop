@@ -1,1 +1,1 @@
-:sunflower:
+:part_alternation_mark:
