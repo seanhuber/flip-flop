@@ -1,1 +1,1 @@
-:phone:
+:watermelon:
