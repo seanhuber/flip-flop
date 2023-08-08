@@ -1,1 +1,1 @@
-:arrow_down_small:
+:four_leaf_clover:
