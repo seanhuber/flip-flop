@@ -1,1 +1,1 @@
-:high_heel:
+:neckbeard:
