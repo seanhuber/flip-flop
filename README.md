@@ -1,1 +1,1 @@
-:boat:
+:chocolate_bar:
