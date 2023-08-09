@@ -1,1 +1,1 @@
-:no_bell:
+:musical_keyboard:
