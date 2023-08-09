@@ -1,1 +1,1 @@
-:cold_sweat:
+:black_large_square:
