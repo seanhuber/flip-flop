@@ -1,1 +1,1 @@
-:banana:
+:no_bell:
