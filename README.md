@@ -1,1 +1,1 @@
-:blossom:
+:globe_with_meridians:
