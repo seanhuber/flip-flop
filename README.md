@@ -1,1 +1,1 @@
-:fishing_pole_and_fish:
+:raising_hand:
