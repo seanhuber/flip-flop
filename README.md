@@ -1,1 +1,1 @@
-:clock10:
+:arrow_upper_right:
