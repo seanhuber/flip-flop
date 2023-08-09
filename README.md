@@ -1,1 +1,1 @@
-:girl:
+:shaved_ice:
