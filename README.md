@@ -1,1 +1,1 @@
-:low_brightness:
+:point_right:
