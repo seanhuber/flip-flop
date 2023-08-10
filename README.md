@@ -1,1 +1,1 @@
-:bell:
+:truck:
