@@ -1,1 +1,1 @@
-:hash:
+:keycap_ten:
