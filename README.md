@@ -1,1 +1,1 @@
-:smiling_imp:
+:light_rail:
