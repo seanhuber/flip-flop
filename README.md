@@ -1,1 +1,1 @@
-:tophat:
+:low_brightness:
