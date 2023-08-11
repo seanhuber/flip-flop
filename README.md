@@ -1,1 +1,1 @@
-:bear:
+:crescent_moon:
