@@ -1,1 +1,1 @@
-:foggy:
+:crossed_flags:
