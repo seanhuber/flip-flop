@@ -1,1 +1,1 @@
-:ghost:
+:green_book:
