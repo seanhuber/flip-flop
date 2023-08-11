@@ -1,1 +1,1 @@
-:speech_balloon:
+:orange_book:
