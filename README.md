@@ -1,1 +1,1 @@
-:crescent_moon:
+:ideograph_advantage:
