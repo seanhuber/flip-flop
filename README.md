@@ -1,1 +1,1 @@
-:neckbeard:
+:black_joker:
