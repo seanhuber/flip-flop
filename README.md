@@ -1,1 +1,1 @@
-:dress:
+:arrow_left:
