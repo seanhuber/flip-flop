@@ -1,1 +1,1 @@
-:angry:
+:floppy_disk:
