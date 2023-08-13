@@ -1,1 +1,1 @@
-:whale:
+:black_circle:
