@@ -1,1 +1,1 @@
-:birthday:
+:arrow_right:
