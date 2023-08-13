@@ -1,1 +1,1 @@
-:notebook:
+:black_small_square:
