@@ -1,1 +1,1 @@
-:wedding:
+:grey_question:
