@@ -1,1 +1,1 @@
-:eyeglasses:
+:wedding:
