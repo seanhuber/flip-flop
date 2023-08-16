@@ -1,1 +1,1 @@
-:yellow_heart:
+:statue_of_liberty:
