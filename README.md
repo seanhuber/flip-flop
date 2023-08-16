@@ -1,1 +1,1 @@
-:tiger:
+:trophy:
