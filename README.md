@@ -1,1 +1,1 @@
-:ox:
+:yellow_heart:
