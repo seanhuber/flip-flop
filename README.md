@@ -1,1 +1,1 @@
-:lollipop:
+:pouting_cat:
