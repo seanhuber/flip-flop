@@ -1,1 +1,1 @@
-:aquarius:
+:ice_cream:
