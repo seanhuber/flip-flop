@@ -1,1 +1,1 @@
-:department_store:
+:taurus:
