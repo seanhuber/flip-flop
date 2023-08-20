@@ -1,1 +1,1 @@
-:uk:
+:department_store:
