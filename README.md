@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:crossed_flags:
