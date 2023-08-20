@@ -1,1 +1,1 @@
-:taurus:
+:hospital:
