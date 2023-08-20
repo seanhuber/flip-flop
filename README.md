@@ -1,1 +1,1 @@
-:crossed_flags:
+:card_index:
