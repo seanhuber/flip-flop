@@ -1,1 +1,1 @@
-:stars:
+:fist:
