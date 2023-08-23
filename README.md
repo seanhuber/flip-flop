@@ -1,1 +1,1 @@
-:underage:
+:mortar_board:
