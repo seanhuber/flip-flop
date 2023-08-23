@@ -1,1 +1,1 @@
-:poultry_leg:
+:closed_lock_with_key:
