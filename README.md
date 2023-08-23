@@ -1,1 +1,1 @@
-:sweat_smile:
+:poultry_leg:
