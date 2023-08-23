@@ -1,1 +1,1 @@
-:envelope:
+:crystal_ball:
