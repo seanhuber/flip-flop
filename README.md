@@ -1,1 +1,1 @@
-:grimacing:
+:bust_in_silhouette:
