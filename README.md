@@ -1,1 +1,1 @@
-:vertical_traffic_light:
+:leftwards_arrow_with_hook:
