@@ -1,1 +1,1 @@
-:star:
+:purple_heart:
