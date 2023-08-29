@@ -1,1 +1,1 @@
-:pencil:
+:simple_smile:
