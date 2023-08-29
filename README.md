@@ -1,1 +1,1 @@
-:last_quarter_moon_with_face:
+:globe_with_meridians:
