@@ -1,1 +1,1 @@
-:beer:
+:pizza:
