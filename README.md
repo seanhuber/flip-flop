@@ -1,1 +1,1 @@
-:sandal:
+:dolphin:
