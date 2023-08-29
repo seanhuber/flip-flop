@@ -1,1 +1,1 @@
-:beetle:
+:fearful:
