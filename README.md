@@ -1,1 +1,1 @@
-:beetle:
+:clock1:
