@@ -1,1 +1,1 @@
-:bowtie:
+:horse:
