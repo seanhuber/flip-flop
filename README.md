@@ -1,1 +1,1 @@
-:pray:
+:battery:
