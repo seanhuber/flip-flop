@@ -1,1 +1,1 @@
-:boat:
+:earth_americas:
