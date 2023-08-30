@@ -1,1 +1,1 @@
-:earth_americas:
+:mag_right:
