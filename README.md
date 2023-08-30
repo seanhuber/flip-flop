@@ -1,1 +1,1 @@
-:paperclip:
+:honey_pot:
