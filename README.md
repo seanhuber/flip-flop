@@ -1,1 +1,1 @@
-:mag_right:
+:currency_exchange:
