@@ -1,1 +1,1 @@
-:clapper:
+:currency_exchange:
