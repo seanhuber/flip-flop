@@ -1,1 +1,1 @@
-:blossom:
+:wavy_dash:
