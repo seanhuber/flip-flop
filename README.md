@@ -1,1 +1,1 @@
-:bird:
+:smiley:
