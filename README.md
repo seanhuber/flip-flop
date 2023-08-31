@@ -1,1 +1,1 @@
-:shit:
+:kissing_closed_eyes:
