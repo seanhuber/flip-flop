@@ -1,1 +1,1 @@
-:european_post_office:
+:earth_africa:
