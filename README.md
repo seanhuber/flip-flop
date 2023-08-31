@@ -1,1 +1,1 @@
-:copyright:
+:bird:
