@@ -1,1 +1,1 @@
-:wavy_dash:
+:speak_no_evil:
