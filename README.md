@@ -1,1 +1,1 @@
-:hourglass:
+:electric_plug:
