@@ -1,1 +1,1 @@
-:football:
+:heavy_minus_sign:
