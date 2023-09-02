@@ -1,1 +1,1 @@
-:shoe:
+:rice_cracker:
