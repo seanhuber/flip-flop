@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:bookmark_tabs:
