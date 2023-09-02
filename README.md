@@ -1,1 +1,1 @@
-:police_car:
+:egg:
