@@ -1,1 +1,1 @@
-:recycle:
+:meat_on_bone:
