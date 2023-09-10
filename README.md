@@ -1,1 +1,1 @@
-:pensive:
+:video_game:
