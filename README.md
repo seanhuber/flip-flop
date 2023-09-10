@@ -1,1 +1,1 @@
-:u7533:
+:globe_with_meridians:
