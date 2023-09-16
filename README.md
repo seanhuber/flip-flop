@@ -1,1 +1,1 @@
-:virgo:
+:point_right:
