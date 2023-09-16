@@ -1,1 +1,1 @@
-:question:
+:signal_strength:
