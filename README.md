@@ -1,1 +1,1 @@
-:no_smoking:
+:green_heart:
