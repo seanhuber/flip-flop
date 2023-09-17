@@ -1,1 +1,1 @@
-:cinema:
+:articulated_lorry:
