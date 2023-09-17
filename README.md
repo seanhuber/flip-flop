@@ -1,1 +1,1 @@
-:rotating_light:
+:large_orange_diamond:
