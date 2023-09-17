@@ -1,1 +1,1 @@
-:fearful:
+:rotating_light:
