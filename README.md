@@ -1,1 +1,1 @@
-:new_moon:
+:four_leaf_clover:
