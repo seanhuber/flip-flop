@@ -1,1 +1,1 @@
-:person_frowning:
+:new_moon:
