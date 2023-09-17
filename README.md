@@ -1,1 +1,1 @@
-:poodle:
+:mortar_board:
