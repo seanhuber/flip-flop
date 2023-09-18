@@ -1,1 +1,1 @@
-:sleeping:
+:open_mouth:
