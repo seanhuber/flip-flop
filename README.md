@@ -1,1 +1,1 @@
-:person_frowning:
+:smirk:
