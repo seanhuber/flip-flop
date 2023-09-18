@@ -1,1 +1,1 @@
-:tv:
+:open_hands:
