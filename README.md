@@ -1,1 +1,1 @@
-:smirk:
+:large_blue_circle:
