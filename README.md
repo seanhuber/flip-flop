@@ -1,1 +1,1 @@
-:mobile_phone_off:
+:bust_in_silhouette:
