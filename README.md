@@ -1,1 +1,1 @@
-:mahjong:
+:poultry_leg:
