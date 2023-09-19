@@ -1,1 +1,1 @@
-:jeans:
+:computer:
