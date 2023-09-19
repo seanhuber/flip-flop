@@ -1,1 +1,1 @@
-:raising_hand:
+:tokyo_tower:
