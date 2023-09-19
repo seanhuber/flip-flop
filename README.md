@@ -1,1 +1,1 @@
-:electric_plug:
+:leftwards_arrow_with_hook:
