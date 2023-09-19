@@ -1,1 +1,1 @@
-:video_camera:
+:european_post_office:
