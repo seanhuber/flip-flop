@@ -1,1 +1,1 @@
-:ear:
+:video_camera:
