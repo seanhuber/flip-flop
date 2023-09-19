@@ -1,1 +1,1 @@
-:tada:
+:no_smoking:
