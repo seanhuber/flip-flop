@@ -1,1 +1,1 @@
-:tractor:
+:tired_face:
