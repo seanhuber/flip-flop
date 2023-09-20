@@ -1,1 +1,1 @@
-:chestnut:
+:candy:
