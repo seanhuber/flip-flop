@@ -1,1 +1,1 @@
-:candy:
+:earth_asia:
