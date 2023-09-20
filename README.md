@@ -1,1 +1,1 @@
-:tired_face:
+:mag:
