@@ -1,1 +1,1 @@
-:gift:
+:rice_cracker:
