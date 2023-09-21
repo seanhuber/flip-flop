@@ -1,1 +1,1 @@
-:open_file_folder:
+:beetle:
