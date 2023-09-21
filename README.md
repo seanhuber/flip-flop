@@ -1,1 +1,1 @@
-:rice_cracker:
+:slot_machine:
