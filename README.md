@@ -1,1 +1,1 @@
-:sweat:
+:arrow_up:
