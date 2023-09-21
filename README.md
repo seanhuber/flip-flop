@@ -1,1 +1,1 @@
-:eight:
+:point_left:
