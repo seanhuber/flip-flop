@@ -1,1 +1,1 @@
-:point_up_2:
+:bust_in_silhouette:
