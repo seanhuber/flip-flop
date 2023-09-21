@@ -1,1 +1,1 @@
-:beetle:
+:rotating_light:
