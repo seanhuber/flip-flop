@@ -1,1 +1,1 @@
-:rotating_light:
+:children_crossing:
