@@ -1,1 +1,1 @@
-:baby_symbol:
+:point_up:
