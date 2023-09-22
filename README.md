@@ -1,1 +1,1 @@
-:simple_smile:
+:kissing_smiling_eyes:
