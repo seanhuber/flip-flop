@@ -1,1 +1,1 @@
-:point_up:
+:simple_smile:
