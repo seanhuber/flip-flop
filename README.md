@@ -1,1 +1,1 @@
-:hocho:
+:water_buffalo:
