@@ -1,1 +1,1 @@
-:cow2:
+:palm_tree:
