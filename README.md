@@ -1,1 +1,1 @@
-:neutral_face:
+:point_up:
