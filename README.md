@@ -1,1 +1,1 @@
-:mahjong:
+:oncoming_police_car:
