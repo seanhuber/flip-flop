@@ -1,1 +1,1 @@
-:sunglasses:
+:cow2:
