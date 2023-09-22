@@ -1,1 +1,1 @@
-:clipboard:
+:baby_symbol:
