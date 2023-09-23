@@ -1,1 +1,1 @@
-:seat:
+:green_apple:
