@@ -1,1 +1,1 @@
-:green_apple:
+:love_hotel:
