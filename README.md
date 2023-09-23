@@ -1,1 +1,1 @@
-:package:
+:ear_of_rice:
