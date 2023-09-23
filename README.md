@@ -1,1 +1,1 @@
-:scorpius:
+:green_apple:
