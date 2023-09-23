@@ -1,1 +1,1 @@
-:syringe:
+:baggage_claim:
