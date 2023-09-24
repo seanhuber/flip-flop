@@ -1,1 +1,1 @@
-:angel:
+:crescent_moon:
