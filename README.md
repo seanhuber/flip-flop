@@ -1,1 +1,1 @@
-:open_mouth:
+:signal_strength:
