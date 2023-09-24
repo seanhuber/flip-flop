@@ -1,1 +1,1 @@
-:handbag:
+:sunrise_over_mountains:
