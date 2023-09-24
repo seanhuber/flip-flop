@@ -1,1 +1,1 @@
-:princess:
+:heavy_division_sign:
