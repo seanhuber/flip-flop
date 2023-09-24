@@ -1,1 +1,1 @@
-:two_hearts:
+:card_index:
