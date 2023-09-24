@@ -1,1 +1,1 @@
-:capricorn:
+:two_hearts:
