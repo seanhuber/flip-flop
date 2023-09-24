@@ -1,1 +1,1 @@
-:mute:
+:panda_face:
