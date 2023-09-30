@@ -1,1 +1,1 @@
-:leopard:
+:large_blue_diamond:
