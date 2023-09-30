@@ -1,1 +1,1 @@
-:cherry_blossom:
+:leopard:
