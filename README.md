@@ -1,1 +1,1 @@
-:eyes:
+:confetti_ball:
