@@ -1,1 +1,1 @@
-:game_die:
+:house_with_garden:
