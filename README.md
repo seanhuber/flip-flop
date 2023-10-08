@@ -1,1 +1,1 @@
-:ant:
+:arrow_heading_up:
