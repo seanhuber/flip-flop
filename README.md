@@ -1,1 +1,1 @@
-:guardsman:
+:fried_shrimp:
