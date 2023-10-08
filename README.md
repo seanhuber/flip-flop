@@ -1,1 +1,1 @@
-:mountain_railway:
+:credit_card:
