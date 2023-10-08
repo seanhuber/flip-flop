@@ -1,1 +1,1 @@
-:sparkler:
+:game_die:
