@@ -1,1 +1,1 @@
-:leopard:
+:whale2:
