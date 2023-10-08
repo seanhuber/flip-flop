@@ -1,1 +1,1 @@
-:icecream:
+:no_bicycles:
