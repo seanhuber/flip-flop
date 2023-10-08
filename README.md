@@ -1,1 +1,1 @@
-:house_with_garden:
+:white_large_square:
