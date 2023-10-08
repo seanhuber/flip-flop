@@ -1,1 +1,1 @@
-:fried_shrimp:
+:abc:
