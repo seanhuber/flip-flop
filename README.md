@@ -1,1 +1,1 @@
-:laughing:
+:hotel:
