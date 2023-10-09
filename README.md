@@ -1,1 +1,1 @@
-:virgo:
+:love_hotel:
