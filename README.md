@@ -1,1 +1,1 @@
-:love_hotel:
+:fork_and_knife:
