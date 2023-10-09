@@ -1,1 +1,1 @@
-:video_game:
+:ear_of_rice:
