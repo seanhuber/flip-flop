@@ -1,1 +1,1 @@
-:angry:
+:telephone:
