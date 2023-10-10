@@ -1,1 +1,1 @@
-:o:
+:green_book:
