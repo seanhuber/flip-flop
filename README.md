@@ -1,1 +1,1 @@
-:eggplant:
+:blue_car:
