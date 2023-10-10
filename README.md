@@ -1,1 +1,1 @@
-:inbox_tray:
+:steam_locomotive:
