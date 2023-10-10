@@ -1,1 +1,1 @@
-:cocktail:
+:arrow_up_small:
