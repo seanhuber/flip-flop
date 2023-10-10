@@ -1,1 +1,1 @@
-:euro:
+:baby_symbol:
