@@ -1,1 +1,1 @@
-:shower:
+:baby_chick:
