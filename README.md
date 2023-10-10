@@ -1,1 +1,1 @@
-:baby_symbol:
+:open_file_folder:
