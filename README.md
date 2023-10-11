@@ -1,1 +1,1 @@
-:princess:
+:page_with_curl:
