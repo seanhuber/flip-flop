@@ -1,1 +1,1 @@
-:guardsman:
+:signal_strength:
