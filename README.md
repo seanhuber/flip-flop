@@ -1,1 +1,1 @@
-:mans_shoe:
+:art:
