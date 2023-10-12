@@ -1,1 +1,1 @@
-:couplekiss:
+:steam_locomotive:
