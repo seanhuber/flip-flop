@@ -1,1 +1,1 @@
-:necktie:
+:battery:
