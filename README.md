@@ -1,1 +1,1 @@
-:taurus:
+:person_frowning:
