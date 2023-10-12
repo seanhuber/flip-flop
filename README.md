@@ -1,1 +1,1 @@
-:birthday:
+:money_with_wings:
