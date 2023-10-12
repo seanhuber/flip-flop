@@ -1,1 +1,1 @@
-:gift_heart:
+:sweat:
