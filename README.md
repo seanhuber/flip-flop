@@ -1,1 +1,1 @@
-:dash:
+:steam_locomotive:
