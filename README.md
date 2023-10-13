@@ -1,1 +1,1 @@
-:doughnut:
+:mortar_board:
