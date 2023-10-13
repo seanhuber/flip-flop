@@ -1,1 +1,1 @@
-:sweet_potato:
+:traffic_light:
