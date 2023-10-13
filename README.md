@@ -1,1 +1,1 @@
-:mortar_board:
+:sweet_potato:
