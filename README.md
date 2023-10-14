@@ -1,1 +1,1 @@
-:princess:
+:low_brightness:
