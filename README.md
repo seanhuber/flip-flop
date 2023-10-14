@@ -1,1 +1,1 @@
-:horse_racing:
+:page_with_curl:
