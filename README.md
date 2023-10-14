@@ -1,1 +1,1 @@
-:pager:
+:new_moon:
