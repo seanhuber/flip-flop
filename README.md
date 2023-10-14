@@ -1,1 +1,1 @@
-:dancer:
+:no_mouth:
