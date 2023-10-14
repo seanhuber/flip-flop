@@ -1,1 +1,1 @@
-:telescope:
+:rice_cracker:
