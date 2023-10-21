@@ -1,1 +1,1 @@
-:question:
+:bust_in_silhouette:
