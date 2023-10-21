@@ -1,1 +1,1 @@
-:simple_smile:
+:cn:
