@@ -1,1 +1,1 @@
-:cn:
+:waxing_gibbous_moon:
