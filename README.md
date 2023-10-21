@@ -1,1 +1,1 @@
-:tophat:
+:dromedary_camel:
