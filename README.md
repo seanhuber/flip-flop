@@ -1,1 +1,1 @@
-:pill:
+:stuck_out_tongue:
