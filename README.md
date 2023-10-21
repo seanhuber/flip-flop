@@ -1,1 +1,1 @@
-:dolls:
+:potable_water:
