@@ -1,1 +1,1 @@
-:cancer:
+:light_rail:
