@@ -1,1 +1,1 @@
-:mushroom:
+:information_source:
