@@ -1,1 +1,1 @@
-:football:
+:no_entry:
