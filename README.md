@@ -1,1 +1,1 @@
-:registered:
+:mail:
