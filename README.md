@@ -1,1 +1,1 @@
-:sweat:
+:cold_sweat:
