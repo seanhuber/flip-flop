@@ -1,1 +1,1 @@
-:8ball:
+:japanese_castle:
