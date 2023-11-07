@@ -1,1 +1,1 @@
-:couple:
+:rugby_football:
