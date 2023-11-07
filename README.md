@@ -1,1 +1,1 @@
-:clock8:
+:godmode:
