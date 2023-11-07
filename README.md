@@ -1,1 +1,1 @@
-:seat:
+:busts_in_silhouette:
