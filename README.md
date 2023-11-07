@@ -1,1 +1,1 @@
-:football:
+:signal_strength:
