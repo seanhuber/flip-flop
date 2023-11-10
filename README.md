@@ -1,1 +1,1 @@
-:rice_scene:
+:city_sunset:
