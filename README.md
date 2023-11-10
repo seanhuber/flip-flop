@@ -1,1 +1,1 @@
-:dolphin:
+:small_orange_diamond:
