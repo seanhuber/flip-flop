@@ -1,1 +1,1 @@
-:toilet:
+:large_blue_diamond:
