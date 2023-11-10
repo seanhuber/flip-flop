@@ -1,1 +1,1 @@
-:large_blue_diamond:
+:six_pointed_star:
