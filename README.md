@@ -1,1 +1,1 @@
-:rowboat:
+:rice_scene:
