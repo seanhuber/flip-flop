@@ -1,1 +1,1 @@
-:six_pointed_star:
+:no_entry:
