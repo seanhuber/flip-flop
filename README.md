@@ -1,1 +1,1 @@
-:capricorn:
+:rabbit2:
