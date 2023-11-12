@@ -1,1 +1,1 @@
-:disappointed_relieved:
+:aerial_tramway:
