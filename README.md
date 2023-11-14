@@ -1,1 +1,1 @@
-:abc:
+:milky_way:
