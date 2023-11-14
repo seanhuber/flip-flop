@@ -1,1 +1,1 @@
-:sweet_potato:
+:panda_face:
