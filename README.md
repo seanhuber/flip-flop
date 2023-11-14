@@ -1,1 +1,1 @@
-:partly_sunny:
+:white_medium_small_square:
