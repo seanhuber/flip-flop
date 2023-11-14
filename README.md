@@ -1,1 +1,1 @@
-:white_medium_small_square:
+:large_blue_diamond:
