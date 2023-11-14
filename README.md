@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:love_hotel:
