@@ -1,1 +1,1 @@
-:mailbox_closed:
+:heart_decoration:
