@@ -1,1 +1,1 @@
-:no_mouth:
+:jack_o_lantern:
