@@ -1,1 +1,1 @@
-:horse:
+:partly_sunny:
