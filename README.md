@@ -1,1 +1,1 @@
-:football:
+:straight_ruler:
