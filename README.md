@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:rice_cracker:
