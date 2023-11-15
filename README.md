@@ -1,1 +1,1 @@
-:waning_gibbous_moon:
+:poop:
