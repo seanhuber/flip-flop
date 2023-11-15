@@ -1,1 +1,1 @@
-:arrow_upper_right:
+:mailbox_with_no_mail:
