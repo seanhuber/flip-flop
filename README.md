@@ -1,1 +1,1 @@
-:arrow_up_small:
+:expressionless:
