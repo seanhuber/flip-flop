@@ -1,1 +1,1 @@
-:rainbow:
+:arrow_up_small:
