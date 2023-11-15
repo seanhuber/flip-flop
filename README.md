@@ -1,1 +1,1 @@
-:pouting_cat:
+:alarm_clock:
