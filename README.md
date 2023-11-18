@@ -1,1 +1,1 @@
-:symbols:
+:repeat_one:
