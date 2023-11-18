@@ -1,1 +1,1 @@
-:blue_book:
+:file_folder:
