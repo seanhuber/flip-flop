@@ -1,1 +1,1 @@
-:pear:
+:recycle:
