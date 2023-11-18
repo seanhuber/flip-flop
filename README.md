@@ -1,1 +1,1 @@
-:facepunch:
+:sagittarius:
