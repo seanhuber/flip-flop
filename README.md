@@ -1,1 +1,1 @@
-:melon:
+:necktie:
