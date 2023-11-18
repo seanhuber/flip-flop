@@ -1,1 +1,1 @@
-:necktie:
+:video_game:
