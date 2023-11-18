@@ -1,1 +1,1 @@
-:rice_ball:
+:large_blue_circle:
