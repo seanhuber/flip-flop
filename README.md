@@ -1,1 +1,1 @@
-:straight_ruler:
+:rice_ball:
