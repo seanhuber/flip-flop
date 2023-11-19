@@ -1,1 +1,1 @@
-:bamboo:
+:couplekiss:
