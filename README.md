@@ -1,1 +1,1 @@
-:ophiuchus:
+:closed_book:
