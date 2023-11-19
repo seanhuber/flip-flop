@@ -1,1 +1,1 @@
-:cloud:
+:closed_book:
