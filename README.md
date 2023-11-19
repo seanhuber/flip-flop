@@ -1,1 +1,1 @@
-:skull:
+:bamboo:
