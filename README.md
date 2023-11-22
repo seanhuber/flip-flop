@@ -1,1 +1,1 @@
-:small_red_triangle:
+:cat2:
