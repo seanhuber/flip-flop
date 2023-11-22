@@ -1,1 +1,1 @@
-:sparkles:
+:pray:
