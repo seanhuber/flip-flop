@@ -1,1 +1,1 @@
-:cinema:
+:small_red_triangle:
