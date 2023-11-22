@@ -1,1 +1,1 @@
-:relieved:
+:euro:
