@@ -1,1 +1,1 @@
-:whale:
+:six_pointed_star:
