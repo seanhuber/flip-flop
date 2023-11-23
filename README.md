@@ -1,1 +1,1 @@
-:spades:
+:point_up_2:
