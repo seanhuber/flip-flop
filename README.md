@@ -1,1 +1,1 @@
-:sweat_drops:
+:two_women_holding_hands:
