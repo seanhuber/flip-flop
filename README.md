@@ -1,1 +1,1 @@
-:anger:
+:white_square_button:
