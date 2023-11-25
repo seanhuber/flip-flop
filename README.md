@@ -1,1 +1,1 @@
-:no_pedestrians:
+:hatching_chick:
