@@ -1,1 +1,1 @@
-:ophiuchus:
+:fast_forward:
