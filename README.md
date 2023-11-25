@@ -1,1 +1,1 @@
-:toilet:
+:kissing_cat:
