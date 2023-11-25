@@ -1,1 +1,1 @@
-:b:
+:izakaya_lantern:
