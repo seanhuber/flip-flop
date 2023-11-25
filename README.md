@@ -1,1 +1,1 @@
-:ski:
+:no_pedestrians:
