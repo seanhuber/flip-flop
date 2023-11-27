@@ -1,1 +1,1 @@
-:fish:
+:carousel_horse:
