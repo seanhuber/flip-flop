@@ -1,1 +1,1 @@
-:two_hearts:
+:small_red_triangle:
