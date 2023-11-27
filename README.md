@@ -1,1 +1,1 @@
-:frog:
+:credit_card:
