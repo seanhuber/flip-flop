@@ -1,1 +1,1 @@
-:crown:
+:ribbon:
