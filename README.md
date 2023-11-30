@@ -1,1 +1,1 @@
-:koko:
+:strawberry:
