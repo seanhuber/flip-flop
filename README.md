@@ -1,1 +1,1 @@
-:tiger:
+:no_mouth:
