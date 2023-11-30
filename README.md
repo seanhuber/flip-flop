@@ -1,1 +1,1 @@
-:strawberry:
+:mute:
