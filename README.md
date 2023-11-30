@@ -1,1 +1,1 @@
-:mute:
+:blue_car:
