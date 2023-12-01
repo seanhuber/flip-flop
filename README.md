@@ -1,1 +1,1 @@
-:bear:
+:left_right_arrow:
