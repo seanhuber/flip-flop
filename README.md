@@ -1,1 +1,1 @@
-:grimacing:
+:poultry_leg:
