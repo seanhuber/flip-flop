@@ -1,1 +1,1 @@
-:busstop:
+:stuck_out_tongue:
