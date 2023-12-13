@@ -1,1 +1,1 @@
-:mans_shoe:
+:red_circle:
