@@ -1,1 +1,1 @@
-:bank:
+:keycap_ten:
