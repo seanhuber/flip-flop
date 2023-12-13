@@ -1,1 +1,1 @@
-:beers:
+:mans_shoe:
