@@ -1,1 +1,1 @@
-:thumbsup:
+:chocolate_bar:
