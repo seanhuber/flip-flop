@@ -1,1 +1,1 @@
-:kissing:
+:clipboard:
