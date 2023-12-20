@@ -1,1 +1,1 @@
-:japanese_goblin:
+:dash:
