@@ -1,1 +1,1 @@
-:seven:
+:japanese_goblin:
