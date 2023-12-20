@@ -1,1 +1,1 @@
-:circus_tent:
+:bar_chart:
