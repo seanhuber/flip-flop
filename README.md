@@ -1,1 +1,1 @@
-:v:
+:newspaper:
