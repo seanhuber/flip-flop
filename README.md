@@ -1,1 +1,1 @@
-:sa:
+:diamonds:
