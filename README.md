@@ -1,1 +1,1 @@
-:smoking:
+:heavy_dollar_sign:
