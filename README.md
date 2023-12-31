@@ -1,1 +1,1 @@
-:laughing:
+:us:
