@@ -1,1 +1,1 @@
-:ribbon:
+:speak_no_evil:
