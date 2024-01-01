@@ -1,1 +1,1 @@
-:grin:
+:aerial_tramway:
