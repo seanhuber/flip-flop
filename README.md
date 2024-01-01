@@ -1,1 +1,1 @@
-:koala:
+:palm_tree:
