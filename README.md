@@ -1,1 +1,1 @@
-:guitar:
+:cherry_blossom:
