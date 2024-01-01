@@ -1,1 +1,1 @@
-:crystal_ball:
+:koala:
