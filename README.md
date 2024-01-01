@@ -1,1 +1,1 @@
-:eight_spoked_asterisk:
+:put_litter_in_its_place:
