@@ -1,1 +1,1 @@
-:satisfied:
+:eight_spoked_asterisk:
