@@ -1,1 +1,1 @@
-:cold_sweat:
+:arrow_lower_right:
