@@ -1,1 +1,1 @@
-:grinning:
+:slot_machine:
