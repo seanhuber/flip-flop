@@ -1,1 +1,1 @@
-:grinning:
+:do_not_litter:
