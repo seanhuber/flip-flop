@@ -1,1 +1,1 @@
-:bikini:
+:mount_fuji:
