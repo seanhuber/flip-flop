@@ -1,1 +1,1 @@
-:earth_americas:
+:deciduous_tree:
