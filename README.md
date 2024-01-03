@@ -1,1 +1,1 @@
-:neckbeard:
+:purse:
