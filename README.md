@@ -1,1 +1,1 @@
-:thought_balloon:
+:bear:
