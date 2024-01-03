@@ -1,1 +1,1 @@
-:black_medium_small_square:
+:busts_in_silhouette:
