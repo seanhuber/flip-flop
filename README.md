@@ -1,1 +1,1 @@
-:crocodile:
+:thought_balloon:
