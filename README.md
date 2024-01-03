@@ -1,1 +1,1 @@
-:truck:
+:water_buffalo:
