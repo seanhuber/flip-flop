@@ -1,1 +1,1 @@
-:busts_in_silhouette:
+:mailbox_with_no_mail:
