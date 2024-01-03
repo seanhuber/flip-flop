@@ -1,1 +1,1 @@
-:shell:
+:closed_book:
