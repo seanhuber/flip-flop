@@ -1,1 +1,1 @@
-:european_post_office:
+:kissing_closed_eyes:
