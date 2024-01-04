@@ -1,1 +1,1 @@
-:no_mobile_phones:
+:arrow_lower_left:
