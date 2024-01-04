@@ -1,1 +1,1 @@
-:musical_note:
+:european_post_office:
