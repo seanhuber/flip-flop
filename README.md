@@ -1,1 +1,1 @@
-:corn:
+:sweat:
