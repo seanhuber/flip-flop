@@ -1,1 +1,1 @@
-:arrow_double_up:
+:slot_machine:
