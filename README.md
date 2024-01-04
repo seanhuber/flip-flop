@@ -1,1 +1,1 @@
-:droplet:
+:arrow_double_up:
