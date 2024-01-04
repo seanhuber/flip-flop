@@ -1,1 +1,1 @@
-:slot_machine:
+:baby_chick:
