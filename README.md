@@ -1,1 +1,1 @@
-:arrow_heading_down:
+:large_orange_diamond:
