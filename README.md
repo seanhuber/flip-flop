@@ -1,1 +1,1 @@
-:moyai:
+:waning_crescent_moon:
