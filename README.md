@@ -1,1 +1,1 @@
-:grinning:
+:shaved_ice:
