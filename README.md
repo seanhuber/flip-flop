@@ -1,1 +1,1 @@
-:libra:
+:arrow_heading_down:
