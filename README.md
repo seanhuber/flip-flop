@@ -1,1 +1,1 @@
-:smoking:
+:persevere:
