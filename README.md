@@ -1,1 +1,1 @@
-:waning_crescent_moon:
+:smoking:
