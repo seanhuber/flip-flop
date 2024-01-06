@@ -1,1 +1,1 @@
-:rainbow:
+:aerial_tramway:
