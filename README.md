@@ -1,1 +1,1 @@
-:palm_tree:
+:rice_cracker:
