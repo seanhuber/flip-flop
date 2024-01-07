@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:house_with_garden:
