@@ -1,1 +1,1 @@
-:moyai:
+:yellow_heart:
