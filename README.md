@@ -1,1 +1,1 @@
-:neckbeard:
+:yellow_heart:
