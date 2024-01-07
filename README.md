@@ -1,1 +1,1 @@
-:house_with_garden:
+:four_leaf_clover:
