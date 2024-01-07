@@ -1,1 +1,1 @@
-:yellow_heart:
+:seedling:
