@@ -1,1 +1,1 @@
-:seedling:
+:point_up_2:
