@@ -1,1 +1,1 @@
-:no_mobile_phones:
+:see_no_evil:
