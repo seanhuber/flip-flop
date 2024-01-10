@@ -1,1 +1,1 @@
-:dress:
+:dromedary_camel:
