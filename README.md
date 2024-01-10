@@ -1,1 +1,1 @@
-:guardsman:
+:left_luggage:
