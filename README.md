@@ -1,1 +1,1 @@
-:purple_heart:
+:dromedary_camel:
