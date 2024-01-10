@@ -1,1 +1,1 @@
-:art:
+:left_luggage:
