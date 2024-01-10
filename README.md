@@ -1,1 +1,1 @@
-:couple:
+:trolleybus:
