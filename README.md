@@ -1,1 +1,1 @@
-:tangerine:
+:arrows_counterclockwise:
