@@ -1,1 +1,1 @@
-:arrows_counterclockwise:
+:statue_of_liberty:
