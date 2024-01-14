@@ -1,1 +1,1 @@
-:laughing:
+:video_game:
