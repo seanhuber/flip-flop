@@ -1,1 +1,1 @@
-:bank:
+:sparkling_heart:
