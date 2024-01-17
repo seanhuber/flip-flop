@@ -1,1 +1,1 @@
-:love_letter:
+:sweat_smile:
