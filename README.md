@@ -1,1 +1,1 @@
-:zap:
+:tshirt:
