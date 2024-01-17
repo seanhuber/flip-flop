@@ -1,1 +1,1 @@
-:man_with_gua_pi_mao:
+:point_up_2:
