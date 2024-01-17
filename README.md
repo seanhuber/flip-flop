@@ -1,1 +1,1 @@
-:recycle:
+:love_letter:
