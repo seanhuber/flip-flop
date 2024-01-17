@@ -1,1 +1,1 @@
-:purse:
+:sunny:
