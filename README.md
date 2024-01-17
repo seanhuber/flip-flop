@@ -1,1 +1,1 @@
-:dog:
+:arrow_down_small:
