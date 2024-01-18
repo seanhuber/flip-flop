@@ -1,1 +1,1 @@
-:restroom:
+:tropical_drink:
