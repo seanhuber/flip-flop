@@ -1,1 +1,1 @@
-:scream:
+:white_square_button:
