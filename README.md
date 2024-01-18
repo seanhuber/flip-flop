@@ -1,1 +1,1 @@
-:tropical_drink:
+:sweat_drops:
