@@ -1,1 +1,1 @@
-:baby_symbol:
+:bowling:
