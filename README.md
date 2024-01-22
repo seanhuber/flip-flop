@@ -1,1 +1,1 @@
-:white_circle:
+:arrow_lower_right:
