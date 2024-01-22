@@ -1,1 +1,1 @@
-:ok_hand:
+:white_circle:
