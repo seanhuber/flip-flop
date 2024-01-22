@@ -1,1 +1,1 @@
-:signal_strength:
+:hear_no_evil:
