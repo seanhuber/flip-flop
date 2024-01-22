@@ -1,1 +1,1 @@
-:angry:
+:milky_way:
