@@ -1,1 +1,1 @@
-:strawberry:
+:signal_strength:
