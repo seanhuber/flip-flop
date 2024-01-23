@@ -1,1 +1,1 @@
-:vibration_mode:
+:house_with_garden:
