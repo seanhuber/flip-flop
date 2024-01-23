@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:hatched_chick:
