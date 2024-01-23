@@ -1,1 +1,1 @@
-:crossed_flags:
+:ballot_box_with_check:
