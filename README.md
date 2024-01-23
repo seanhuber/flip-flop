@@ -1,1 +1,1 @@
-:yen:
+:performing_arts:
