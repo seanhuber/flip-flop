@@ -1,1 +1,1 @@
-:warning:
+:articulated_lorry:
