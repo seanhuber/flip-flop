@@ -1,1 +1,1 @@
-:envelope:
+:ice_cream:
