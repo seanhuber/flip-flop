@@ -1,1 +1,1 @@
-:punch:
+:vibration_mode:
