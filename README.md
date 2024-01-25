@@ -1,1 +1,1 @@
-:rage:
+:black_small_square:
