@@ -1,1 +1,1 @@
-:apple:
+:arrow_right:
