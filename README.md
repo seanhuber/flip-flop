@@ -1,1 +1,1 @@
-:thumbsup:
+:honey_pot:
