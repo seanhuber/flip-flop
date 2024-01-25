@@ -1,1 +1,1 @@
-:kiss:
+:ghost:
