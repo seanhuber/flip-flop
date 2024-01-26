@@ -1,1 +1,1 @@
-:white_large_square:
+:clubs:
