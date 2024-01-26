@@ -1,1 +1,1 @@
-:left_luggage:
+:white_large_square:
