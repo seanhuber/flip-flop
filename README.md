@@ -1,1 +1,1 @@
-:u7533:
+:vibration_mode:
