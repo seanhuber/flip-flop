@@ -1,1 +1,1 @@
-:rage1:
+:last_quarter_moon:
