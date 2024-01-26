@@ -1,1 +1,1 @@
-:purse:
+:credit_card:
