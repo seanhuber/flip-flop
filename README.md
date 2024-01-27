@@ -1,1 +1,1 @@
-:kimono:
+:ferris_wheel:
