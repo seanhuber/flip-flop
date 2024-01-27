@@ -1,1 +1,1 @@
-:virgo:
+:fast_forward:
