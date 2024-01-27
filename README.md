@@ -1,1 +1,1 @@
-:ox:
+:mailbox_closed:
