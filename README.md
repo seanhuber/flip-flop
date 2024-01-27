@@ -1,1 +1,1 @@
-:ferris_wheel:
+:deciduous_tree:
