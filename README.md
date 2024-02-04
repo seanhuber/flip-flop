@@ -1,1 +1,1 @@
-:hotsprings:
+:arrow_down:
