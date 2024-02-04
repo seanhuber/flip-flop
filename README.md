@@ -1,1 +1,1 @@
-:blue_heart:
+:couple_with_heart:
