@@ -1,1 +1,1 @@
-:cherry_blossom:
+:closed_book:
