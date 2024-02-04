@@ -1,1 +1,1 @@
-:pushpin:
+:construction_worker:
