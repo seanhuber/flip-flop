@@ -1,1 +1,1 @@
-:wave:
+:relaxed:
