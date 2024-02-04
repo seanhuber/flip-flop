@@ -1,1 +1,1 @@
-:closed_book:
+:blue_heart:
