@@ -1,1 +1,1 @@
-:construction_worker:
+:pencil2:
