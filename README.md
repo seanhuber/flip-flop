@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:last_quarter_moon_with_face:
