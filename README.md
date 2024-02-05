@@ -1,1 +1,1 @@
-:u6709:
+:statue_of_liberty:
