@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:floppy_disk:
