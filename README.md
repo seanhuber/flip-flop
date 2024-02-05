@@ -1,1 +1,1 @@
-:grin:
+:red_circle:
