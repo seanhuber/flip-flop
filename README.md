@@ -1,1 +1,1 @@
-:bank:
+:panda_face:
