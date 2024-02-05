@@ -1,1 +1,1 @@
-:doughnut:
+:dollar:
