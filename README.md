@@ -1,1 +1,1 @@
-:panda_face:
+:point_up:
