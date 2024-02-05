@@ -1,1 +1,1 @@
-:floppy_disk:
+:headphones:
