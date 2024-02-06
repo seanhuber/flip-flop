@@ -1,1 +1,1 @@
-:tangerine:
+:japan:
