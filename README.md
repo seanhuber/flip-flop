@@ -1,1 +1,1 @@
-:pig:
+:wine_glass:
