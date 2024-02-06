@@ -1,1 +1,1 @@
-:wine_glass:
+:fried_shrimp:
