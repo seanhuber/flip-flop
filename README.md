@@ -1,1 +1,1 @@
-:fist:
+:cupid:
