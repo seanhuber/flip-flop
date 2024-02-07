@@ -1,1 +1,1 @@
-:hospital:
+:speedboat:
