@@ -1,1 +1,1 @@
-:sunglasses:
+:arrow_left:
