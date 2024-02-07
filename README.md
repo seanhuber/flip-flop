@@ -1,1 +1,1 @@
-:hankey:
+:closed_umbrella:
