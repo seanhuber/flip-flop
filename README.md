@@ -1,1 +1,1 @@
-:chicken:
+:white_large_square:
