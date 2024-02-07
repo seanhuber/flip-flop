@@ -1,1 +1,1 @@
-:clapper:
+:electric_plug:
