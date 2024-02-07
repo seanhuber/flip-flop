@@ -1,1 +1,1 @@
-:weary:
+:hospital:
