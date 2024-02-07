@@ -1,1 +1,1 @@
-:speedboat:
+:construction_worker:
