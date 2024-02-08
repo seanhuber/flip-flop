@@ -1,1 +1,1 @@
-:low_brightness:
+:yellow_heart:
