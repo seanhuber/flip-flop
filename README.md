@@ -1,1 +1,1 @@
-:arrow_up:
+:mute:
