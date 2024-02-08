@@ -1,1 +1,1 @@
-:blue_car:
+:low_brightness:
