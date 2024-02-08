@@ -1,1 +1,1 @@
-:kimono:
+:poultry_leg:
