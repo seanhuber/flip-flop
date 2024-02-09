@@ -1,1 +1,1 @@
-:large_blue_diamond:
+:raising_hand:
