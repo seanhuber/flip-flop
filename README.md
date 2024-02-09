@@ -1,1 +1,1 @@
-:wavy_dash:
+:outbox_tray:
