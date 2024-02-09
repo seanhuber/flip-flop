@@ -1,1 +1,1 @@
-:six:
+:heavy_plus_sign:
