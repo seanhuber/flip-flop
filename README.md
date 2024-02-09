@@ -1,1 +1,1 @@
-:man_with_turban:
+:busts_in_silhouette:
