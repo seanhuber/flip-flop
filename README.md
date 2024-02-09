@@ -1,1 +1,1 @@
-:telephone_receiver:
+:passport_control:
