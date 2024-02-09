@@ -1,1 +1,1 @@
-:man_with_turban:
+:page_facing_up:
