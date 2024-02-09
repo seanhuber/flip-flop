@@ -1,1 +1,1 @@
-:diamonds:
+:man_with_turban:
