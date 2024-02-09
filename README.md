@@ -1,1 +1,1 @@
-:outbox_tray:
+:circus_tent:
