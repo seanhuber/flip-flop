@@ -1,1 +1,1 @@
-:ambulance:
+:wavy_dash:
