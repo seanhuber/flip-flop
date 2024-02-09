@@ -1,1 +1,1 @@
-:yellow_heart:
+:articulated_lorry:
