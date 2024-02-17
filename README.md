@@ -1,1 +1,1 @@
-:heartbeat:
+:open_hands:
