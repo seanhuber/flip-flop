@@ -1,1 +1,1 @@
-:coffee:
+:vibration_mode:
