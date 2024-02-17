@@ -1,1 +1,1 @@
-:vibration_mode:
+:mailbox_closed:
