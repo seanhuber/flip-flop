@@ -1,1 +1,1 @@
-:boot:
+:straight_ruler:
