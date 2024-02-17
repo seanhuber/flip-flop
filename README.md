@@ -1,1 +1,1 @@
-:straight_ruler:
+:jp:
