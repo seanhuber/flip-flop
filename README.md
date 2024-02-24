@@ -1,1 +1,1 @@
-:tshirt:
+:full_moon:
