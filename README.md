@@ -1,1 +1,1 @@
-:clock630:
+:vibration_mode:
