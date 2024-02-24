@@ -1,1 +1,1 @@
-:dizzy:
+:black_small_square:
