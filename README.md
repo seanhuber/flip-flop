@@ -1,1 +1,1 @@
-:accept:
+:carousel_horse:
