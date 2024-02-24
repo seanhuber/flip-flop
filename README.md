@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:chart_with_upwards_trend:
