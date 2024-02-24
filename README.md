@@ -1,1 +1,1 @@
-:busts_in_silhouette:
+:large_blue_diamond:
