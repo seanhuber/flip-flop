@@ -1,1 +1,1 @@
-:crescent_moon:
+:point_right:
