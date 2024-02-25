@@ -1,1 +1,1 @@
-:japan:
+:arrow_heading_up:
