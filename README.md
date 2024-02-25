@@ -1,1 +1,1 @@
-:tv:
+:moneybag:
