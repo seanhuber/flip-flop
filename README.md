@@ -1,1 +1,1 @@
-:no_bicycles:
+:satellite:
