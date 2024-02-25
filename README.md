@@ -1,1 +1,1 @@
-:honey_pot:
+:rabbit2:
