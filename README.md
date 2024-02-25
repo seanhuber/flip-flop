@@ -1,1 +1,1 @@
-:satellite:
+:clapper:
