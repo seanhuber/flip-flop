@@ -1,1 +1,1 @@
-:moneybag:
+:relaxed:
