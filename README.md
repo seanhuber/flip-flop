@@ -1,1 +1,1 @@
-:kissing_closed_eyes:
+:new_moon_with_face:
