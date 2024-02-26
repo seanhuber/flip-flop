@@ -1,1 +1,1 @@
-:snowflake:
+:art:
