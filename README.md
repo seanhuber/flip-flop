@@ -1,1 +1,1 @@
-:bookmark:
+:clipboard:
