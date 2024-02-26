@@ -1,1 +1,1 @@
-:b:
+:earth_africa:
