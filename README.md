@@ -1,1 +1,1 @@
-:thumbsdown:
+:smirk_cat:
