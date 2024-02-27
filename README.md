@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:white_medium_square:
