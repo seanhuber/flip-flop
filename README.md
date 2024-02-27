@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:part_alternation_mark:
