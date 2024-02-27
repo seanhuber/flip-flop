@@ -1,1 +1,1 @@
-:beers:
+:heavy_minus_sign:
