@@ -1,1 +1,1 @@
-:smirk_cat:
+:heavy_dollar_sign:
