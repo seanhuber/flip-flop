@@ -1,1 +1,1 @@
-:black_square_button:
+:small_orange_diamond:
