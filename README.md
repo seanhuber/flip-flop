@@ -1,1 +1,1 @@
-:sparkles:
+:european_castle:
