@@ -1,1 +1,1 @@
-:inbox_tray:
+:rugby_football:
