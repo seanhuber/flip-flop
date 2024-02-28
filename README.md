@@ -1,1 +1,1 @@
-:bento:
+:white_medium_square:
