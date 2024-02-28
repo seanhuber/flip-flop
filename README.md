@@ -1,1 +1,1 @@
-:european_castle:
+:point_right:
