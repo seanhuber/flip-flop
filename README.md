@@ -1,1 +1,1 @@
-:it:
+:sparkles:
