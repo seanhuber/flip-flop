@@ -1,1 +1,1 @@
-:white_medium_square:
+:triangular_flag_on_post:
