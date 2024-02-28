@@ -1,1 +1,1 @@
-:arrow_heading_down:
+:stuck_out_tongue_winking_eye:
