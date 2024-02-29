@@ -1,1 +1,1 @@
-:punch:
+:open_hands:
