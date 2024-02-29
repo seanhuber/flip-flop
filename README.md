@@ -1,1 +1,1 @@
-:registered:
+:o:
