@@ -1,1 +1,1 @@
-:mailbox:
+:articulated_lorry:
