@@ -1,1 +1,1 @@
-:heart_eyes_cat:
+:small_red_triangle_down:
