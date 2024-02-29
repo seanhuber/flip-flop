@@ -1,1 +1,1 @@
-:yen:
+:potable_water:
