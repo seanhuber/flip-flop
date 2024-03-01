@@ -1,1 +1,1 @@
-:id:
+:smile_cat:
