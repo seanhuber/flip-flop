@@ -1,1 +1,1 @@
-:card_index:
+:kissing_smiling_eyes:
