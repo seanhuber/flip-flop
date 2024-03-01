@@ -1,1 +1,1 @@
-:tangerine:
+:dash:
