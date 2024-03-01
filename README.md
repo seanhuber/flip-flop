@@ -1,1 +1,1 @@
-:feelsgood:
+:izakaya_lantern:
