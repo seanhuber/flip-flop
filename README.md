@@ -1,1 +1,1 @@
-:peach:
+:moneybag:
