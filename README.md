@@ -1,1 +1,1 @@
-:dash:
+:eight_spoked_asterisk:
