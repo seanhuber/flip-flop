@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:chart_with_upwards_trend:
