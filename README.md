@@ -1,1 +1,1 @@
-:fishing_pole_and_fish:
+:two_men_holding_hands:
