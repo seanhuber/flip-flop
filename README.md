@@ -1,1 +1,1 @@
-:thought_balloon:
+:heavy_dollar_sign:
