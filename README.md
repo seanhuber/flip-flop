@@ -1,1 +1,1 @@
-:hospital:
+:thought_balloon:
