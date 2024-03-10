@@ -1,1 +1,1 @@
-:it:
+:copyright:
