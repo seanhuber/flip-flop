@@ -1,1 +1,1 @@
-:performing_arts:
+:white_large_square:
