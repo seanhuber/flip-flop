@@ -1,1 +1,1 @@
-:virgo:
+:part_alternation_mark:
