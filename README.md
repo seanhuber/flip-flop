@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:dragon_face:
