@@ -1,1 +1,1 @@
-:anguished:
+:bride_with_veil:
