@@ -1,1 +1,1 @@
-:flushed:
+:kissing_cat:
