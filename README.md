@@ -1,1 +1,1 @@
-:anguished:
+:curly_loop:
