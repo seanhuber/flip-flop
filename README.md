@@ -1,1 +1,1 @@
-:seedling:
+:euro:
