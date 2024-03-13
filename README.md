@@ -1,1 +1,1 @@
-:barber:
+:ear_of_rice:
