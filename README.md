@@ -1,1 +1,1 @@
-:fish_cake:
+:white_large_square:
