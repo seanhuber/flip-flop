@@ -1,1 +1,1 @@
-:potable_water:
+:chocolate_bar:
