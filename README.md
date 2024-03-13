@@ -1,1 +1,1 @@
-:low_brightness:
+:seven:
