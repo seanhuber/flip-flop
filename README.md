@@ -1,1 +1,1 @@
-:persevere:
+:hatched_chick:
