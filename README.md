@@ -1,1 +1,1 @@
-:snake:
+:railway_car:
