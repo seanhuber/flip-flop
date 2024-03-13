@@ -1,1 +1,1 @@
-:telescope:
+:older_woman:
