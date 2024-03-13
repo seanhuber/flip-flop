@@ -1,1 +1,1 @@
-:fork_and_knife:
+:potable_water:
