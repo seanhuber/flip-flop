@@ -1,1 +1,1 @@
-:dizzy:
+:moyai:
