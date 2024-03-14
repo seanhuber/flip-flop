@@ -1,1 +1,1 @@
-:penguin:
+:sparkling_heart:
