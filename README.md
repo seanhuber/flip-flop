@@ -1,1 +1,1 @@
-:pisces:
+:mailbox_with_mail:
