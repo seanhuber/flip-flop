@@ -1,1 +1,1 @@
-:moyai:
+:game_die:
