@@ -1,1 +1,1 @@
-:feet:
+:movie_camera:
