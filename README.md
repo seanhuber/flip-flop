@@ -1,1 +1,1 @@
-:wedding:
+:open_mouth:
