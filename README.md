@@ -1,1 +1,1 @@
-:blossom:
+:dango:
