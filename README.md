@@ -1,1 +1,1 @@
-:phone:
+:speech_balloon:
