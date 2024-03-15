@@ -1,1 +1,1 @@
-:registered:
+:six_pointed_star:
