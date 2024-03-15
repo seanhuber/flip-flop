@@ -1,1 +1,1 @@
-:dizzy:
+:black_nib:
