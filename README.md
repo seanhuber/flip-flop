@@ -1,1 +1,1 @@
-:herb:
+:earth_africa:
