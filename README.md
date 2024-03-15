@@ -1,1 +1,1 @@
-:cake:
+:large_orange_diamond:
