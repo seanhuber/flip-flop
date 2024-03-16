@@ -1,1 +1,1 @@
-:earth_asia:
+:bridge_at_night:
