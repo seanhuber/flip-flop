@@ -1,1 +1,1 @@
-:briefcase:
+:aquarius:
