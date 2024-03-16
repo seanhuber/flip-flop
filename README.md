@@ -1,1 +1,1 @@
-:no_smoking:
+:bride_with_veil:
