@@ -1,1 +1,1 @@
-:pensive:
+:checkered_flag:
