@@ -1,1 +1,1 @@
-:snail:
+:eight_spoked_asterisk:
