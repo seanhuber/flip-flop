@@ -1,1 +1,1 @@
-:dress:
+:no_smoking:
