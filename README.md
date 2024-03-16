@@ -1,1 +1,1 @@
-:aquarius:
+:crying_cat_face:
