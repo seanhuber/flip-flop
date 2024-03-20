@@ -1,1 +1,1 @@
-:lipstick:
+:email:
