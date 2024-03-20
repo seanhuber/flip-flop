@@ -1,1 +1,1 @@
-:wolf:
+:sushi:
