@@ -1,1 +1,1 @@
-:heart_eyes:
+:lipstick:
