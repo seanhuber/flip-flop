@@ -1,1 +1,1 @@
-:fries:
+:no_pedestrians:
