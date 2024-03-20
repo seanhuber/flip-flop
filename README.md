@@ -1,1 +1,1 @@
-:hushed:
+:light_rail:
