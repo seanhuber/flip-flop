@@ -1,1 +1,1 @@
-:email:
+:red_circle:
