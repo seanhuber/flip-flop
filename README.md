@@ -1,1 +1,1 @@
-:metal:
+:joy_cat:
