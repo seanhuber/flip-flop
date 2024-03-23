@@ -1,1 +1,1 @@
-:microscope:
+:six_pointed_star:
