@@ -1,1 +1,1 @@
-:six_pointed_star:
+:put_litter_in_its_place:
