@@ -1,1 +1,1 @@
-:moyai:
+:coffee:
