@@ -1,1 +1,1 @@
-:seven:
+:partly_sunny:
