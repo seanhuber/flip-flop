@@ -1,1 +1,1 @@
-:articulated_lorry:
+:point_right:
