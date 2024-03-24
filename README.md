@@ -1,1 +1,1 @@
-:coffee:
+:waxing_gibbous_moon:
