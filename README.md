@@ -1,1 +1,1 @@
-:chestnut:
+:articulated_lorry:
