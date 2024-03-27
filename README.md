@@ -1,1 +1,1 @@
-:thumbsup:
+:laughing:
