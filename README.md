@@ -1,1 +1,1 @@
-:sunglasses:
+:pager:
