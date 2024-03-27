@@ -1,1 +1,1 @@
-:kimono:
+:nail_care:
