@@ -1,1 +1,1 @@
-:pager:
+:frog:
