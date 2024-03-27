@@ -1,1 +1,1 @@
-:tokyo_tower:
+:page_with_curl:
