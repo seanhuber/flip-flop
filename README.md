@@ -1,1 +1,1 @@
-:flower_playing_cards:
+:baby_chick:
