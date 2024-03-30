@@ -1,1 +1,1 @@
-:anger:
+:panda_face:
