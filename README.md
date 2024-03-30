@@ -1,1 +1,1 @@
-:railway_car:
+:european_castle:
