@@ -1,1 +1,1 @@
-:partly_sunny:
+:arrow_upper_right:
