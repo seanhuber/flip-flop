@@ -1,1 +1,1 @@
-:honey_pot:
+:flower_playing_cards:
