@@ -1,1 +1,1 @@
-:japanese_castle:
+:honey_pot:
