@@ -1,1 +1,1 @@
-:trident:
+:city_sunrise:
