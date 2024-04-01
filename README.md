@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:wavy_dash:
