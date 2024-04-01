@@ -1,1 +1,1 @@
-:couple:
+:star2:
