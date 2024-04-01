@@ -1,1 +1,1 @@
-:laughing:
+:bullettrain_side:
