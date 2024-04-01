@@ -1,1 +1,1 @@
-:skull:
+:ticket:
