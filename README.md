@@ -1,1 +1,1 @@
-:fish_cake:
+:part_alternation_mark:
