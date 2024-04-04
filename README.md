@@ -1,1 +1,1 @@
-:pizza:
+:potable_water:
