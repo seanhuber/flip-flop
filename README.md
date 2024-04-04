@@ -1,1 +1,1 @@
-:sunrise_over_mountains:
+:two_men_holding_hands:
