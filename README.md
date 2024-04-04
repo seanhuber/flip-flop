@@ -1,1 +1,1 @@
-:tennis:
+:rice_ball:
