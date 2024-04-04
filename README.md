@@ -1,1 +1,1 @@
-:icecream:
+:pizza:
