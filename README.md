@@ -1,1 +1,1 @@
-:couple:
+:stuck_out_tongue:
