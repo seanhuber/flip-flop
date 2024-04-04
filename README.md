@@ -1,1 +1,1 @@
-:apple:
+:tokyo_tower:
