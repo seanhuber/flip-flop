@@ -1,1 +1,1 @@
-:hourglass_flowing_sand:
+:haircut:
