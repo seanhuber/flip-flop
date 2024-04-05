@@ -1,1 +1,1 @@
-:european_castle:
+:high_heel:
