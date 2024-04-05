@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:8ball:
