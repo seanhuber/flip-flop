@@ -1,1 +1,1 @@
-:pushpin:
+:mountain_bicyclist:
