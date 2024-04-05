@@ -1,1 +1,1 @@
-:8ball:
+:hourglass_flowing_sand:
