@@ -1,1 +1,1 @@
-:haircut:
+:white_check_mark:
