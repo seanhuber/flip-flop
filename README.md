@@ -1,1 +1,1 @@
-:man_with_gua_pi_mao:
+:izakaya_lantern:
