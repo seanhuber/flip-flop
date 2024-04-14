@@ -1,1 +1,1 @@
-:shoe:
+:point_up_2:
