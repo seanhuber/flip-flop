@@ -1,1 +1,1 @@
-:goat:
+:earth_americas:
