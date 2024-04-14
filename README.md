@@ -1,1 +1,1 @@
-:watermelon:
+:minibus:
