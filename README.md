@@ -1,1 +1,1 @@
-:tiger:
+:straight_ruler:
