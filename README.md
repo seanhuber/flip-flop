@@ -1,1 +1,1 @@
-:baseball:
+:raised_hand:
