@@ -1,1 +1,1 @@
-:wedding:
+:tropical_fish:
