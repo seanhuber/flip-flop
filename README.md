@@ -1,1 +1,1 @@
-:tractor:
+:wedding:
