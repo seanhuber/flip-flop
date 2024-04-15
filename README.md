@@ -1,1 +1,1 @@
-:raised_hand:
+:wavy_dash:
