@@ -1,1 +1,1 @@
-:minibus:
+:haircut:
