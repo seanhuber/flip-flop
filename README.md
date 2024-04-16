@@ -1,1 +1,1 @@
-:mailbox_closed:
+:large_orange_diamond:
