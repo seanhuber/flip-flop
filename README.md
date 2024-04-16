@@ -1,1 +1,1 @@
-:traffic_light:
+:heart_decoration:
