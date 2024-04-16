@@ -1,1 +1,1 @@
-:trollface:
+:ledger:
