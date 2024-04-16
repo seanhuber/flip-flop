@@ -1,1 +1,1 @@
-:ledger:
+:aerial_tramway:
