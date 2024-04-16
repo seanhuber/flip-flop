@@ -1,1 +1,1 @@
-:euro:
+:mailbox_closed:
