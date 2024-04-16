@@ -1,1 +1,1 @@
-:accept:
+:no_good:
