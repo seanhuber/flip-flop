@@ -1,1 +1,1 @@
-:us:
+:bullettrain_side:
