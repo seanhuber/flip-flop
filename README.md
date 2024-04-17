@@ -1,1 +1,1 @@
-:smile_cat:
+:mortar_board:
