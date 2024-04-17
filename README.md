@@ -1,1 +1,1 @@
-:tshirt:
+:smile_cat:
