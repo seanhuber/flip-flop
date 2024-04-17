@@ -1,1 +1,1 @@
-:closed_umbrella:
+:eight_spoked_asterisk:
