@@ -1,1 +1,1 @@
-:apple:
+:closed_umbrella:
