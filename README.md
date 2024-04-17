@@ -1,1 +1,1 @@
-:minidisc:
+:diamonds:
