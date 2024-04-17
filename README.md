@@ -1,1 +1,1 @@
-:diamonds:
+:hamster:
