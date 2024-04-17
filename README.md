@@ -1,1 +1,1 @@
-:strawberry:
+:page_facing_up:
