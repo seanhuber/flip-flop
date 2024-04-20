@@ -1,1 +1,1 @@
-:love_letter:
+:chocolate_bar:
