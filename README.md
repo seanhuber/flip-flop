@@ -1,1 +1,1 @@
-:bus:
+:izakaya_lantern:
