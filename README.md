@@ -1,1 +1,1 @@
-:cow:
+:minibus:
