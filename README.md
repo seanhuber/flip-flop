@@ -1,1 +1,1 @@
-:closed_umbrella:
+:wavy_dash:
