@@ -1,1 +1,1 @@
-:ambulance:
+:closed_umbrella:
