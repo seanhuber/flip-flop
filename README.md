@@ -1,1 +1,1 @@
-:crescent_moon:
+:ballot_box_with_check:
