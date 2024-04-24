@@ -1,1 +1,1 @@
-:no_mobile_phones:
+:crescent_moon:
