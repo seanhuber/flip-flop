@@ -1,1 +1,1 @@
-:ballot_box_with_check:
+:kissing_smiling_eyes:
