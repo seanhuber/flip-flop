@@ -1,1 +1,1 @@
-:car:
+:credit_card:
