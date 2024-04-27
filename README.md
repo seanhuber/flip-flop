@@ -1,1 +1,1 @@
-:necktie:
+:bug:
