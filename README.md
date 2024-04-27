@@ -1,1 +1,1 @@
-:star:
+:small_orange_diamond:
