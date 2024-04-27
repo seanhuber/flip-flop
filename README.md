@@ -1,1 +1,1 @@
-:department_store:
+:triangular_ruler:
