@@ -1,1 +1,1 @@
-:black_joker:
+:yen:
