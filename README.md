@@ -1,1 +1,1 @@
-:hamburger:
+:black_joker:
