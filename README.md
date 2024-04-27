@@ -1,1 +1,1 @@
-:man:
+:department_store:
