@@ -1,1 +1,1 @@
-:triangular_ruler:
+:kissing_closed_eyes:
