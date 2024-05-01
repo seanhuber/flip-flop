@@ -1,1 +1,1 @@
-:love_hotel:
+:tangerine:
