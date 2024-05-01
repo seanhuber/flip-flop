@@ -1,1 +1,1 @@
-:unamused:
+:diamonds:
