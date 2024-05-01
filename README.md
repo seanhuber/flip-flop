@@ -1,1 +1,1 @@
-:fire:
+:love_hotel:
