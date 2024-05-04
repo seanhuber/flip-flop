@@ -1,1 +1,1 @@
-:crystal_ball:
+:new_moon_with_face:
