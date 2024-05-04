@@ -1,1 +1,1 @@
-:school_satchel:
+:department_store:
