@@ -1,1 +1,1 @@
-:triangular_ruler:
+:satellite:
