@@ -1,1 +1,1 @@
-:cow:
+:crystal_ball:
