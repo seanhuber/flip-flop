@@ -1,1 +1,1 @@
-:pensive:
+:cow:
