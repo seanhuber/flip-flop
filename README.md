@@ -1,1 +1,1 @@
-:movie_camera:
+:lollipop:
