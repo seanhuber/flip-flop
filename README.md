@@ -1,1 +1,1 @@
-:tangerine:
+:information_desk_person:
