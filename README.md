@@ -1,1 +1,1 @@
-:satellite:
+:crystal_ball:
