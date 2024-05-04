@@ -1,1 +1,1 @@
-:musical_note:
+:earth_americas:
