@@ -1,1 +1,1 @@
-:clock430:
+:ok_woman:
