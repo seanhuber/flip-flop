@@ -1,1 +1,1 @@
-:fallen_leaf:
+:six_pointed_star:
