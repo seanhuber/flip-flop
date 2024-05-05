@@ -1,1 +1,1 @@
-:watermelon:
+:credit_card:
