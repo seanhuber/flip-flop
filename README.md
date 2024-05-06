@@ -1,1 +1,1 @@
-:rice:
+:japanese_goblin:
