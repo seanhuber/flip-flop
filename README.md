@@ -1,1 +1,1 @@
-:no_entry_sign:
+:panda_face:
