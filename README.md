@@ -1,1 +1,1 @@
-:watermelon:
+:smiling_imp:
