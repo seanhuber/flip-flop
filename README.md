@@ -1,1 +1,1 @@
-:sunrise:
+:ok_hand:
