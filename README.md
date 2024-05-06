@@ -1,1 +1,1 @@
-:cool:
+:earth_americas:
