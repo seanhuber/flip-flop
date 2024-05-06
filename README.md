@@ -1,1 +1,1 @@
-:hamburger:
+:trident:
