@@ -1,1 +1,1 @@
-:disappointed_relieved:
+:ear_of_rice:
