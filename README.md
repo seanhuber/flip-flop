@@ -1,1 +1,1 @@
-:whale2:
+:ribbon:
