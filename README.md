@@ -1,1 +1,1 @@
-:8ball:
+:repeat:
