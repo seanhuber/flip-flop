@@ -1,1 +1,1 @@
-:sos:
+:hatched_chick:
