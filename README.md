@@ -1,1 +1,1 @@
-:bulb:
+:potable_water:
