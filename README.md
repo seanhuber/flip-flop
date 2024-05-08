@@ -1,1 +1,1 @@
-:poop:
+:last_quarter_moon:
