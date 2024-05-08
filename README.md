@@ -1,1 +1,1 @@
-:blue_car:
+:wind_chime:
