@@ -1,1 +1,1 @@
-:oncoming_bus:
+:oncoming_automobile:
