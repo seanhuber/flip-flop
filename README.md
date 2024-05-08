@@ -1,1 +1,1 @@
-:hatching_chick:
+:balloon:
