@@ -1,1 +1,1 @@
-:horse:
+:traffic_light:
