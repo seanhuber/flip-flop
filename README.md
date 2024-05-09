@@ -1,1 +1,1 @@
-:weary:
+:vibration_mode:
