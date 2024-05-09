@@ -1,1 +1,1 @@
-:anguished:
+:floppy_disk:
