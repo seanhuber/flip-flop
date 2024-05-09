@@ -1,1 +1,1 @@
-:vibration_mode:
+:black_small_square:
