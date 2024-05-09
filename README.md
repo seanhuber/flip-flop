@@ -1,1 +1,1 @@
-:dromedary_camel:
+:anguished:
