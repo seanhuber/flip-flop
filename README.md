@@ -1,1 +1,1 @@
-:floppy_disk:
+:speech_balloon:
