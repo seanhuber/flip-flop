@@ -1,1 +1,1 @@
-:bird:
+:high_brightness:
