@@ -1,1 +1,1 @@
-:black_small_square:
+:chart_with_downwards_trend:
