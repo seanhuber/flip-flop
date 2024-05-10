@@ -1,1 +1,1 @@
-:princess:
+:white_check_mark:
