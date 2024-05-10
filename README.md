@@ -1,1 +1,1 @@
-:camel:
+:construction_worker:
