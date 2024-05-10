@@ -1,1 +1,1 @@
-:japanese_goblin:
+:bride_with_veil:
