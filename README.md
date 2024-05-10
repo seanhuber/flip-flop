@@ -1,1 +1,1 @@
-:white_check_mark:
+:statue_of_liberty:
