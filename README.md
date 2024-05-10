@@ -1,1 +1,1 @@
-:speedboat:
+:japanese_goblin:
