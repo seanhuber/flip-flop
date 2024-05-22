@@ -1,1 +1,1 @@
-:sparkles:
+:black_nib:
