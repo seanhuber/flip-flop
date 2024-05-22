@@ -1,1 +1,1 @@
-:rabbit:
+:cyclone:
