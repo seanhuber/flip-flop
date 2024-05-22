@@ -1,1 +1,1 @@
-:bangbang:
+:clock12:
