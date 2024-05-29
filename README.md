@@ -1,1 +1,1 @@
-:u55b6:
+:six_pointed_star:
