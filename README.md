@@ -1,1 +1,1 @@
-:bomb:
+:watermelon:
