@@ -1,1 +1,1 @@
-:purple_heart:
+:sweat_drops:
