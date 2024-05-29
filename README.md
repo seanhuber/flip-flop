@@ -1,1 +1,1 @@
-:cinema:
+:star:
