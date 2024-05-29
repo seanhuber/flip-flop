@@ -1,1 +1,1 @@
-:accept:
+:haircut:
