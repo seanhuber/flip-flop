@@ -1,1 +1,1 @@
-:art:
+:department_store:
