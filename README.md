@@ -1,1 +1,1 @@
-:speaker:
+:money_with_wings:
