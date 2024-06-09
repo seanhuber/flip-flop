@@ -1,1 +1,1 @@
-:paperclip:
+:dress:
