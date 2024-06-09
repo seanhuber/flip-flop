@@ -1,1 +1,1 @@
-:iphone:
+:heavy_multiplication_x:
