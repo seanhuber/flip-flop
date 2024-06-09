@@ -1,1 +1,1 @@
-:sandal:
+:black_square_button:
