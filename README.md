@@ -1,1 +1,1 @@
-:aquarius:
+:hand:
