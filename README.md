@@ -1,1 +1,1 @@
-:sleepy:
+:no_entry:
