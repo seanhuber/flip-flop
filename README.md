@@ -1,1 +1,1 @@
-:moyai:
+:round_pushpin:
