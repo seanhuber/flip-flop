@@ -1,1 +1,1 @@
-:loop:
+:love_hotel:
