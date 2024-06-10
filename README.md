@@ -1,1 +1,1 @@
-:koala:
+:neutral_face:
