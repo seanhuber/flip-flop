@@ -1,1 +1,1 @@
-:sound:
+:statue_of_liberty:
