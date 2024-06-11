@@ -1,1 +1,1 @@
-:car:
+:telephone_receiver:
