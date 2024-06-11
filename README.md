@@ -1,1 +1,1 @@
-:angel:
+:high_brightness:
