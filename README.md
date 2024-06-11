@@ -1,1 +1,1 @@
-:no_mobile_phones:
+:scream_cat:
