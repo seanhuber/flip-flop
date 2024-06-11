@@ -1,1 +1,1 @@
-:telephone_receiver:
+:four_leaf_clover:
