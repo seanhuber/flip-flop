@@ -1,1 +1,1 @@
-:vs:
+:purple_heart:
