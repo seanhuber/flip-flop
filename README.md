@@ -1,1 +1,1 @@
-:neckbeard:
+:joy_cat:
