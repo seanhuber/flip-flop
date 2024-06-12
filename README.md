@@ -1,1 +1,1 @@
-:arrow_down_small:
+:kissing_closed_eyes:
