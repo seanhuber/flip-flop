@@ -1,1 +1,1 @@
-:triumph:
+:arrow_down_small:
