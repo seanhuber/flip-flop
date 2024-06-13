@@ -1,1 +1,1 @@
-:poodle:
+:simple_smile:
