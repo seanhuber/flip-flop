@@ -1,1 +1,1 @@
-:tropical_drink:
+:city_sunset:
