@@ -1,1 +1,1 @@
-:first_quarter_moon:
+:lemon:
