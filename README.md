@@ -1,1 +1,1 @@
-:thumbsup:
+:arrows_counterclockwise:
