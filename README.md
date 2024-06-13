@@ -1,1 +1,1 @@
-:simple_smile:
+:first_quarter_moon:
