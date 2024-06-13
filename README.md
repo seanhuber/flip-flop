@@ -1,1 +1,1 @@
-:golf:
+:closed_book:
