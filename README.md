@@ -1,1 +1,1 @@
-:goberserk:
+:wind_chime:
