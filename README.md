@@ -1,1 +1,1 @@
-:outbox_tray:
+:rocket:
