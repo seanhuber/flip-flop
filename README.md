@@ -1,1 +1,1 @@
-:snowflake:
+:page_with_curl:
