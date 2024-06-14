@@ -1,1 +1,1 @@
-:left_right_arrow:
+:fishing_pole_and_fish:
