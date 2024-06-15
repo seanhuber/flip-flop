@@ -1,1 +1,1 @@
-:repeat_one:
+:white_circle:
