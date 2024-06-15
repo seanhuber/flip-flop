@@ -1,1 +1,1 @@
-:spaghetti:
+:hospital:
