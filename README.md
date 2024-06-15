@@ -1,1 +1,1 @@
-:ok_hand:
+:articulated_lorry:
