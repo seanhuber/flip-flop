@@ -1,1 +1,1 @@
-:mushroom:
+:repeat_one:
