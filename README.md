@@ -1,1 +1,1 @@
-:libra:
+:ok_hand:
