@@ -1,1 +1,1 @@
-:baby_bottle:
+:notebook_with_decorative_cover:
