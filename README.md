@@ -1,1 +1,1 @@
-:vhs:
+:black_small_square:
