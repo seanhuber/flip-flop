@@ -1,1 +1,1 @@
-:poultry_leg:
+:first_quarter_moon:
