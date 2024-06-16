@@ -1,1 +1,1 @@
-:kimono:
+:open_mouth:
