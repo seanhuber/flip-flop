@@ -1,1 +1,1 @@
-:beginner:
+:earth_africa:
