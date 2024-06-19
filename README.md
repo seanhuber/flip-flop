@@ -1,1 +1,1 @@
-:hamburger:
+:wavy_dash:
