@@ -1,1 +1,1 @@
-:ring:
+:mountain_cableway:
