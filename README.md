@@ -1,1 +1,1 @@
-:baseball:
+:smirk_cat:
