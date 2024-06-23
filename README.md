@@ -1,1 +1,1 @@
-:star2:
+:no_bicycles:
