@@ -1,1 +1,1 @@
-:construction_worker:
+:red_circle:
