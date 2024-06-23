@@ -1,1 +1,1 @@
-:feet:
+:mount_fuji:
