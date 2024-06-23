@@ -1,1 +1,1 @@
-:train:
+:japanese_goblin:
