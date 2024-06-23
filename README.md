@@ -1,1 +1,1 @@
-:microphone:
+:sun_with_face:
