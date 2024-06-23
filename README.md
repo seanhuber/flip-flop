@@ -1,1 +1,1 @@
-:sun_with_face:
+:u55b6:
