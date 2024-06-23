@@ -1,1 +1,1 @@
-:japanese_goblin:
+:construction_worker:
