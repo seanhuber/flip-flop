@@ -1,1 +1,1 @@
-:rat:
+:mailbox_with_mail:
