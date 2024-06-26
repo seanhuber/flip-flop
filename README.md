@@ -1,1 +1,1 @@
-:foggy:
+:keycap_ten:
