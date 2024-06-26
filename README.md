@@ -1,1 +1,1 @@
-:squirrel:
+:thumbsup:
