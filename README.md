@@ -1,1 +1,1 @@
-:trident:
+:page_with_curl:
