@@ -1,1 +1,1 @@
-:thumbsup:
+:zap:
