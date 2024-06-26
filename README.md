@@ -1,1 +1,1 @@
-:fu:
+:hamster:
