@@ -1,1 +1,1 @@
-:microscope:
+:notebook:
