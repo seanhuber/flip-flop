@@ -1,1 +1,1 @@
-:fountain:
+:jack_o_lantern:
