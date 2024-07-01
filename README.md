@@ -1,1 +1,1 @@
-:signal_strength:
+:fr:
