@@ -1,1 +1,1 @@
-:foggy:
+:wavy_dash:
