@@ -1,1 +1,1 @@
-:speedboat:
+:lipstick:
