@@ -1,1 +1,1 @@
-:wavy_dash:
+:heavy_division_sign:
