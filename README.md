@@ -1,1 +1,1 @@
-:currency_exchange:
+:small_blue_diamond:
