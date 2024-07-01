@@ -1,1 +1,1 @@
-:tea:
+:sun_with_face:
