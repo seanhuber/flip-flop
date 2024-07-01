@@ -1,1 +1,1 @@
-:small_blue_diamond:
+:new_moon_with_face:
