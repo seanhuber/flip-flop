@@ -1,1 +1,1 @@
-:kr:
+:arrow_lower_right:
