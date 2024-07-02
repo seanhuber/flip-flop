@@ -1,1 +1,1 @@
-:spades:
+:arrow_up:
