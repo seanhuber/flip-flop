@@ -1,1 +1,1 @@
-:clock10:
+:oncoming_automobile:
