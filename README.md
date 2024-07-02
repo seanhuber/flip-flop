@@ -1,1 +1,1 @@
-:euro:
+:poultry_leg:
