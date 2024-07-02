@@ -1,1 +1,1 @@
-:clock12:
+:keycap_ten:
