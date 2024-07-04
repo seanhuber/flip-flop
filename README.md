@@ -1,1 +1,1 @@
-:sailboat:
+:left_right_arrow:
