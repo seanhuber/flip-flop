@@ -1,1 +1,1 @@
-:fu:
+:mortar_board:
