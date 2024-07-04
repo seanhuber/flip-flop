@@ -1,1 +1,1 @@
-:beer:
+:arrow_up_down:
