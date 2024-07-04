@@ -1,1 +1,1 @@
-:arrow_up_down:
+:waning_crescent_moon:
