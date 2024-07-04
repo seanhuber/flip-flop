@@ -1,1 +1,1 @@
-:womens:
+:point_left:
