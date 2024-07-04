@@ -1,1 +1,1 @@
-:mount_fuji:
+:sailboat:
