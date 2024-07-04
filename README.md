@@ -1,1 +1,1 @@
-:evergreen_tree:
+:mount_fuji:
