@@ -1,1 +1,1 @@
-:radio:
+:keycap_ten:
