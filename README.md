@@ -1,1 +1,1 @@
-:no_entry:
+:mountain_bicyclist:
