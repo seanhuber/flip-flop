@@ -1,1 +1,1 @@
-:video_game:
+:page_facing_up:
