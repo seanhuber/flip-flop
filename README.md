@@ -1,1 +1,1 @@
-:electric_plug:
+:information_source:
