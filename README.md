@@ -1,1 +1,1 @@
-:dash:
+:video_game:
