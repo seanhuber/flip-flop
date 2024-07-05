@@ -1,1 +1,1 @@
-:information_source:
+:no_entry:
