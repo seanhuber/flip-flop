@@ -1,1 +1,1 @@
-:tomato:
+:large_blue_circle:
