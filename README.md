@@ -1,1 +1,1 @@
-:ocean:
+:no_entry_sign:
