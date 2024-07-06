@@ -1,1 +1,1 @@
-:baby_symbol:
+:no_pedestrians:
