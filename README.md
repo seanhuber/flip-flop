@@ -1,1 +1,1 @@
-:traffic_light:
+:inbox_tray:
