@@ -1,1 +1,1 @@
-:sheep:
+:baby_symbol:
