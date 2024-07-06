@@ -1,1 +1,1 @@
-:no_entry_sign:
+:chicken:
