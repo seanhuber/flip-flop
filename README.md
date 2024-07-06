@@ -1,1 +1,1 @@
-:eyeglasses:
+:earth_africa:
