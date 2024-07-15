@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:kissing_heart:
