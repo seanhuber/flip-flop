@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:slot_machine:
