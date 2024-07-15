@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:alien:
