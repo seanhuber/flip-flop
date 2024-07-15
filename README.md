@@ -1,1 +1,1 @@
-:trollface:
+:mountain_bicyclist:
