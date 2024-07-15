@@ -1,1 +1,1 @@
-:simple_smile:
+:black_medium_square:
