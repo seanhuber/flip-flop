@@ -1,1 +1,1 @@
-:flashlight:
+:heavy_minus_sign:
