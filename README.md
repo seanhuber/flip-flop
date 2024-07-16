@@ -1,1 +1,1 @@
-:eight_pointed_black_star:
+:crying_cat_face:
