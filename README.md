@@ -1,1 +1,1 @@
-:briefcase:
+:smile_cat:
