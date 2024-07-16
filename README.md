@@ -1,1 +1,1 @@
-:smile_cat:
+:crying_cat_face:
