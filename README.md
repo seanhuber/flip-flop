@@ -1,1 +1,1 @@
-:flags:
+:game_die:
