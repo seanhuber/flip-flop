@@ -1,1 +1,1 @@
-:crying_cat_face:
+:light_rail:
