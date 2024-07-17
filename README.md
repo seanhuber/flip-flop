@@ -1,1 +1,1 @@
-:white_flower:
+:mountain_cableway:
