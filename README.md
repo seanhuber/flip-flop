@@ -1,1 +1,1 @@
-:mount_fuji:
+:do_not_litter:
