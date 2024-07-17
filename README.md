@@ -1,1 +1,1 @@
-:potable_water:
+:bride_with_veil:
