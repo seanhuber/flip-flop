@@ -1,1 +1,1 @@
-:rainbow:
+:point_up:
