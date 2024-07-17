@@ -1,1 +1,1 @@
-:crocodile:
+:mount_fuji:
