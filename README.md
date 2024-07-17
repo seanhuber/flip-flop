@@ -1,1 +1,1 @@
-:yen:
+:two_hearts:
