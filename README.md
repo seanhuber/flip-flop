@@ -1,1 +1,1 @@
-:frog:
+:waxing_gibbous_moon:
