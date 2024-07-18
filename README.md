@@ -1,1 +1,1 @@
-:chart:
+:small_blue_diamond:
