@@ -1,1 +1,1 @@
-:grapes:
+:point_left:
