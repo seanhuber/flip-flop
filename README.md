@@ -1,1 +1,1 @@
-:convenience_store:
+:page_facing_up:
