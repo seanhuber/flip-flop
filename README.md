@@ -1,1 +1,1 @@
-:sunrise:
+:earth_africa:
