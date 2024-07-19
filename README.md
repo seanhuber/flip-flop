@@ -1,1 +1,1 @@
-:joy:
+:wind_chime:
