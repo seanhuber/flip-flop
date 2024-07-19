@@ -1,1 +1,1 @@
-:minibus:
+:grey_question:
