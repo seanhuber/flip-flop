@@ -1,1 +1,1 @@
-:parking:
+:small_red_triangle:
