@@ -1,1 +1,1 @@
-:earth_africa:
+:see_no_evil:
