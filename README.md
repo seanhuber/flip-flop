@@ -1,1 +1,1 @@
-:articulated_lorry:
+:oncoming_bus:
