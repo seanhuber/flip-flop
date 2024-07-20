@@ -1,1 +1,1 @@
-:handbag:
+:smile_cat:
