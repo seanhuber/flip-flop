@@ -1,1 +1,1 @@
-:stew:
+:mobile_phone_off:
