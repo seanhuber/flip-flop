@@ -1,1 +1,1 @@
-:poodle:
+:joy_cat:
