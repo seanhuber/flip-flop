@@ -1,1 +1,1 @@
-:hospital:
+:articulated_lorry:
