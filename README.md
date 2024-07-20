@@ -1,1 +1,1 @@
-:raised_hand:
+:repeat_one:
