@@ -1,1 +1,1 @@
-:mouse2:
+:white_medium_small_square:
