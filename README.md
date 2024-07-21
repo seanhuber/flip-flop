@@ -1,1 +1,1 @@
-:envelope:
+:palm_tree:
