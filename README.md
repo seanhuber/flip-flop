@@ -1,1 +1,1 @@
-:cactus:
+:globe_with_meridians:
