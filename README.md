@@ -1,1 +1,1 @@
-:bar_chart:
+:horse_racing:
