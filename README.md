@@ -1,1 +1,1 @@
-:woman:
+:sweat_drops:
