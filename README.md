@@ -1,1 +1,1 @@
-:ab:
+:point_up:
