@@ -1,1 +1,1 @@
-:speaker:
+:milky_way:
