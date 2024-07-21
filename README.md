@@ -1,1 +1,1 @@
-:leo:
+:black_small_square:
