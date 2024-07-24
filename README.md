@@ -1,1 +1,1 @@
-:leaves:
+:tropical_drink:
