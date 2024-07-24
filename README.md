@@ -1,1 +1,1 @@
-:shit:
+:orange_book:
