@@ -1,1 +1,1 @@
-:cupid:
+:umbrella:
