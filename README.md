@@ -1,1 +1,1 @@
-:red_circle:
+:deciduous_tree:
