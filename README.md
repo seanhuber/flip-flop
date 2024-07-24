@@ -1,1 +1,1 @@
-:soccer:
+:red_circle:
