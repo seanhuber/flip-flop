@@ -1,1 +1,1 @@
-:leopard:
+:heavy_multiplication_x:
