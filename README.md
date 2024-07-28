@@ -1,1 +1,1 @@
-:egg:
+:arrow_right:
