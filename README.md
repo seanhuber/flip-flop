@@ -1,1 +1,1 @@
-:beers:
+:trolleybus:
