@@ -1,1 +1,1 @@
-:arrow_forward:
+:mailbox_closed:
