@@ -1,1 +1,1 @@
-:fax:
+:kissing_cat:
