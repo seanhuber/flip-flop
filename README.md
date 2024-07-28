@@ -1,1 +1,1 @@
-:barber:
+:arrow_forward:
