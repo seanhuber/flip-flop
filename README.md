@@ -1,1 +1,1 @@
-:trolleybus:
+:closed_book:
