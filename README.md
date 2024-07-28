@@ -1,1 +1,1 @@
-:lollipop:
+:keycap_ten:
