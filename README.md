@@ -1,1 +1,1 @@
-:ribbon:
+:rugby_football:
