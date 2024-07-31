@@ -1,1 +1,1 @@
-:love_letter:
+:last_quarter_moon_with_face:
