@@ -1,1 +1,1 @@
-:blue_heart:
+:globe_with_meridians:
