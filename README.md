@@ -1,1 +1,1 @@
-:dollar:
+:mountain_railway:
