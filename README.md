@@ -1,1 +1,1 @@
-:fr:
+:mountain_bicyclist:
