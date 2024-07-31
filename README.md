@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:smiley_cat:
