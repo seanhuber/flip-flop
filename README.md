@@ -1,1 +1,1 @@
-:capital_abcd:
+:kissing_cat:
