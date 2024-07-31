@@ -1,1 +1,1 @@
-:smiley_cat:
+:capital_abcd:
