@@ -1,1 +1,1 @@
-:penguin:
+:love_letter:
