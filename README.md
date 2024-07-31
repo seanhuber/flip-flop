@@ -1,1 +1,1 @@
-:minibus:
+:european_castle:
