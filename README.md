@@ -1,1 +1,1 @@
-:white_square_button:
+:incoming_envelope:
