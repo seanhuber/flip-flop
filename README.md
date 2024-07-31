@@ -1,1 +1,1 @@
-:sunflower:
+:white_square_button:
