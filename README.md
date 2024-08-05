@@ -1,1 +1,1 @@
-:helicopter:
+:black_medium_square:
