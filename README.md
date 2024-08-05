@@ -1,1 +1,1 @@
-:black_medium_square:
+:carousel_horse:
