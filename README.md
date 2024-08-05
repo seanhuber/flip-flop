@@ -1,1 +1,1 @@
-:mailbox_closed:
+:kimono:
