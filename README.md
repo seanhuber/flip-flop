@@ -1,1 +1,1 @@
-:fist:
+:rugby_football:
