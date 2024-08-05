@@ -1,1 +1,1 @@
-:hamburger:
+:mount_fuji:
