@@ -1,1 +1,1 @@
-:weary:
+:mailbox_closed:
