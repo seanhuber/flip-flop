@@ -1,1 +1,1 @@
-:bikini:
+:spaghetti:
