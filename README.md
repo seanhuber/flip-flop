@@ -1,1 +1,1 @@
-:blowfish:
+:mountain_cableway:
