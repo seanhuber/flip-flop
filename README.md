@@ -1,1 +1,1 @@
-:helicopter:
+:fist:
