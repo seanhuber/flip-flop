@@ -1,1 +1,1 @@
-:black_square_button:
+:globe_with_meridians:
