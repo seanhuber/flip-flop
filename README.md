@@ -1,1 +1,1 @@
-:shoe:
+:symbols:
