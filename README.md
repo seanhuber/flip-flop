@@ -1,1 +1,1 @@
-:post_office:
+:atm:
