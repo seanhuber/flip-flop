@@ -1,1 +1,1 @@
-:minibus:
+:trophy:
