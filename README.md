@@ -1,1 +1,1 @@
-:japan:
+:dash:
