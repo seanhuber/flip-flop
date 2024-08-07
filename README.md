@@ -1,1 +1,1 @@
-:clapper:
+:house_with_garden:
