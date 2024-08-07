@@ -1,1 +1,1 @@
-:file_folder:
+:bust_in_silhouette:
