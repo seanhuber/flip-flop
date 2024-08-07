@@ -1,1 +1,1 @@
-:satellite:
+:arrow_down:
