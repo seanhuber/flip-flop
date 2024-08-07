@@ -1,1 +1,1 @@
-:notebook:
+:palm_tree:
