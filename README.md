@@ -1,1 +1,1 @@
-:tiger:
+:white_check_mark:
