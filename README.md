@@ -1,1 +1,1 @@
-:wedding:
+:orange_book:
