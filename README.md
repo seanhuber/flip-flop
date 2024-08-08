@@ -1,1 +1,1 @@
-:lemon:
+:arrows_counterclockwise:
