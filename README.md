@@ -1,1 +1,1 @@
-:new:
+:wedding:
