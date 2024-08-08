@@ -1,1 +1,1 @@
-:wavy_dash:
+:heart_decoration:
