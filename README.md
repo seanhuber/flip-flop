@@ -1,1 +1,1 @@
-:octocat:
+:musical_note:
