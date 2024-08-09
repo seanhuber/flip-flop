@@ -1,1 +1,1 @@
-:wheelchair:
+:rice_ball:
