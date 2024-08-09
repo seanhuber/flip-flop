@@ -1,1 +1,1 @@
-:telephone_receiver:
+:meat_on_bone:
