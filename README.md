@@ -1,1 +1,1 @@
-:bear:
+:smile:
