@@ -1,1 +1,1 @@
-:clock530:
+:left_right_arrow:
