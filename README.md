@@ -1,1 +1,1 @@
-:office:
+:first_quarter_moon:
