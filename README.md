@@ -1,1 +1,1 @@
-:octocat:
+:bust_in_silhouette:
