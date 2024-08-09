@@ -1,1 +1,1 @@
-:bike:
+:waxing_gibbous_moon:
