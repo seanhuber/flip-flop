@@ -1,1 +1,1 @@
-:bouquet:
+:arrow_left:
