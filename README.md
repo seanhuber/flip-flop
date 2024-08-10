@@ -1,1 +1,1 @@
-:girl:
+:mount_fuji:
