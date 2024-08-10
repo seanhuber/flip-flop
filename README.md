@@ -1,1 +1,1 @@
-:hand:
+:beginner:
