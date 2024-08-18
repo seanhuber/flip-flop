@@ -1,1 +1,1 @@
-:speech_balloon:
+:two_women_holding_hands:
