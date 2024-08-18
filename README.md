@@ -1,1 +1,1 @@
-:scissors:
+:speech_balloon:
