@@ -1,1 +1,1 @@
-:dizzy:
+:white_circle:
