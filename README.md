@@ -1,1 +1,1 @@
-:earth_americas:
+:rugby_football:
