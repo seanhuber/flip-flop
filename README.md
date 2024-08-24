@@ -1,1 +1,1 @@
-:snake:
+:earth_americas:
