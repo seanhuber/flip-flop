@@ -1,1 +1,1 @@
-:video_game:
+:chicken:
