@@ -1,1 +1,1 @@
-:mortar_board:
+:sun_with_face:
