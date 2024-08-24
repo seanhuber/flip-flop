@@ -1,1 +1,1 @@
-:hibiscus:
+:mortar_board:
