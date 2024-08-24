@@ -1,1 +1,1 @@
-:grin:
+:wavy_dash:
