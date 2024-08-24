@@ -1,1 +1,1 @@
-:volcano:
+:video_game:
