@@ -1,1 +1,1 @@
-:kissing_heart:
+:vibration_mode:
