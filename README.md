@@ -1,1 +1,1 @@
-:partly_sunny:
+:man_with_turban:
