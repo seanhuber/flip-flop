@@ -1,1 +1,1 @@
-:man_with_turban:
+:clock12:
