@@ -1,1 +1,1 @@
-:recycle:
+:busts_in_silhouette:
