@@ -1,1 +1,1 @@
-:vibration_mode:
+:partly_sunny:
