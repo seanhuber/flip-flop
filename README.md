@@ -1,1 +1,1 @@
-:whale:
+:no_mouth:
