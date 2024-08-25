@@ -1,1 +1,1 @@
-:black_small_square:
+:whale:
