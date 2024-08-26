@@ -1,1 +1,1 @@
-:tent:
+:rice_cracker:
