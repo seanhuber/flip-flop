@@ -1,1 +1,1 @@
-:couplekiss:
+:tent:
