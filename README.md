@@ -1,1 +1,1 @@
-:inbox_tray:
+:mouse2:
