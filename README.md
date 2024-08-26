@@ -1,1 +1,1 @@
-:mouse2:
+:busts_in_silhouette:
