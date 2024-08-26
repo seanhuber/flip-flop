@@ -1,1 +1,1 @@
-:tractor:
+:video_camera:
