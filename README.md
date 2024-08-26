@@ -1,1 +1,1 @@
-:collision:
+:house_with_garden:
