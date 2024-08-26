@@ -1,1 +1,1 @@
-:rice_cracker:
+:arrow_lower_left:
