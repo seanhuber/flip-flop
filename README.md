@@ -1,1 +1,1 @@
-:bird:
+:mountain_bicyclist:
