@@ -1,1 +1,1 @@
-:microscope:
+:waxing_crescent_moon:
