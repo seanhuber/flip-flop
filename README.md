@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:leftwards_arrow_with_hook:
