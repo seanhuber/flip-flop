@@ -1,1 +1,1 @@
-:chart:
+:white_flower:
