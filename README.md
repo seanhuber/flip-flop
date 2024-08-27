@@ -1,1 +1,1 @@
-:chicken:
+:steam_locomotive:
