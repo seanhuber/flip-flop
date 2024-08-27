@@ -1,1 +1,1 @@
-:earth_asia:
+:oncoming_automobile:
