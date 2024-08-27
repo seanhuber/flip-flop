@@ -1,1 +1,1 @@
-:newspaper:
+:waning_gibbous_moon:
