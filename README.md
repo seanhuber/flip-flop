@@ -1,1 +1,1 @@
-:man_with_gua_pi_mao:
+:small_orange_diamond:
