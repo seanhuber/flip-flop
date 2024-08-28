@@ -1,1 +1,1 @@
-:factory:
+:taurus:
