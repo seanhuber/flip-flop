@@ -1,1 +1,1 @@
-:wolf:
+:womans_hat:
