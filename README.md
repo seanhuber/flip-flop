@@ -1,1 +1,1 @@
-:arrow_up_small:
+:keycap_ten:
