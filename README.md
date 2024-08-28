@@ -1,1 +1,1 @@
-:small_orange_diamond:
+:large_blue_circle:
