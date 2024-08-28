@@ -1,1 +1,1 @@
-:clap:
+:small_orange_diamond:
