@@ -1,1 +1,1 @@
-:womans_hat:
+:heavy_division_sign:
