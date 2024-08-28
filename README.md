@@ -1,1 +1,1 @@
-:heavy_multiplication_x:
+:two_men_holding_hands:
