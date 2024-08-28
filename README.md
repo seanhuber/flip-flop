@@ -1,1 +1,1 @@
-:taurus:
+:haircut:
