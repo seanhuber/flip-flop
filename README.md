@@ -1,1 +1,1 @@
-:swimmer:
+:clubs:
