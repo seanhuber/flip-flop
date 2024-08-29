@@ -1,1 +1,1 @@
-:tent:
+:thought_balloon:
