@@ -1,1 +1,1 @@
-:heart_decoration:
+:video_camera:
