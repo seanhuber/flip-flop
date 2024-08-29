@@ -1,1 +1,1 @@
-:two_hearts:
+:white_square_button:
