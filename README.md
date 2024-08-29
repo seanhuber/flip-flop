@@ -1,1 +1,1 @@
-:ophiuchus:
+:swimmer:
