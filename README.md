@@ -1,1 +1,1 @@
-:dromedary_camel:
+:articulated_lorry:
