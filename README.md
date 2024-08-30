@@ -1,1 +1,1 @@
-:haircut:
+:shaved_ice:
