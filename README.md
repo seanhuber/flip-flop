@@ -1,1 +1,1 @@
-:ribbon:
+:tropical_drink:
