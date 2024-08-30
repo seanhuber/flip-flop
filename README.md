@@ -1,1 +1,1 @@
-:dizzy_face:
+:credit_card:
