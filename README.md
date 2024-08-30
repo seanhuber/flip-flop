@@ -1,1 +1,1 @@
-:stew:
+:left_luggage:
