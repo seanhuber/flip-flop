@@ -1,1 +1,1 @@
-:blowfish:
+:arrow_double_up:
