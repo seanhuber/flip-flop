@@ -1,1 +1,1 @@
-:cloud:
+:tanabata_tree:
