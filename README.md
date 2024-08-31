@@ -1,1 +1,1 @@
-:coffee:
+:left_luggage:
