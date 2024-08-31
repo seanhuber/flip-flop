@@ -1,1 +1,1 @@
-:four:
+:izakaya_lantern:
