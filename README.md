@@ -1,1 +1,1 @@
-:diamonds:
+:heavy_dollar_sign:
