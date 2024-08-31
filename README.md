@@ -1,1 +1,1 @@
-:potable_water:
+:point_left:
