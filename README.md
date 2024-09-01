@@ -1,1 +1,1 @@
-:weary:
+:last_quarter_moon:
