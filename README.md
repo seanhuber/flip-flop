@@ -1,1 +1,1 @@
-:telescope:
+:pig_nose:
