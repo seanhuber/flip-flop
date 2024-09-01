@@ -1,1 +1,1 @@
-:fork_and_knife:
+:telescope:
