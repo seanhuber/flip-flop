@@ -1,1 +1,1 @@
-:seven:
+:arrow_up_small:
