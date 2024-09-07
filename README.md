@@ -1,1 +1,1 @@
-:rainbow:
+:dash:
