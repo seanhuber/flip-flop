@@ -1,1 +1,1 @@
-:haircut:
+:page_with_curl:
