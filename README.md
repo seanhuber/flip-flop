@@ -1,1 +1,1 @@
-:restroom:
+:four_leaf_clover:
