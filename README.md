@@ -1,1 +1,1 @@
-:hotel:
+:bridge_at_night:
