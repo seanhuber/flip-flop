@@ -1,1 +1,1 @@
-:ok_woman:
+:black_circle:
