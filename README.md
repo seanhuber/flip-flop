@@ -1,1 +1,1 @@
-:bus:
+:crescent_moon:
