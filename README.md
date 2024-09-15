@@ -1,1 +1,1 @@
-:cow:
+:construction_worker:
