@@ -1,1 +1,1 @@
-:bicyclist:
+:shaved_ice:
