@@ -1,1 +1,1 @@
-:city_sunrise:
+:ok_woman:
