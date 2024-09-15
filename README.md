@@ -1,1 +1,1 @@
-:monkey:
+:no_entry_sign:
