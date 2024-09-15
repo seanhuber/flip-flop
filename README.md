@@ -1,1 +1,1 @@
-:shaved_ice:
+:sweat_drops:
