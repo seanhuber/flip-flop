@@ -1,1 +1,1 @@
-:bowtie:
+:ice_cream:
