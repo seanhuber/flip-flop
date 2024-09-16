@@ -1,1 +1,1 @@
-:spaghetti:
+:bar_chart:
