@@ -1,1 +1,1 @@
-:bar_chart:
+:rotating_light:
