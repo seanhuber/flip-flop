@@ -1,1 +1,1 @@
-:telephone_receiver:
+:scissors:
