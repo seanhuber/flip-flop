@@ -1,1 +1,1 @@
-:parking:
+:mag_right:
