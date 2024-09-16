@@ -1,1 +1,1 @@
-:telephone_receiver:
+:stuck_out_tongue:
