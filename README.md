@@ -1,1 +1,1 @@
-:oncoming_automobile:
+:telephone_receiver:
