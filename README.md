@@ -1,1 +1,1 @@
-:skull:
+:jack_o_lantern:
