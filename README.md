@@ -1,1 +1,1 @@
-:kimono:
+:fast_forward:
