@@ -1,1 +1,1 @@
-:japan:
+:tiger2:
