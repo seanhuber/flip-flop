@@ -1,1 +1,1 @@
-:tiger2:
+:orange_book:
