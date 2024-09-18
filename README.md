@@ -1,1 +1,1 @@
-:arrow_upper_left:
+:u6709:
