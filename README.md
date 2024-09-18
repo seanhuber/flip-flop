@@ -1,1 +1,1 @@
-:rabbit:
+:arrow_upper_left:
