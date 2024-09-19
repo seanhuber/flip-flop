@@ -1,1 +1,1 @@
-:monkey:
+:speaker:
