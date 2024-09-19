@@ -1,1 +1,1 @@
-:cherries:
+:wind_chime:
