@@ -1,1 +1,1 @@
-:microphone:
+:ear_of_rice:
