@@ -1,1 +1,1 @@
-:beer:
+:love_letter:
