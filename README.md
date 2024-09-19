@@ -1,1 +1,1 @@
-:black_square_button:
+:heavy_division_sign:
