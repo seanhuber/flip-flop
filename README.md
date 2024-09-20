@@ -1,1 +1,1 @@
-:articulated_lorry:
+:no_entry_sign:
