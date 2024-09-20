@@ -1,1 +1,1 @@
-:christmas_tree:
+:articulated_lorry:
