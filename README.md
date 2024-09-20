@@ -1,1 +1,1 @@
-:rage1:
+:white_medium_small_square:
