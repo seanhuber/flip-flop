@@ -1,1 +1,1 @@
-:green_heart:
+:fish_cake:
