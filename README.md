@@ -1,1 +1,1 @@
-:red_circle:
+:blue_book:
