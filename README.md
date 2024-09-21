@@ -1,1 +1,1 @@
-:star:
+:jeans:
