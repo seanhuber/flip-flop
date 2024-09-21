@@ -1,1 +1,1 @@
-:rice:
+:red_circle:
