@@ -1,1 +1,1 @@
-:boom:
+:womans_hat:
