@@ -1,1 +1,1 @@
-:point_left:
+:credit_card:
