@@ -1,1 +1,1 @@
-:sparkles:
+:mobile_phone_off:
