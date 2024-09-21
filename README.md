@@ -1,1 +1,1 @@
-:watch:
+:point_left:
