@@ -1,1 +1,1 @@
-:suspension_railway:
+:mag_right:
