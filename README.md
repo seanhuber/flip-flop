@@ -1,1 +1,1 @@
-:point_down:
+:sweat_drops:
