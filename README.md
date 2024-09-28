@@ -1,1 +1,1 @@
-:sos:
+:eight_spoked_asterisk:
