@@ -1,1 +1,1 @@
-:trolleybus:
+:skull:
