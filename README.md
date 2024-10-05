@@ -1,1 +1,1 @@
-:notebook:
+:airplane:
