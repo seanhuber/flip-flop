@@ -1,1 +1,1 @@
-:leaves:
+:rice_scene:
