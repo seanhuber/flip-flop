@@ -1,1 +1,1 @@
-:hearts:
+:first_quarter_moon:
