@@ -1,1 +1,1 @@
-:pig:
+:kissing_cat:
