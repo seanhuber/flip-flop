@@ -1,1 +1,1 @@
-:rainbow:
+:crocodile:
