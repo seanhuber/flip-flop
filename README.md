@@ -1,1 +1,1 @@
-:japanese_castle:
+:fish_cake:
