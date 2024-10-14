@@ -1,1 +1,1 @@
-:sheep:
+:japanese_castle:
