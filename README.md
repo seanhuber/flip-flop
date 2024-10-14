@@ -1,1 +1,1 @@
-:kissing:
+:keycap_ten:
