@@ -1,1 +1,1 @@
-:keycap_ten:
+:sheep:
