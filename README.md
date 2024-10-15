@@ -1,1 +1,1 @@
-:metal:
+:waning_crescent_moon:
