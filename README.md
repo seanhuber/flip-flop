@@ -1,1 +1,1 @@
-:ocean:
+:moneybag:
