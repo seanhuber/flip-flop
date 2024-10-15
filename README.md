@@ -1,1 +1,1 @@
-:pig:
+:video_camera:
