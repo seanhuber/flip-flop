@@ -1,1 +1,1 @@
-:foggy:
+:white_flower:
