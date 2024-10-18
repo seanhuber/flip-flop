@@ -1,1 +1,1 @@
-:8ball:
+:white_medium_small_square:
