@@ -1,1 +1,1 @@
-:envelope:
+:waxing_gibbous_moon:
