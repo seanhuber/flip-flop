@@ -1,1 +1,1 @@
-:bus:
+:slot_machine:
