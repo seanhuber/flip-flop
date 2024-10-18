@@ -1,1 +1,1 @@
-:waxing_gibbous_moon:
+:busts_in_silhouette:
