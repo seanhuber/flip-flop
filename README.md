@@ -1,1 +1,1 @@
-:kissing_cat:
+:cherries:
