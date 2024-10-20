@@ -1,1 +1,1 @@
-:cherries:
+:tanabata_tree:
