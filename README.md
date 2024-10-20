@@ -1,1 +1,1 @@
-:performing_arts:
+:full_moon_with_face:
