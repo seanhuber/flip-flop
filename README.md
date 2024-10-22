@@ -1,1 +1,1 @@
-:partly_sunny:
+:potable_water:
