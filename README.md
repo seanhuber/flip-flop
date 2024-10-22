@@ -1,1 +1,1 @@
-:blowfish:
+:ru:
