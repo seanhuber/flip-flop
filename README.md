@@ -1,1 +1,1 @@
-:laughing:
+:slot_machine:
