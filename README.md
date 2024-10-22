@@ -1,1 +1,1 @@
-:crocodile:
+:currency_exchange:
