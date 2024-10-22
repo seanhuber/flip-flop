@@ -1,1 +1,1 @@
-:punch:
+:large_blue_circle:
