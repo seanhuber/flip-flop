@@ -1,1 +1,1 @@
-:kr:
+:light_rail:
