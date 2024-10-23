@@ -1,1 +1,1 @@
-:capital_abcd:
+:mouse2:
