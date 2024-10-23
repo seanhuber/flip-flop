@@ -1,1 +1,1 @@
-:ribbon:
+:ok_hand:
