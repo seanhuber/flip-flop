@@ -1,1 +1,1 @@
-:snail:
+:file_folder:
