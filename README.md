@@ -1,1 +1,1 @@
-:hotel:
+:information_source:
