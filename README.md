@@ -1,1 +1,1 @@
-:telescope:
+:see_no_evil:
