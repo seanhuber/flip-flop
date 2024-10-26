@@ -1,1 +1,1 @@
-:soccer:
+:name_badge:
