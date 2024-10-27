@@ -1,1 +1,1 @@
-:girl:
+:diamonds:
