@@ -1,1 +1,1 @@
-:partly_sunny:
+:panda_face:
