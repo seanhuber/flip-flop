@@ -1,1 +1,1 @@
-:guitar:
+:black_medium_square:
