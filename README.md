@@ -1,1 +1,1 @@
-:arrow_double_up:
+:bookmark_tabs:
