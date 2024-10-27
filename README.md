@@ -1,1 +1,1 @@
-:pig_nose:
+:partly_sunny:
