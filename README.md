@@ -1,1 +1,1 @@
-:ophiuchus:
+:arrow_upper_left:
