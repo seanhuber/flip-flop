@@ -1,1 +1,1 @@
-:diamonds:
+:pig_nose:
