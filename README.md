@@ -1,1 +1,1 @@
-:u6e80:
+:earth_asia:
