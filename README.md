@@ -1,1 +1,1 @@
-:older_man:
+:stuck_out_tongue:
