@@ -1,1 +1,1 @@
-:arrow_backward:
+:bridge_at_night:
