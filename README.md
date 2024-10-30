@@ -1,1 +1,1 @@
-:bullettrain_front:
+:blue_book:
