@@ -1,1 +1,1 @@
-:earth_asia:
+:first_quarter_moon:
