@@ -1,1 +1,1 @@
-:grey_exclamation:
+:page_facing_up:
