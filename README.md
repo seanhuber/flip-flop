@@ -1,1 +1,1 @@
-:ear:
+:vibration_mode:
