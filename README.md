@@ -1,1 +1,1 @@
-:fried_shrimp:
+:rice_scene:
