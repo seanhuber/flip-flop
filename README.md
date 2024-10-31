@@ -1,1 +1,1 @@
-:sunglasses:
+:money_with_wings:
