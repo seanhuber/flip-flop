@@ -1,1 +1,1 @@
-:trident:
+:mountain_bicyclist:
