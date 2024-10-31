@@ -1,1 +1,1 @@
-:grey_question:
+:fried_shrimp:
