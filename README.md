@@ -1,1 +1,1 @@
-:dromedary_camel:
+:fish_cake:
