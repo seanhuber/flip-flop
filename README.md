@@ -1,1 +1,1 @@
-:city_sunrise:
+:sweat_smile:
