@@ -1,1 +1,1 @@
-:disappointed_relieved:
+:signal_strength:
