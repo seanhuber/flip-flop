@@ -1,1 +1,1 @@
-:hocho:
+:mount_fuji:
