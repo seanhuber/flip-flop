@@ -1,1 +1,1 @@
-:rice_scene:
+:white_large_square:
