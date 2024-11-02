@@ -1,1 +1,1 @@
-:alien:
+:punch:
