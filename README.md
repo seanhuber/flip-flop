@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:six_pointed_star:
