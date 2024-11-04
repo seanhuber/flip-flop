@@ -1,1 +1,1 @@
-:snail:
+:waning_crescent_moon:
