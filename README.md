@@ -1,1 +1,1 @@
-:man_with_gua_pi_mao:
+:triangular_flag_on_post:
