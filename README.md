@@ -1,1 +1,1 @@
-:chart:
+:speech_balloon:
