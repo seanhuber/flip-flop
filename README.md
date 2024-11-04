@@ -1,1 +1,1 @@
-:droplet:
+:oncoming_taxi:
