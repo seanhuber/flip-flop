@@ -1,1 +1,1 @@
-:speech_balloon:
+:arrow_heading_up:
