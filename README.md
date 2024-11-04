@@ -1,1 +1,1 @@
-:small_red_triangle:
+:chart_with_upwards_trend:
