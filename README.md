@@ -1,1 +1,1 @@
-:heart_eyes_cat:
+:ok_woman:
