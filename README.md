@@ -1,1 +1,1 @@
-:toilet:
+:railway_car:
