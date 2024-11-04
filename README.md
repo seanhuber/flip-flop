@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:small_red_triangle:
