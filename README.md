@@ -1,1 +1,1 @@
-:angry:
+:arrow_forward:
