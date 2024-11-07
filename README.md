@@ -1,1 +1,1 @@
-:cow:
+:arrow_down:
