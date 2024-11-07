@@ -1,1 +1,1 @@
-:fire:
+:sweat_smile:
