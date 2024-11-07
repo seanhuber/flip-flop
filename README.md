@@ -1,1 +1,1 @@
-:pizza:
+:keycap_ten:
