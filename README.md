@@ -1,1 +1,1 @@
-:astonished:
+:statue_of_liberty:
