@@ -1,1 +1,1 @@
-:truck:
+:waxing_crescent_moon:
