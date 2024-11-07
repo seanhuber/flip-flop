@@ -1,1 +1,1 @@
-:crescent_moon:
+:new:
