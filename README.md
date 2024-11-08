@@ -1,1 +1,1 @@
-:four:
+:pager:
