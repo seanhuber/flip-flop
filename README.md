@@ -1,1 +1,1 @@
-:lips:
+:mountain_bicyclist:
