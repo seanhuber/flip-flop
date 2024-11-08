@@ -1,1 +1,1 @@
-:angel:
+:electric_plug:
