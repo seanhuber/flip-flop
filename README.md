@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:european_castle:
