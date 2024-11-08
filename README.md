@@ -1,1 +1,1 @@
-:heart_eyes:
+:small_blue_diamond:
