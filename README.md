@@ -1,1 +1,1 @@
-:surfer:
+:white_small_square:
