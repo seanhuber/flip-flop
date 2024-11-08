@@ -1,1 +1,1 @@
-:ring:
+:sweat_smile:
