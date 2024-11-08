@@ -1,1 +1,1 @@
-:pager:
+:black_circle:
