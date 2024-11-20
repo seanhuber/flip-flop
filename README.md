@@ -1,1 +1,1 @@
-:mushroom:
+:rotating_light:
