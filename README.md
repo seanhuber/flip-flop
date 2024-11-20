@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:sun_with_face:
