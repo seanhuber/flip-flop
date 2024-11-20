@@ -1,1 +1,1 @@
-:rowboat:
+:mag_right:
