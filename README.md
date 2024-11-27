@@ -1,1 +1,1 @@
-:point_left:
+:new_moon:
