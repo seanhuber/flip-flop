@@ -1,1 +1,1 @@
-:kr:
+:earth_asia:
