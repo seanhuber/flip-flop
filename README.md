@@ -1,1 +1,1 @@
-:shirt:
+:point_left:
