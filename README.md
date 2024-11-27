@@ -1,1 +1,1 @@
-:earth_asia:
+:point_right:
