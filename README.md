@@ -1,1 +1,1 @@
-:sheep:
+:mountain_cableway:
