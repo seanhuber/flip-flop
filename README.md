@@ -1,1 +1,1 @@
-:new_moon_with_face:
+:leftwards_arrow_with_hook:
