@@ -1,1 +1,1 @@
-:fireworks:
+:open_mouth:
