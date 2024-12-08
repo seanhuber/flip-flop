@@ -1,1 +1,1 @@
-:running:
+:shaved_ice:
