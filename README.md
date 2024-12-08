@@ -1,1 +1,1 @@
-:telephone:
+:tropical_drink:
