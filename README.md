@@ -1,1 +1,1 @@
-:scroll:
+:telephone:
