@@ -1,1 +1,1 @@
-:running:
+:man_with_turban:
