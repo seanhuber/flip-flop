@@ -1,1 +1,1 @@
-:mailbox_with_mail:
+:mag_right:
