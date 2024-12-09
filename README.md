@@ -1,1 +1,1 @@
-:boy:
+:smiley:
