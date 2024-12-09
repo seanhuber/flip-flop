@@ -1,1 +1,1 @@
-:smiley:
+:heavy_plus_sign:
