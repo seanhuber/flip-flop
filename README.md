@@ -1,1 +1,1 @@
-:art:
+:kissing_cat:
