@@ -1,1 +1,1 @@
-:ox:
+:no_mouth:
