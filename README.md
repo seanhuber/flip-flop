@@ -1,1 +1,1 @@
-:atm:
+:mailbox_with_mail:
