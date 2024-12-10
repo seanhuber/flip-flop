@@ -1,1 +1,1 @@
-:pig_nose:
+:video_camera:
