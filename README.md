@@ -1,1 +1,1 @@
-:tiger2:
+:tokyo_tower:
