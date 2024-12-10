@@ -1,1 +1,1 @@
-:notebook_with_decorative_cover:
+:high_heel:
