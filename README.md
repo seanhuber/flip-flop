@@ -1,1 +1,1 @@
-:postal_horn:
+:sailboat:
