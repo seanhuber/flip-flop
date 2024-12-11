@@ -1,1 +1,1 @@
-:performing_arts:
+:musical_note:
