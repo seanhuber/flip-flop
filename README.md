@@ -1,1 +1,1 @@
-:open_file_folder:
+:ear_of_rice:
