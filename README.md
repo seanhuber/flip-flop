@@ -1,1 +1,1 @@
-:japanese_ogre:
+:flower_playing_cards:
