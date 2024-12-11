@@ -1,1 +1,1 @@
-:rabbit:
+:sparkling_heart:
