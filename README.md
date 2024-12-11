@@ -1,1 +1,1 @@
-:grinning:
+:raised_hand:
