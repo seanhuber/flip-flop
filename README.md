@@ -1,1 +1,1 @@
-:ghost:
+:open_file_folder:
