@@ -1,1 +1,1 @@
-:sparkler:
+:japanese_ogre:
