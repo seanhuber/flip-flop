@@ -1,1 +1,1 @@
-:mount_fuji:
+:tired_face:
