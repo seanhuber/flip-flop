@@ -1,1 +1,1 @@
-:elephant:
+:green_book:
