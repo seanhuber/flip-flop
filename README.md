@@ -1,1 +1,1 @@
-:wave:
+:arrow_lower_right:
