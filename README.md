@@ -1,1 +1,1 @@
-:green_book:
+:heavy_minus_sign:
