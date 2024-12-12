@@ -1,1 +1,1 @@
-:fire:
+:mount_fuji:
