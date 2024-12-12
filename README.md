@@ -1,1 +1,1 @@
-:euro:
+:new_moon:
