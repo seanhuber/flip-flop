@@ -1,1 +1,1 @@
-:restroom:
+:aerial_tramway:
