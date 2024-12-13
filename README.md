@@ -1,1 +1,1 @@
-:airplane:
+:tokyo_tower:
