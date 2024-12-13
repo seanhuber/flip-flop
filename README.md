@@ -1,1 +1,1 @@
-:house_with_garden:
+:black_square_button:
