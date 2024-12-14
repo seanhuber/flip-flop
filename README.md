@@ -1,1 +1,1 @@
-:pray:
+:black_joker:
