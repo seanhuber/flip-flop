@@ -1,1 +1,1 @@
-:link:
+:straight_ruler:
