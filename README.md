@@ -1,1 +1,1 @@
-:rowboat:
+:do_not_litter:
