@@ -1,1 +1,1 @@
-:triumph:
+:outbox_tray:
