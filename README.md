@@ -1,1 +1,1 @@
-:bulb:
+:penguin:
