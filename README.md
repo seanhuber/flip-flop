@@ -1,1 +1,1 @@
-:ng:
+:keycap_ten:
