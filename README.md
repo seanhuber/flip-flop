@@ -1,1 +1,1 @@
-:penguin:
+:cow2:
