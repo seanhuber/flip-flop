@@ -1,1 +1,1 @@
-:outbox_tray:
+:last_quarter_moon:
