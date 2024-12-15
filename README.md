@@ -1,1 +1,1 @@
-:pisces:
+:thought_balloon:
