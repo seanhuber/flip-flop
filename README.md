@@ -1,1 +1,1 @@
-:snowboarder:
+:earth_asia:
