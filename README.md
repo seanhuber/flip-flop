@@ -1,1 +1,1 @@
-:tennis:
+:white_medium_square:
