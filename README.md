@@ -1,1 +1,1 @@
-:bow:
+:oncoming_bus:
