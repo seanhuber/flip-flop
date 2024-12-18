@@ -1,1 +1,1 @@
-:white_medium_square:
+:heavy_minus_sign:
