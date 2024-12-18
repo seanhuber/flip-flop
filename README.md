@@ -1,1 +1,1 @@
-:microscope:
+:simple_smile:
