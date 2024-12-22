@@ -1,1 +1,1 @@
-:pencil:
+:purple_heart:
