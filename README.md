@@ -1,1 +1,1 @@
-:fish_cake:
+:haircut:
