@@ -1,1 +1,1 @@
-:haircut:
+:kissing_cat:
