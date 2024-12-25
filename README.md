@@ -1,1 +1,1 @@
-:clap:
+:truck:
