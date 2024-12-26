@@ -1,1 +1,1 @@
-:sandal:
+:telephone_receiver:
