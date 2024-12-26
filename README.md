@@ -1,1 +1,1 @@
-:golf:
+:white_square_button:
