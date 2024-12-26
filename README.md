@@ -1,1 +1,1 @@
-:sushi:
+:snowboarder:
