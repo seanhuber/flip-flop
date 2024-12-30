@@ -1,1 +1,1 @@
-:rice_ball:
+:globe_with_meridians:
