@@ -1,1 +1,1 @@
-:honeybee:
+:white_large_square:
