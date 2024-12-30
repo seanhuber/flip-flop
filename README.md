@@ -1,1 +1,1 @@
-:horse:
+:rice_ball:
