@@ -1,1 +1,1 @@
-:trophy:
+:arrow_forward:
