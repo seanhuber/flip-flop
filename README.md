@@ -1,1 +1,1 @@
-:chestnut:
+:closed_umbrella:
