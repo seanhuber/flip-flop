@@ -1,1 +1,1 @@
-:hospital:
+:page_facing_up:
