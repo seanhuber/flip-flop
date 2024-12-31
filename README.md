@@ -1,1 +1,1 @@
-:penguin:
+:japanese_goblin:
