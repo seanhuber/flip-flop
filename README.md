@@ -1,1 +1,1 @@
-:snail:
+:electric_plug:
