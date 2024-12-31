@@ -1,1 +1,1 @@
-:monkey_face:
+:heavy_division_sign:
