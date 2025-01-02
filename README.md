@@ -1,1 +1,1 @@
-:cherries:
+:mans_shoe:
