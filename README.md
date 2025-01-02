@@ -1,1 +1,1 @@
-:no_entry:
+:running_shirt_with_sash:
