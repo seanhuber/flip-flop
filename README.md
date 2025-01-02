@@ -1,1 +1,1 @@
-:busstop:
+:no_entry:
