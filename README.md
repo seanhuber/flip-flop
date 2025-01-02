@@ -1,1 +1,1 @@
-:yen:
+:arrow_up_down:
