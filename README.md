@@ -1,1 +1,1 @@
-:dango:
+:minibus:
