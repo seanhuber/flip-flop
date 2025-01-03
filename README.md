@@ -1,1 +1,1 @@
-:ghost:
+:womans_clothes:
