@@ -1,1 +1,1 @@
-:snail:
+:arrow_right_hook:
