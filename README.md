@@ -1,1 +1,1 @@
-:ocean:
+:two_hearts:
