@@ -1,1 +1,1 @@
-:oncoming_bus:
+:small_blue_diamond:
