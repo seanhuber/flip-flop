@@ -1,1 +1,1 @@
-:page_with_curl:
+:leftwards_arrow_with_hook:
