@@ -1,1 +1,1 @@
-:waning_gibbous_moon:
+:page_with_curl:
