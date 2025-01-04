@@ -1,1 +1,1 @@
-:railway_car:
+:first_quarter_moon:
