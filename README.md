@@ -1,1 +1,1 @@
-:gift:
+:point_right:
