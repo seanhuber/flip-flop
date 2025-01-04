@@ -1,1 +1,1 @@
-:interrobang:
+:speedboat:
