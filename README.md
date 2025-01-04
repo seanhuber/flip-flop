@@ -1,1 +1,1 @@
-:speedboat:
+:railway_car:
