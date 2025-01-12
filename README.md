@@ -1,1 +1,1 @@
-:arrow_lower_right:
+:crossed_flags:
