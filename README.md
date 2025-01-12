@@ -1,1 +1,1 @@
-:dancers:
+:arrows_counterclockwise:
