@@ -1,1 +1,1 @@
-:arrow_heading_up:
+:floppy_disk:
