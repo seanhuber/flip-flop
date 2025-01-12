@@ -1,1 +1,1 @@
-:rocket:
+:arrow_heading_up:
