@@ -1,1 +1,1 @@
-:boat:
+:arrow_lower_right:
