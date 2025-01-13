@@ -1,1 +1,1 @@
-:envelope:
+:hotel:
