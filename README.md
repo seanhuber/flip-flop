@@ -1,1 +1,1 @@
-:elephant:
+:musical_score:
