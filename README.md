@@ -1,1 +1,1 @@
-:mask:
+:space_invader:
