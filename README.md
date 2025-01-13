@@ -1,1 +1,1 @@
-:u5272:
+:money_with_wings:
