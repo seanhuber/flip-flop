@@ -1,1 +1,1 @@
-:grimacing:
+:milky_way:
