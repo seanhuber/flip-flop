@@ -1,1 +1,1 @@
-:musical_score:
+:keycap_ten:
