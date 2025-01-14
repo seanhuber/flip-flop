@@ -1,1 +1,1 @@
-:three:
+:ear_of_rice:
