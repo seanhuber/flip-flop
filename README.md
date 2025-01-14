@@ -1,1 +1,1 @@
-:sparkles:
+:articulated_lorry:
