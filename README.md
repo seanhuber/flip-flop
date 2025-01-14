@@ -1,1 +1,1 @@
-:mouse2:
+:fast_forward:
