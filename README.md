@@ -1,1 +1,1 @@
-:articulated_lorry:
+:sparkling_heart:
