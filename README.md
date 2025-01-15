@@ -1,1 +1,1 @@
-:sun_with_face:
+:bridge_at_night:
