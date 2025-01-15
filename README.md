@@ -1,1 +1,1 @@
-:yen:
+:tropical_drink:
