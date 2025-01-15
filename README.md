@@ -1,1 +1,1 @@
-:telescope:
+:capricorn:
