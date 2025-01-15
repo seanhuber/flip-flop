@@ -1,1 +1,1 @@
-:seat:
+:sun_with_face:
