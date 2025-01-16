@@ -1,1 +1,1 @@
-:mahjong:
+:musical_note:
