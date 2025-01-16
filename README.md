@@ -1,1 +1,1 @@
-:balloon:
+:simple_smile:
