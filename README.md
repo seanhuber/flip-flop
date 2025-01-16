@@ -1,1 +1,1 @@
-:monkey:
+:arrow_right_hook:
