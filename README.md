@@ -1,1 +1,1 @@
-:camera:
+:toilet:
