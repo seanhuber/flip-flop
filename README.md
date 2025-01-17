@@ -1,1 +1,1 @@
-:lipstick:
+:crossed_flags:
