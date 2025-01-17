@@ -1,1 +1,1 @@
-:notebook_with_decorative_cover:
+:european_castle:
