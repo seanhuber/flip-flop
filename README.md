@@ -1,1 +1,1 @@
-:clock1030:
+:aerial_tramway:
