@@ -1,1 +1,1 @@
-:round_pushpin:
+:open_hands:
