@@ -1,1 +1,1 @@
-:aerial_tramway:
+:bride_with_veil:
