@@ -1,1 +1,1 @@
-:leo:
+:trophy:
