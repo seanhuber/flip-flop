@@ -1,1 +1,1 @@
-:beetle:
+:hamster:
