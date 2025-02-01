@@ -1,1 +1,1 @@
-:up:
+:full_moon:
