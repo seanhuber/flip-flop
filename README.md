@@ -1,1 +1,1 @@
-:star:
+:bust_in_silhouette:
