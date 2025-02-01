@@ -1,1 +1,1 @@
-:kimono:
+:signal_strength:
