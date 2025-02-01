@@ -1,1 +1,1 @@
-:hurtrealbad:
+:waxing_gibbous_moon:
