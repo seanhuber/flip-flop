@@ -1,1 +1,1 @@
-:customs:
+:small_blue_diamond:
