@@ -1,1 +1,1 @@
-:pushpin:
+:earth_asia:
