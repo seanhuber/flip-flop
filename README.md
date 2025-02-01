@@ -1,1 +1,1 @@
-:articulated_lorry:
+:bust_in_silhouette:
