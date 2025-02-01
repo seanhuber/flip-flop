@@ -1,1 +1,1 @@
-:mask:
+:articulated_lorry:
