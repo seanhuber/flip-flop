@@ -1,1 +1,1 @@
-:shoe:
+:speech_balloon:
