@@ -1,1 +1,1 @@
-:game_die:
+:european_castle:
