@@ -1,1 +1,1 @@
-:clubs:
+:department_store:
