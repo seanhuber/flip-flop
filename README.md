@@ -1,1 +1,1 @@
-:us:
+:game_die:
