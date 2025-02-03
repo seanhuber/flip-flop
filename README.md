@@ -1,1 +1,1 @@
-:iphone:
+:phone:
