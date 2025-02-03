@@ -1,1 +1,1 @@
-:smile_cat:
+:oncoming_bus:
