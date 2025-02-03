@@ -1,1 +1,1 @@
-:trident:
+:heavy_dollar_sign:
