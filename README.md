@@ -1,1 +1,1 @@
-:pisces:
+:black_medium_square:
