@@ -1,1 +1,1 @@
-:hand:
+:smile_cat:
