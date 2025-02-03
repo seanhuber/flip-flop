@@ -1,1 +1,1 @@
-:mahjong:
+:person_with_blond_hair:
