@@ -1,1 +1,1 @@
-:person_with_blond_hair:
+:cold_sweat:
