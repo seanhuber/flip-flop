@@ -1,1 +1,1 @@
-:squirrel:
+:keycap_ten:
