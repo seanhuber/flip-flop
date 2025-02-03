@@ -1,1 +1,1 @@
-:shoe:
+:school_satchel:
