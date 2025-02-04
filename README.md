@@ -1,1 +1,1 @@
-:phone:
+:rice_scene:
