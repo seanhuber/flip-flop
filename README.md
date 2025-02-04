@@ -1,1 +1,1 @@
-:whale:
+:page_with_curl:
