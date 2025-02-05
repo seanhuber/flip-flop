@@ -1,1 +1,1 @@
-:scissors:
+:ok_woman:
