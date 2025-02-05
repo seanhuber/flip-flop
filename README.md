@@ -1,1 +1,1 @@
-:helicopter:
+:no_pedestrians:
