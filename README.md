@@ -1,1 +1,1 @@
-:ok_woman:
+:maple_leaf:
