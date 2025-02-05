@@ -1,1 +1,1 @@
-:grey_question:
+:four_leaf_clover:
