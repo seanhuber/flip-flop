@@ -1,1 +1,1 @@
-:roller_coaster:
+:crying_cat_face:
