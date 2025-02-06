@@ -1,1 +1,1 @@
-:sleepy:
+:heavy_division_sign:
