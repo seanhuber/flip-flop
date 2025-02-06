@@ -1,1 +1,1 @@
-:kissing_heart:
+:black_medium_small_square:
