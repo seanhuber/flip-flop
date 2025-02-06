@@ -1,1 +1,1 @@
-:white_check_mark:
+:sweet_potato:
