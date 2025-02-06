@@ -1,1 +1,1 @@
-:hamster:
+:credit_card:
