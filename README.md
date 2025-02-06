@@ -1,1 +1,1 @@
-:whale2:
+:heavy_dollar_sign:
