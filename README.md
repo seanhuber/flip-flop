@@ -1,1 +1,1 @@
-:aries:
+:white_check_mark:
