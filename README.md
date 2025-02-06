@@ -1,1 +1,1 @@
-:octocat:
+:ear_of_rice:
