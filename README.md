@@ -1,1 +1,1 @@
-:grey_exclamation:
+:red_circle:
