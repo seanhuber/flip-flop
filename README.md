@@ -1,1 +1,1 @@
-:older_man:
+:white_medium_small_square:
