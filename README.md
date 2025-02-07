@@ -1,1 +1,1 @@
-:speaker:
+:hatched_chick:
