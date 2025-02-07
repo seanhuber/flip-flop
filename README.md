@@ -1,1 +1,1 @@
-:dizzy:
+:mountain_cableway:
