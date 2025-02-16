@@ -1,1 +1,1 @@
-:panda_face:
+:crescent_moon:
