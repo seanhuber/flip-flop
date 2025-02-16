@@ -1,1 +1,1 @@
-:neckbeard:
+:construction_worker:
