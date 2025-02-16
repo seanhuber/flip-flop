@@ -1,1 +1,1 @@
-:black_square_button:
+:speak_no_evil:
