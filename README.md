@@ -1,1 +1,1 @@
-:smoking:
+:arrow_up_small:
