@@ -1,1 +1,1 @@
-:arrow_up_small:
+:black_square_button:
