@@ -1,1 +1,1 @@
-:ship:
+:panda_face:
