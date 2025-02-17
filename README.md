@@ -1,1 +1,1 @@
-:bus:
+:curly_loop:
