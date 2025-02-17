@@ -1,1 +1,1 @@
-:balloon:
+:bride_with_veil:
