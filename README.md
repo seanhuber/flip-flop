@@ -1,1 +1,1 @@
-:wc:
+:busts_in_silhouette:
