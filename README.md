@@ -1,1 +1,1 @@
-:thumbsup:
+:ice_cream:
