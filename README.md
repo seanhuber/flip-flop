@@ -1,1 +1,1 @@
-:alien:
+:vibration_mode:
