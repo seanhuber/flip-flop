@@ -1,1 +1,1 @@
-:nose:
+:scorpius:
