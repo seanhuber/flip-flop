@@ -1,1 +1,1 @@
-:ok_hand:
+:crying_cat_face:
