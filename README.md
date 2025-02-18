@@ -1,1 +1,1 @@
-:football:
+:white_circle:
