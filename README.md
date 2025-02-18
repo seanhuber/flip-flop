@@ -1,1 +1,1 @@
-:scissors:
+:uk:
