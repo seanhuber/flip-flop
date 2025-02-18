@@ -1,1 +1,1 @@
-:speaker:
+:left_luggage:
