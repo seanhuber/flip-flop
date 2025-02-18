@@ -1,1 +1,1 @@
-:sweat_drops:
+:scissors:
