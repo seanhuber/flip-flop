@@ -1,1 +1,1 @@
-:mega:
+:mobile_phone_off:
