@@ -1,1 +1,1 @@
-:u6e80:
+:slot_machine:
