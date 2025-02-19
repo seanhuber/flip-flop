@@ -1,1 +1,1 @@
-:two_women_holding_hands:
+:open_file_folder:
