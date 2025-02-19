@@ -1,1 +1,1 @@
-:sunflower:
+:white_circle:
