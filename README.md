@@ -1,1 +1,1 @@
-:white_circle:
+:open_mouth:
