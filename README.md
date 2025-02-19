@@ -1,1 +1,1 @@
-:baggage_claim:
+:large_orange_diamond:
