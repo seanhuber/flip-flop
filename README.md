@@ -1,1 +1,1 @@
-:leo:
+:red_circle:
