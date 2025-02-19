@@ -1,1 +1,1 @@
-:coffee:
+:arrow_right_hook:
