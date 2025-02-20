@@ -1,1 +1,1 @@
-:capital_abcd:
+:left_luggage:
