@@ -1,1 +1,1 @@
-:black_square_button:
+:japanese_goblin:
