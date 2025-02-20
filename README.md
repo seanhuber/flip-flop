@@ -1,1 +1,1 @@
-:video_game:
+:white_small_square:
