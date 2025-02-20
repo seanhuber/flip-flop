@@ -1,1 +1,1 @@
-:izakaya_lantern:
+:crescent_moon:
