@@ -1,1 +1,1 @@
-:musical_keyboard:
+:capital_abcd:
