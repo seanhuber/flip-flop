@@ -1,1 +1,1 @@
-:construction_worker:
+:rice_cracker:
