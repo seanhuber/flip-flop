@@ -1,1 +1,1 @@
-:man_with_turban:
+:chart_with_downwards_trend:
