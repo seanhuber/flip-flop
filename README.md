@@ -1,1 +1,1 @@
-:cyclone:
+:wheelchair:
