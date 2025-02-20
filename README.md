@@ -1,1 +1,1 @@
-:leaves:
+:man_with_turban:
