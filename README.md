@@ -1,1 +1,1 @@
-:ice_cream:
+:mortar_board:
