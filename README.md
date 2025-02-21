@@ -1,1 +1,1 @@
-:package:
+:vertical_traffic_light:
