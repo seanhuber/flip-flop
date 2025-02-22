@@ -1,1 +1,1 @@
-:cocktail:
+:movie_camera:
