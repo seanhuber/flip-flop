@@ -1,1 +1,1 @@
-:cat:
+:smiley_cat:
