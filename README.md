@@ -1,1 +1,1 @@
-:ballot_box_with_check:
+:arrow_upper_left:
