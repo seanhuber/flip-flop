@@ -1,1 +1,1 @@
-:hourglass:
+:crescent_moon:
