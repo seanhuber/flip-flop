@@ -1,1 +1,1 @@
-:boat:
+:do_not_litter:
