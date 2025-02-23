@@ -1,1 +1,1 @@
-:squirrel:
+:arrow_right:
