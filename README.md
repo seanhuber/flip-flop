@@ -1,1 +1,1 @@
-:partly_sunny:
+:stuck_out_tongue:
