@@ -1,1 +1,1 @@
-:do_not_litter:
+:last_quarter_moon_with_face:
