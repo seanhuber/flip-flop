@@ -1,1 +1,1 @@
-:penguin:
+:vibration_mode:
