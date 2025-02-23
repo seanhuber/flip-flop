@@ -1,1 +1,1 @@
-:sunrise:
+:partly_sunny:
