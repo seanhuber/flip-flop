@@ -1,1 +1,1 @@
-:arrow_right:
+:horse_racing:
