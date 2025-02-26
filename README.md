@@ -1,1 +1,1 @@
-:recycle:
+:pencil2:
