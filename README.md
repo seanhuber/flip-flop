@@ -1,1 +1,1 @@
-:trophy:
+:point_right:
