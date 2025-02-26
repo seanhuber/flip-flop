@@ -1,1 +1,1 @@
-:yum:
+:partly_sunny:
