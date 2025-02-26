@@ -1,1 +1,1 @@
-:stuck_out_tongue:
+:railway_car:
