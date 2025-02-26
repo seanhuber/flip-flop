@@ -1,1 +1,1 @@
-:haircut:
+:no_mouth:
