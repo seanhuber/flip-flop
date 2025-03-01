@@ -1,1 +1,1 @@
-:horse_racing:
+:outbox_tray:
