@@ -1,1 +1,1 @@
-:barber:
+:strawberry:
