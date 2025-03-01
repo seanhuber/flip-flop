@@ -1,1 +1,1 @@
-:clock1:
+:milky_way:
