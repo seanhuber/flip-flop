@@ -1,1 +1,1 @@
-:tropical_fish:
+:bar_chart:
