@@ -1,1 +1,1 @@
-:round_pushpin:
+:mountain_cableway:
