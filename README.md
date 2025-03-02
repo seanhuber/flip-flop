@@ -1,1 +1,1 @@
-:sweat:
+:construction_worker:
