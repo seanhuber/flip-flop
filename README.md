@@ -1,1 +1,1 @@
-:bar_chart:
+:blue_book:
