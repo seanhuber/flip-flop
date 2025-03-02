@@ -1,1 +1,1 @@
-:cancer:
+:bar_chart:
