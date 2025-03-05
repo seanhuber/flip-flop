@@ -1,1 +1,1 @@
-:volcano:
+:neutral_face:
