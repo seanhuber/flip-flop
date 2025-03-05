@@ -1,1 +1,1 @@
-:flushed:
+:star:
