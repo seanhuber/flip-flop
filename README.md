@@ -1,1 +1,1 @@
-:heartpulse:
+:orange_book:
