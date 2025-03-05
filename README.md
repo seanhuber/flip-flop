@@ -1,1 +1,1 @@
-:star:
+:bicyclist:
