@@ -1,1 +1,1 @@
-:wave:
+:strawberry:
