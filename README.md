@@ -1,1 +1,1 @@
-:meat_on_bone:
+:large_blue_circle:
