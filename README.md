@@ -1,1 +1,1 @@
-:space_invader:
+:thought_balloon:
