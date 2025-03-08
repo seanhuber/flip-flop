@@ -1,1 +1,1 @@
-:baby:
+:triumph:
