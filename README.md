@@ -1,1 +1,1 @@
-:muscle:
+:wind_chime:
