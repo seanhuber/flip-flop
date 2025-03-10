@@ -1,1 +1,1 @@
-:muscle:
+:black_medium_square:
