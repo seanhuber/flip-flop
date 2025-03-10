@@ -1,1 +1,1 @@
-:euro:
+:white_check_mark:
