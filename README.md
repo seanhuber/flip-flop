@@ -1,1 +1,1 @@
-:cinema:
+:no_bicycles:
