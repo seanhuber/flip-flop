@@ -1,1 +1,1 @@
-:white_check_mark:
+:black_large_square:
