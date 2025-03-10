@@ -1,1 +1,1 @@
-:musical_keyboard:
+:white_small_square:
