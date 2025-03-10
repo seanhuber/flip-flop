@@ -1,1 +1,1 @@
-:black_medium_square:
+:notebook_with_decorative_cover:
