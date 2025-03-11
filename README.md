@@ -1,1 +1,1 @@
-:tokyo_tower:
+:izakaya_lantern:
