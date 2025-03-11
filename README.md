@@ -1,1 +1,1 @@
-:facepunch:
+:mailbox_with_no_mail:
