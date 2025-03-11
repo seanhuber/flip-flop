@@ -1,1 +1,1 @@
-:anger:
+:six_pointed_star:
