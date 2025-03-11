@@ -1,1 +1,1 @@
-:battery:
+:point_down:
