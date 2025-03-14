@@ -1,1 +1,1 @@
-:leopard:
+:bride_with_veil:
