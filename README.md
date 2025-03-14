@@ -1,1 +1,1 @@
-:tshirt:
+:corn:
