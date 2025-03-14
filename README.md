@@ -1,1 +1,1 @@
-:hotel:
+:high_brightness:
