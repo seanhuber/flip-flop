@@ -1,1 +1,1 @@
-:pager:
+:black_nib:
