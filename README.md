@@ -1,1 +1,1 @@
-:mount_fuji:
+:negative_squared_cross_mark:
