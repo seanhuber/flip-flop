@@ -1,1 +1,1 @@
-:clap:
+:smiley_cat:
