@@ -1,1 +1,1 @@
-:satellite:
+:wheelchair:
