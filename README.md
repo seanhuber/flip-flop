@@ -1,1 +1,1 @@
-:wheelchair:
+:light_rail:
