@@ -1,1 +1,1 @@
-:exclamation:
+:tokyo_tower:
