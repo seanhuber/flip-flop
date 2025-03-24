@@ -1,1 +1,1 @@
-:angry:
+:vertical_traffic_light:
