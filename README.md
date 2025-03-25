@@ -1,1 +1,1 @@
-:bow:
+:izakaya_lantern:
