@@ -1,1 +1,1 @@
-:articulated_lorry:
+:arrow_heading_up:
