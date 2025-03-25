@@ -1,1 +1,1 @@
-:arrow_heading_up:
+:joy_cat:
