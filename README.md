@@ -1,1 +1,1 @@
-:surfer:
+:red_circle:
