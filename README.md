@@ -1,1 +1,1 @@
-:telephone:
+:beetle:
