@@ -1,1 +1,1 @@
-:bangbang:
+:ru:
