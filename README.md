@@ -1,1 +1,1 @@
-:golf:
+:waning_crescent_moon:
