@@ -1,1 +1,1 @@
-:rocket:
+:high_brightness:
