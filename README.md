@@ -1,1 +1,1 @@
-:busstop:
+:palm_tree:
