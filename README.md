@@ -1,1 +1,1 @@
-:high_brightness:
+:deciduous_tree:
