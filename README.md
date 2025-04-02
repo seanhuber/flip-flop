@@ -1,1 +1,1 @@
-:racehorse:
+:cat:
