@@ -1,1 +1,1 @@
-:sob:
+:triangular_ruler:
