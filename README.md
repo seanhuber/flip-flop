@@ -1,1 +1,1 @@
-:ferris_wheel:
+:outbox_tray:
