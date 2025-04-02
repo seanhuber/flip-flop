@@ -1,1 +1,1 @@
-:seat:
+:bride_with_veil:
