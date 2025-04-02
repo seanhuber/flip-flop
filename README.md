@@ -1,1 +1,1 @@
-:crocodile:
+:orange_book:
