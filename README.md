@@ -1,1 +1,1 @@
-:ghost:
+:mailbox_closed:
