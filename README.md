@@ -1,1 +1,1 @@
-:notebook:
+:arrow_right:
