@@ -1,1 +1,1 @@
-:heart_eyes:
+:ear_of_rice:
