@@ -1,1 +1,1 @@
-:japan:
+:video_game:
