@@ -1,1 +1,1 @@
-:pager:
+:open_file_folder:
