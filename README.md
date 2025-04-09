@@ -1,1 +1,1 @@
-:electric_plug:
+:point_right:
