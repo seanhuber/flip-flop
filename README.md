@@ -1,1 +1,1 @@
-:kimono:
+:electric_plug:
