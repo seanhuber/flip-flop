@@ -1,1 +1,1 @@
-:sailboat:
+:eight_spoked_asterisk:
