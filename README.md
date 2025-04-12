@@ -1,1 +1,1 @@
-:moneybag:
+:black_square_button:
