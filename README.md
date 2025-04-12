@@ -1,1 +1,1 @@
-:white_flower:
+:triangular_ruler:
