@@ -1,1 +1,1 @@
-:speedboat:
+:bride_with_veil:
