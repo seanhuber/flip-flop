@@ -1,1 +1,1 @@
-:zero:
+:moneybag:
