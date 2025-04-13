@@ -1,1 +1,1 @@
-:waxing_crescent_moon:
+:heavy_check_mark:
