@@ -1,1 +1,1 @@
-:wolf:
+:waxing_crescent_moon:
