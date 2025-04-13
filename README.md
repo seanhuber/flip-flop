@@ -1,1 +1,1 @@
-:foggy:
+:monkey_face:
