@@ -1,1 +1,1 @@
-:beetle:
+:confetti_ball:
