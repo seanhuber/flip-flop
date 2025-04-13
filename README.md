@@ -1,1 +1,1 @@
-:rainbow:
+:slot_machine:
