@@ -1,1 +1,1 @@
-:confetti_ball:
+:speech_balloon:
