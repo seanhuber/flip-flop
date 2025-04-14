@@ -1,1 +1,1 @@
-:dragon_face:
+:hourglass_flowing_sand:
