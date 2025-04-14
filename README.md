@@ -1,1 +1,1 @@
-:heart_eyes_cat:
+:hatched_chick:
