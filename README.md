@@ -1,1 +1,1 @@
-:clock2:
+:sun_with_face:
