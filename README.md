@@ -1,1 +1,1 @@
-:red_car:
+:bullettrain_front:
