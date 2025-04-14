@@ -1,1 +1,1 @@
-:sos:
+:flower_playing_cards:
