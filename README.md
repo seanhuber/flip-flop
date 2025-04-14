@@ -1,1 +1,1 @@
-:smiley_cat:
+:dragon_face:
