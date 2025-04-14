@@ -1,1 +1,1 @@
-:closed_lock_with_key:
+:sunrise_over_mountains:
