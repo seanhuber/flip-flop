@@ -1,1 +1,1 @@
-:angel:
+:articulated_lorry:
