@@ -1,1 +1,1 @@
-:nut_and_bolt:
+:wavy_dash:
