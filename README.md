@@ -1,1 +1,1 @@
-:red_car:
+:nut_and_bolt:
