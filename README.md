@@ -1,1 +1,1 @@
-:wave:
+:smirk_cat:
