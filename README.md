@@ -1,1 +1,1 @@
-:steam_locomotive:
+:curly_loop:
