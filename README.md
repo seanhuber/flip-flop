@@ -1,1 +1,1 @@
-:honeybee:
+:no_smoking:
