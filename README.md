@@ -1,1 +1,1 @@
-:vs:
+:articulated_lorry:
