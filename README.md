@@ -1,1 +1,1 @@
-:moyai:
+:money_with_wings:
