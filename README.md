@@ -1,1 +1,1 @@
-:satisfied:
+:no_smoking:
