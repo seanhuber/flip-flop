@@ -1,1 +1,1 @@
-:camel:
+:moyai:
