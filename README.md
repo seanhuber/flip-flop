@@ -1,1 +1,1 @@
-:money_with_wings:
+:red_car:
