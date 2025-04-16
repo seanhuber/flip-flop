@@ -1,1 +1,1 @@
-:red_car:
+:water_buffalo:
