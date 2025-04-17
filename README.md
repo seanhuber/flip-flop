@@ -1,1 +1,1 @@
-:horse:
+:suspension_railway:
