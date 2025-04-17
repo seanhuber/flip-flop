@@ -1,1 +1,1 @@
-:inbox_tray:
+:stuck_out_tongue:
