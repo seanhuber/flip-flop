@@ -1,1 +1,1 @@
-:tropical_fish:
+:white_medium_square:
