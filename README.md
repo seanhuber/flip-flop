@@ -1,1 +1,1 @@
-:ambulance:
+:sun_with_face:
