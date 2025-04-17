@@ -1,1 +1,1 @@
-:es:
+:inbox_tray:
