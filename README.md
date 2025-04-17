@@ -1,1 +1,1 @@
-:suspension_railway:
+:black_large_square:
