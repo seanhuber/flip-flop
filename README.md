@@ -1,1 +1,1 @@
-:ox:
+:sunrise_over_mountains:
