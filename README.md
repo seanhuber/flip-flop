@@ -1,1 +1,1 @@
-:fu:
+:white_check_mark:
