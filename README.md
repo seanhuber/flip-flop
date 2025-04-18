@@ -1,1 +1,1 @@
-:stuck_out_tongue_winking_eye:
+:chart_with_upwards_trend:
