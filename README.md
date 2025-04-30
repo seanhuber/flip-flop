@@ -1,1 +1,1 @@
-:speaker:
+:panda_face:
