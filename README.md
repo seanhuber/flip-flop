@@ -1,1 +1,1 @@
-:busstop:
+:postal_horn:
