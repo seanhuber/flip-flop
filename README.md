@@ -1,1 +1,1 @@
-:godmode:
+:heavy_minus_sign:
