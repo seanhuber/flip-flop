@@ -1,1 +1,1 @@
-:elephant:
+:running:
