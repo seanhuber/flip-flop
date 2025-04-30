@@ -1,1 +1,1 @@
-:telephone_receiver:
+:small_blue_diamond:
