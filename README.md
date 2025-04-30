@@ -1,1 +1,1 @@
-:heavy_minus_sign:
+:crystal_ball:
