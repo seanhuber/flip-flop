@@ -1,1 +1,1 @@
-:paperclip:
+:sweat_smile:
