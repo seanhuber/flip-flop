@@ -1,1 +1,1 @@
-:honeybee:
+:monkey_face:
