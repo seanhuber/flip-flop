@@ -1,1 +1,1 @@
-:gift_heart:
+:globe_with_meridians:
