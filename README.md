@@ -1,1 +1,1 @@
-:raised_hands:
+:mobile_phone_off:
