@@ -1,1 +1,1 @@
-:wc:
+:carousel_horse:
