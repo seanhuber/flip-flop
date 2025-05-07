@@ -1,1 +1,1 @@
-:cyclone:
+:tired_face:
