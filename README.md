@@ -1,1 +1,1 @@
-:no_mouth:
+:raised_hands:
