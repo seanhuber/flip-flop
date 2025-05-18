@@ -1,1 +1,1 @@
-:railway_car:
+:ok_woman:
