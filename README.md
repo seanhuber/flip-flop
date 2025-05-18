@@ -1,1 +1,1 @@
-:four_leaf_clover:
+:bust_in_silhouette:
