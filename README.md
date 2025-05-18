@@ -1,1 +1,1 @@
-:put_litter_in_its_place:
+:diamond_shape_with_a_dot_inside:
