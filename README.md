@@ -1,1 +1,1 @@
-:trollface:
+:squirrel:
