@@ -1,1 +1,1 @@
-:cl:
+:inbox_tray:
