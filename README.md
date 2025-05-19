@@ -1,1 +1,1 @@
-:fireworks:
+:earth_africa:
