@@ -1,1 +1,1 @@
-:ring:
+:video_camera:
