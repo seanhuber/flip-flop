@@ -1,1 +1,1 @@
-:hatched_chick:
+:money_with_wings:
