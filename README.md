@@ -1,1 +1,1 @@
-:man:
+:japanese_goblin:
