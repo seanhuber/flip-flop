@@ -1,1 +1,1 @@
-:video_camera:
+:bar_chart:
