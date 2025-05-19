@@ -1,1 +1,1 @@
-:japanese_goblin:
+:monkey_face:
