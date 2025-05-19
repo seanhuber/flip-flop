@@ -1,1 +1,1 @@
-:monkey_face:
+:waning_crescent_moon:
