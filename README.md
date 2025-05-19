@@ -1,1 +1,1 @@
-:diamonds:
+:slot_machine:
