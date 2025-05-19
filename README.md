@@ -1,1 +1,1 @@
-:money_with_wings:
+:hear_no_evil:
