@@ -1,1 +1,1 @@
-:cn:
+:mortar_board:
