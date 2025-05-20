@@ -1,1 +1,1 @@
-:thumbsup:
+:checkered_flag:
