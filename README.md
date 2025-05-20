@@ -1,1 +1,1 @@
-:beginner:
+:school:
