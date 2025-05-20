@@ -1,1 +1,1 @@
-:hammer:
+:red_circle:
