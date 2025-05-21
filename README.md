@@ -1,1 +1,1 @@
-:fuelpump:
+:white_square_button:
