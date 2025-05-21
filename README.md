@@ -1,1 +1,1 @@
-:green_apple:
+:hatching_chick:
