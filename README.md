@@ -1,1 +1,1 @@
-:tshirt:
+:electric_plug:
