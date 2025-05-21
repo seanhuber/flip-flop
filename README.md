@@ -1,1 +1,1 @@
-:point_up_2:
+:speak_no_evil:
