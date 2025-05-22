@@ -1,1 +1,1 @@
-:bicyclist:
+:jack_o_lantern:
