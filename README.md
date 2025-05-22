@@ -1,1 +1,1 @@
-:briefcase:
+:globe_with_meridians:
