@@ -1,1 +1,1 @@
-:no_pedestrians:
+:small_orange_diamond:
