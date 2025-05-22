@@ -1,1 +1,1 @@
-:japanese_ogre:
+:no_pedestrians:
