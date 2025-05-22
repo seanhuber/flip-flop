@@ -1,1 +1,1 @@
-:see_no_evil:
+:sun_with_face:
