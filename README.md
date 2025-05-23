@@ -1,1 +1,1 @@
-:bowtie:
+:arrow_heading_down:
