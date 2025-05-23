@@ -1,1 +1,1 @@
-:vibration_mode:
+:arrow_up_down:
