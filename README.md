@@ -1,1 +1,1 @@
-:dizzy:
+:closed_umbrella:
