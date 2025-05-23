@@ -1,1 +1,1 @@
-:bus:
+:do_not_litter:
