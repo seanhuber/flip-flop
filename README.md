@@ -1,1 +1,1 @@
-:smiley_cat:
+:bullettrain_side:
