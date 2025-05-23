@@ -1,1 +1,1 @@
-:shirt:
+:vibration_mode:
