@@ -1,1 +1,1 @@
-:notes:
+:vertical_traffic_light:
