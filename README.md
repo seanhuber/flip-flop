@@ -1,1 +1,1 @@
-:football:
+:fast_forward:
