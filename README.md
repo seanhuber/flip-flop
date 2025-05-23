@@ -1,1 +1,1 @@
-:rat:
+:raised_hands:
