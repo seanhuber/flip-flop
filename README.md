@@ -1,1 +1,1 @@
-:shoe:
+:arrow_up_down:
