@@ -1,1 +1,1 @@
-:vertical_traffic_light:
+:black_small_square:
