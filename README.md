@@ -1,1 +1,1 @@
-:beer:
+:no_bell:
