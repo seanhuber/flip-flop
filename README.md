@@ -1,1 +1,1 @@
-:white_medium_square:
+:aerial_tramway:
