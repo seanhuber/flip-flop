@@ -1,1 +1,1 @@
-:no_bell:
+:moyai:
