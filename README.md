@@ -1,1 +1,1 @@
-:outbox_tray:
+:space_invader:
