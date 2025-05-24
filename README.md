@@ -1,1 +1,1 @@
-:arrow_up_down:
+:put_litter_in_its_place:
