@@ -1,1 +1,1 @@
-:registered:
+:mans_shoe:
