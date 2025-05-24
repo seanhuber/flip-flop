@@ -1,1 +1,1 @@
-:tired_face:
+:white_medium_square:
