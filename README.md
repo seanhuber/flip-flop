@@ -1,1 +1,1 @@
-:icecream:
+:heavy_minus_sign:
