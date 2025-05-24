@@ -1,1 +1,1 @@
-:interrobang:
+:vertical_traffic_light:
