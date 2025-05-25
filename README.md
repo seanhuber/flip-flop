@@ -1,1 +1,1 @@
-:truck:
+:japanese_castle:
