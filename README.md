@@ -1,1 +1,1 @@
-:smile_cat:
+:sweat_drops:
