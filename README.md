@@ -1,1 +1,1 @@
-:no_entry_sign:
+:mailbox_with_mail:
