@@ -1,1 +1,1 @@
-:european_castle:
+:white_check_mark:
