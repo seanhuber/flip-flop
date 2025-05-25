@@ -1,1 +1,1 @@
-:white_check_mark:
+:wavy_dash:
