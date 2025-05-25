@@ -1,1 +1,1 @@
-:japanese_castle:
+:european_castle:
