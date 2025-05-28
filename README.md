@@ -1,1 +1,1 @@
-:clock9:
+:no_smoking:
