@@ -1,1 +1,1 @@
-:minibus:
+:fast_forward:
