@@ -1,1 +1,1 @@
-:newspaper:
+:baseball:
