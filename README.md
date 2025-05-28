@@ -1,1 +1,1 @@
-:baseball:
+:baby_chick:
