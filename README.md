@@ -1,1 +1,1 @@
-:anger:
+:european_castle:
