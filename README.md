@@ -1,1 +1,1 @@
-:heavy_exclamation_mark:
+:last_quarter_moon_with_face:
