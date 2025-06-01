@@ -1,1 +1,1 @@
-:droplet:
+:keycap_ten:
