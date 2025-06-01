@@ -1,1 +1,1 @@
-:hospital:
+:fish_cake:
