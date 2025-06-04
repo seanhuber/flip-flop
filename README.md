@@ -1,1 +1,1 @@
-:corn:
+:chart_with_downwards_trend:
