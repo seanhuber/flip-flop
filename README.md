@@ -1,1 +1,1 @@
-:mountain_railway:
+:mailbox_closed:
