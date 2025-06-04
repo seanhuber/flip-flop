@@ -1,1 +1,1 @@
-:star:
+:city_sunset:
