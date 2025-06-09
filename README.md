@@ -1,1 +1,1 @@
-:revolving_hearts:
+:japanese_goblin:
