@@ -1,1 +1,1 @@
-:sa:
+:vertical_traffic_light:
