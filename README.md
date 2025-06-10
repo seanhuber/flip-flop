@@ -1,1 +1,1 @@
-:cocktail:
+:signal_strength:
