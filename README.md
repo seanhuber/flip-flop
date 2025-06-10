@@ -1,1 +1,1 @@
-:speaker:
+:european_castle:
