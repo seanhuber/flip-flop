@@ -1,1 +1,1 @@
-:warning:
+:barber:
