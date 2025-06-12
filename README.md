@@ -1,1 +1,1 @@
-:clock2:
+:sunrise_over_mountains:
