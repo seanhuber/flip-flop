@@ -1,1 +1,1 @@
-:golf:
+:registered:
