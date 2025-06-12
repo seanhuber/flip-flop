@@ -1,1 +1,1 @@
-:steam_locomotive:
+:no_good:
