@@ -1,1 +1,1 @@
-:oncoming_bus:
+:ok_hand:
