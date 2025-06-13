@@ -1,1 +1,1 @@
-:lipstick:
+:arrows_clockwise:
