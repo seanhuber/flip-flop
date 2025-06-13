@@ -1,1 +1,1 @@
-:notebook:
+:ice_cream:
