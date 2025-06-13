@@ -1,1 +1,1 @@
-:smiley:
+:blue_heart:
