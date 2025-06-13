@@ -1,1 +1,1 @@
-:woman:
+:open_hands:
