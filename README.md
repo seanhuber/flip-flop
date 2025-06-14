@@ -1,1 +1,1 @@
-:bow:
+:japanese_ogre:
