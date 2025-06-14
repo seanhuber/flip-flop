@@ -1,1 +1,1 @@
-:japanese_ogre:
+:u6709:
