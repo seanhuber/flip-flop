@@ -1,1 +1,1 @@
-:honey_pot:
+:bookmark_tabs:
