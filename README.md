@@ -1,1 +1,1 @@
-:sunflower:
+:convenience_store:
