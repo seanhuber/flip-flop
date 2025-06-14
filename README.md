@@ -1,1 +1,1 @@
-:boom:
+:honey_pot:
