@@ -1,1 +1,1 @@
-:u6709:
+:earth_africa:
