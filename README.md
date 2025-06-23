@@ -1,1 +1,1 @@
-:crocodile:
+:white_large_square:
