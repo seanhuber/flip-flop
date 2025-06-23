@@ -1,1 +1,1 @@
-:u6e80:
+:vertical_traffic_light:
