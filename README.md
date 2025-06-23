@@ -1,1 +1,1 @@
-:snowboarder:
+:six_pointed_star:
