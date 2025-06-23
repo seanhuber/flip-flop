@@ -1,1 +1,1 @@
-:dragon:
+:diamonds:
