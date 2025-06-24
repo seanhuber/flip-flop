@@ -1,1 +1,1 @@
-:slot_machine:
+:poultry_leg:
