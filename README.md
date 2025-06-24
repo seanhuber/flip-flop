@@ -1,1 +1,1 @@
-:lollipop:
+:slot_machine:
