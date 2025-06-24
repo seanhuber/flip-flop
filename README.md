@@ -1,1 +1,1 @@
-:triumph:
+:musical_keyboard:
