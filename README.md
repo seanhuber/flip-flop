@@ -1,1 +1,1 @@
-:boar:
+:triumph:
