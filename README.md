@@ -1,1 +1,1 @@
-:currency_exchange:
+:white_circle:
