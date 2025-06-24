@@ -1,1 +1,1 @@
-:white_large_square:
+:love_hotel:
