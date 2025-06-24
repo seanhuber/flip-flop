@@ -1,1 +1,1 @@
-:satisfied:
+:earth_africa:
