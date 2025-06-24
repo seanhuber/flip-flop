@@ -1,1 +1,1 @@
-:poultry_leg:
+:bridge_at_night:
