@@ -1,1 +1,1 @@
-:tshirt:
+:suspension_railway:
