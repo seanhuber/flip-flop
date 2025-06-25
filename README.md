@@ -1,1 +1,1 @@
-:point_right:
+:purple_heart:
