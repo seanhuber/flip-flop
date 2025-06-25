@@ -1,1 +1,1 @@
-:suspension_railway:
+:tanabata_tree:
