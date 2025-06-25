@@ -1,1 +1,1 @@
-:rotating_light:
+:point_right:
