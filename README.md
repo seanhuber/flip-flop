@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:black_joker:
