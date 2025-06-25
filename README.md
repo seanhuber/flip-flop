@@ -1,1 +1,1 @@
-:oncoming_taxi:
+:potable_water:
