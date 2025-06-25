@@ -1,1 +1,1 @@
-:goberserk:
+:black_square_button:
