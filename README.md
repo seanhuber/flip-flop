@@ -1,1 +1,1 @@
-:grinning:
+:arrow_heading_down:
