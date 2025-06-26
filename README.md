@@ -1,1 +1,1 @@
-:recycle:
+:penguin:
