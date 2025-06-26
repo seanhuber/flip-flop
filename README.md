@@ -1,1 +1,1 @@
-:school:
+:mobile_phone_off:
