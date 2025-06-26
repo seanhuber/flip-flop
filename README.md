@@ -1,1 +1,1 @@
-:envelope:
+:raised_hand:
