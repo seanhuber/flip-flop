@@ -1,1 +1,1 @@
-:wink:
+:last_quarter_moon:
