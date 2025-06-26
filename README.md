@@ -1,1 +1,1 @@
-:wc:
+:raising_hand:
