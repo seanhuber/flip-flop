@@ -1,1 +1,1 @@
-:penguin:
+:ok_hand:
