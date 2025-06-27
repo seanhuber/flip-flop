@@ -1,1 +1,1 @@
-:baby_chick:
+:mountain_cableway:
