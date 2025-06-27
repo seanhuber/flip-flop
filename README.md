@@ -1,1 +1,1 @@
-:horse:
+:joy_cat:
