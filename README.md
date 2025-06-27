@@ -1,1 +1,1 @@
-:deciduous_tree:
+:eight_spoked_asterisk:
