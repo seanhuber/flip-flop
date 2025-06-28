@@ -1,1 +1,1 @@
-:boy:
+:baby_symbol:
