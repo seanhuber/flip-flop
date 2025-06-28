@@ -1,1 +1,1 @@
-:godmode:
+:left_right_arrow:
