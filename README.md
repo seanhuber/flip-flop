@@ -1,1 +1,1 @@
-:point_left:
+:musical_keyboard:
