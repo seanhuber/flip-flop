@@ -1,1 +1,1 @@
-:musical_score:
+:point_left:
