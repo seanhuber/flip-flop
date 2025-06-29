@@ -1,1 +1,1 @@
-:rice_scene:
+:telephone_receiver:
