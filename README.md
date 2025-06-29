@@ -1,1 +1,1 @@
-:sos:
+:arrows_clockwise:
