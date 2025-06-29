@@ -1,1 +1,1 @@
-:bank:
+:mountain_cableway:
