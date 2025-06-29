@@ -1,1 +1,1 @@
-:grimacing:
+:construction_worker:
