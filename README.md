@@ -1,1 +1,1 @@
-:raising_hand:
+:floppy_disk:
