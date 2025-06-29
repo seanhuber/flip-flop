@@ -1,1 +1,1 @@
-:floppy_disk:
+:rice_scene:
