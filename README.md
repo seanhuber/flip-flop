@@ -1,1 +1,1 @@
-:couplekiss:
+:minidisc:
