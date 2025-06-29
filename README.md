@@ -1,1 +1,1 @@
-:construction_worker:
+:raising_hand:
