@@ -1,1 +1,1 @@
-:aquarius:
+:gift_heart:
