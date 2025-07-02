@@ -1,1 +1,1 @@
-:seat:
+:heavy_division_sign:
