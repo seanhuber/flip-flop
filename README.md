@@ -1,1 +1,1 @@
-:nose:
+:currency_exchange:
