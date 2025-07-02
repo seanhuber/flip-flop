@@ -1,1 +1,1 @@
-:up:
+:black_circle:
