@@ -1,1 +1,1 @@
-:dragon_face:
+:partly_sunny:
