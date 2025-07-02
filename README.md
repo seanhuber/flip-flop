@@ -1,1 +1,1 @@
-:partly_sunny:
+:suspension_railway:
