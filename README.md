@@ -1,1 +1,1 @@
-:tea:
+:maple_leaf:
