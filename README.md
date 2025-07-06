@@ -1,1 +1,1 @@
-:microphone:
+:lipstick:
