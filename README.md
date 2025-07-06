@@ -1,1 +1,1 @@
-:city_sunset:
+:construction_worker:
