@@ -1,1 +1,1 @@
-:white_square_button:
+:outbox_tray:
