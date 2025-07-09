@@ -1,1 +1,1 @@
-:fireworks:
+:bride_with_veil:
