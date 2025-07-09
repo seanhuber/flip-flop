@@ -1,1 +1,1 @@
-:telephone_receiver:
+:globe_with_meridians:
