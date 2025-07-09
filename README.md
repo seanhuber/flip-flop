@@ -1,1 +1,1 @@
-:kr:
+:sweet_potato:
