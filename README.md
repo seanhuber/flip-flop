@@ -1,1 +1,1 @@
-:airplane:
+:kr:
