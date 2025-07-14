@@ -1,1 +1,1 @@
-:outbox_tray:
+:ice_cream:
