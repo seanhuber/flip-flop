@@ -1,1 +1,1 @@
-:arrow_up_down:
+:full_moon_with_face:
