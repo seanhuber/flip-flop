@@ -1,1 +1,1 @@
-:sun_with_face:
+:arrow_up_down:
