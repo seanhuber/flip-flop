@@ -1,1 +1,1 @@
-:triangular_flag_on_post:
+:sun_with_face:
