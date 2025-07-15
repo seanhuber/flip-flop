@@ -1,1 +1,1 @@
-:anguished:
+:slot_machine:
