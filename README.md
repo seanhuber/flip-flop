@@ -1,1 +1,1 @@
-:exclamation:
+:mail:
