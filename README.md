@@ -1,1 +1,1 @@
-:shell:
+:heavy_division_sign:
