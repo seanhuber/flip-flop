@@ -1,1 +1,1 @@
-:slot_machine:
+:ballot_box_with_check:
