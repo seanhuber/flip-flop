@@ -1,1 +1,1 @@
-:milky_way:
+:open_file_folder:
