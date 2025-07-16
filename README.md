@@ -1,1 +1,1 @@
-:tropical_fish:
+:statue_of_liberty:
