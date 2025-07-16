@@ -1,1 +1,1 @@
-:boot:
+:information_source:
