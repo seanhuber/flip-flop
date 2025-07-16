@@ -1,1 +1,1 @@
-:no_mouth:
+:hourglass_flowing_sand:
