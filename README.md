@@ -1,1 +1,1 @@
-:anger:
+:speech_balloon:
