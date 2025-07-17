@@ -1,1 +1,1 @@
-:point_left:
+:u6e80:
