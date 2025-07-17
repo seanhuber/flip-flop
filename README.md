@@ -1,1 +1,1 @@
-:crystal_ball:
+:point_up_2:
