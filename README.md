@@ -1,1 +1,1 @@
-:telephone:
+:crystal_ball:
