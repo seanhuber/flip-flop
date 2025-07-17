@@ -1,1 +1,1 @@
-:clipboard:
+:telephone_receiver:
