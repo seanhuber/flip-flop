@@ -1,1 +1,1 @@
-:mountain_railway:
+:waxing_gibbous_moon:
