@@ -1,1 +1,1 @@
-:telephone_receiver:
+:point_left:
