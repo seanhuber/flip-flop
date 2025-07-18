@@ -1,1 +1,1 @@
-:sunny:
+:chocolate_bar:
