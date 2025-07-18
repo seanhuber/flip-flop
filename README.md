@@ -1,1 +1,1 @@
-:white_circle:
+:arrows_clockwise:
