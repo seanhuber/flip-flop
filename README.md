@@ -1,1 +1,1 @@
-:tent:
+:mountain_railway:
