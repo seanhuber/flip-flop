@@ -1,1 +1,1 @@
-:microphone:
+:red_circle:
