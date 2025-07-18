@@ -1,1 +1,1 @@
-:door:
+:white_circle:
