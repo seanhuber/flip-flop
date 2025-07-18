@@ -1,1 +1,1 @@
-:tent:
+:raising_hand:
