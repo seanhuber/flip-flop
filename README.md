@@ -1,1 +1,1 @@
-:jeans:
+:thought_balloon:
