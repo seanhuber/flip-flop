@@ -1,1 +1,1 @@
-:arrow_left:
+:rice_scene:
