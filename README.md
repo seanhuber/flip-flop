@@ -1,1 +1,1 @@
-:horse:
+:stuck_out_tongue:
