@@ -1,1 +1,1 @@
-:cupid:
+:dollar:
