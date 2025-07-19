@@ -1,1 +1,1 @@
-:new_moon:
+:see_no_evil:
