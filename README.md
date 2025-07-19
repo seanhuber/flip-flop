@@ -1,1 +1,1 @@
-:dog2:
+:game_die:
