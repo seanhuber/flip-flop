@@ -1,1 +1,1 @@
-:thought_balloon:
+:first_quarter_moon:
