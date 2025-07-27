@@ -1,1 +1,1 @@
-:snowman:
+:inbox_tray:
