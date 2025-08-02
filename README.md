@@ -1,1 +1,1 @@
-:green_book:
+:twisted_rightwards_arrows:
