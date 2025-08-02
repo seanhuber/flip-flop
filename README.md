@@ -1,1 +1,1 @@
-:leopard:
+:musical_keyboard:
