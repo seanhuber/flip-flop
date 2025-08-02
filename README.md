@@ -1,1 +1,1 @@
-:symbols:
+:cold_sweat:
