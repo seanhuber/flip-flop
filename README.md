@@ -1,1 +1,1 @@
-:shaved_ice:
+:closed_book:
