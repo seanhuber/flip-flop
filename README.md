@@ -1,1 +1,1 @@
-:ribbon:
+:arrow_up_down:
