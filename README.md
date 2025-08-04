@@ -1,1 +1,1 @@
-:eyeglasses:
+:no_good:
