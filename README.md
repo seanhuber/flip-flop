@@ -1,1 +1,1 @@
-:no_good:
+:notebook_with_decorative_cover:
