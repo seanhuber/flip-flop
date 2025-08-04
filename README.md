@@ -1,1 +1,1 @@
-:no_smoking:
+:tulip:
