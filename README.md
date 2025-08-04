@@ -1,1 +1,1 @@
-:rage:
+:video_camera:
