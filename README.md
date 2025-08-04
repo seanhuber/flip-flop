@@ -1,1 +1,1 @@
-:link:
+:no_smoking:
