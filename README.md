@@ -1,1 +1,1 @@
-:kimono:
+:video_game:
