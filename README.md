@@ -1,1 +1,1 @@
-:beginner:
+:six_pointed_star:
