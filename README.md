@@ -1,1 +1,1 @@
-:bus:
+:ice_cream:
