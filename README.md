@@ -1,1 +1,1 @@
-:ice_cream:
+:file_folder:
