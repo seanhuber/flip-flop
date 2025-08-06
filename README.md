@@ -1,1 +1,1 @@
-:department_store:
+:black_medium_square:
