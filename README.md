@@ -1,1 +1,1 @@
-:zap:
+:mountain_bicyclist:
