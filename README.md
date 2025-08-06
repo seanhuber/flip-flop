@@ -1,1 +1,1 @@
-:satellite:
+:thought_balloon:
