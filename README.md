@@ -1,1 +1,1 @@
-:recycle:
+:department_store:
