@@ -1,1 +1,1 @@
-:postbox:
+:man_with_turban:
