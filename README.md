@@ -1,1 +1,1 @@
-:euro:
+:point_up_2:
