@@ -1,1 +1,1 @@
-:jack_o_lantern:
+:bullettrain_side:
