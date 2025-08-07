@@ -1,1 +1,1 @@
-:carousel_horse:
+:white_check_mark:
