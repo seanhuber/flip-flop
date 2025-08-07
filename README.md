@@ -1,1 +1,1 @@
-:punch:
+:mushroom:
