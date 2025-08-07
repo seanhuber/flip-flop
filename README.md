@@ -1,1 +1,1 @@
-:soccer:
+:mount_fuji:
