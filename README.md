@@ -1,1 +1,1 @@
-:accept:
+:kimono:
