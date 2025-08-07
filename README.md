@@ -1,1 +1,1 @@
-:first_quarter_moon:
+:open_file_folder:
