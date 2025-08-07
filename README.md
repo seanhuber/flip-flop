@@ -1,1 +1,1 @@
-:currency_exchange:
+:100:
