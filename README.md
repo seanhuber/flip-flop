@@ -1,1 +1,1 @@
-:credit_card:
+:bullettrain_side:
