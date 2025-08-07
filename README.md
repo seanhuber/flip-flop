@@ -1,1 +1,1 @@
-:musical_keyboard:
+:o2:
