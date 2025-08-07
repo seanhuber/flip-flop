@@ -1,1 +1,1 @@
-:yen:
+:first_quarter_moon:
