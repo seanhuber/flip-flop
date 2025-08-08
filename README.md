@@ -1,1 +1,1 @@
-:koala:
+:ideograph_advantage:
