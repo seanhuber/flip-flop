@@ -1,1 +1,1 @@
-:clock5:
+:point_up:
