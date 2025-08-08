@@ -1,1 +1,1 @@
-:wind_chime:
+:fast_forward:
