@@ -1,1 +1,1 @@
-:dizzy_face:
+:no_good:
