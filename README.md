@@ -1,1 +1,1 @@
-:kissing_smiling_eyes:
+:last_quarter_moon:
