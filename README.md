@@ -1,1 +1,1 @@
-:video_camera:
+:rice_cracker:
