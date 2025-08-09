@@ -1,1 +1,1 @@
-:hospital:
+:small_blue_diamond:
