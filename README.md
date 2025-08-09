@@ -1,1 +1,1 @@
-:crown:
+:video_camera:
