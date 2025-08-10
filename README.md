@@ -1,1 +1,1 @@
-:cyclone:
+:computer:
