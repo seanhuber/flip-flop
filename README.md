@@ -1,1 +1,1 @@
-:small_red_triangle_down:
+:negative_squared_cross_mark:
