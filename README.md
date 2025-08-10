@@ -1,1 +1,1 @@
-:anger:
+:bar_chart:
