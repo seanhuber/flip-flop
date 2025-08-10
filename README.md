@@ -1,1 +1,1 @@
-:clock6:
+:left_right_arrow:
