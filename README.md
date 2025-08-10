@@ -1,1 +1,1 @@
-:poodle:
+:six_pointed_star:
