@@ -1,1 +1,1 @@
-:ng:
+:arrows_clockwise:
