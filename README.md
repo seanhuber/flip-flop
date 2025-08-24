@@ -1,1 +1,1 @@
-:hushed:
+:vertical_traffic_light:
