@@ -1,1 +1,1 @@
-:loudspeaker:
+:ear_of_rice:
