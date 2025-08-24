@@ -1,1 +1,1 @@
-:battery:
+:large_blue_circle:
