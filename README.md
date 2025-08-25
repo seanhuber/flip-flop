@@ -1,1 +1,1 @@
-:crystal_ball:
+:aerial_tramway:
