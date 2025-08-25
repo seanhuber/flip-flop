@@ -1,1 +1,1 @@
-:sparkles:
+:crystal_ball:
