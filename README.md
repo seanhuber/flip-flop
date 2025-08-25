@@ -1,1 +1,1 @@
-:gun:
+:european_castle:
