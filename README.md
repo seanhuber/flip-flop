@@ -1,1 +1,1 @@
-:pager:
+:articulated_lorry:
