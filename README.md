@@ -1,1 +1,1 @@
-:vibration_mode:
+:milky_way:
