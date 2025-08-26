@@ -1,1 +1,1 @@
-:sunglasses:
+:four_leaf_clover:
