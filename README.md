@@ -1,1 +1,1 @@
-:boar:
+:eight_spoked_asterisk:
