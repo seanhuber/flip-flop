@@ -1,1 +1,1 @@
-:lipstick:
+:closed_umbrella:
