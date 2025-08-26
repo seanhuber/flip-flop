@@ -1,1 +1,1 @@
-:school:
+:vibration_mode:
