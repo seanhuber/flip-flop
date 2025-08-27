@@ -1,1 +1,1 @@
-:neckbeard:
+:thought_balloon:
