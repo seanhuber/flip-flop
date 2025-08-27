@@ -1,1 +1,1 @@
-:beetle:
+:no_entry_sign:
