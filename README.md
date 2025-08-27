@@ -1,1 +1,1 @@
-:soccer:
+:copyright:
