@@ -1,1 +1,1 @@
-:green_apple:
+:man_with_turban:
