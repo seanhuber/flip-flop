@@ -1,1 +1,1 @@
-:house_with_garden:
+:information_source:
