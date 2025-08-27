@@ -1,1 +1,1 @@
-:small_red_triangle:
+:green_apple:
