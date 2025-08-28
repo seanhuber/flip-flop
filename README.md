@@ -1,1 +1,1 @@
-:globe_with_meridians:
+:no_mouth:
