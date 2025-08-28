@@ -1,1 +1,1 @@
-:goat:
+:hearts:
