@@ -1,1 +1,1 @@
-:blue_car:
+:baby_symbol:
