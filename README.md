@@ -1,1 +1,1 @@
-:movie_camera:
+:musical_note:
