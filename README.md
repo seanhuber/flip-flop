@@ -1,1 +1,1 @@
-:truck:
+:simple_smile:
