@@ -1,1 +1,1 @@
-:house:
+:low_brightness:
