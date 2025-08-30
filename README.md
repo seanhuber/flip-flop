@@ -1,1 +1,1 @@
-:tea:
+:circus_tent:
