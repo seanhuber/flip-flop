@@ -1,1 +1,1 @@
-:circus_tent:
+:black_circle:
