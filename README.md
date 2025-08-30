@@ -1,1 +1,1 @@
-:cloud:
+:pizza:
