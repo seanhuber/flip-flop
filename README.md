@@ -1,1 +1,1 @@
-:camera:
+:tired_face:
