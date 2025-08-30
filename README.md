@@ -1,1 +1,1 @@
-:leftwards_arrow_with_hook:
+:ideograph_advantage:
