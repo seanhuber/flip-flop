@@ -1,1 +1,1 @@
-:point_up:
+:bridge_at_night:
