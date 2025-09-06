@@ -1,1 +1,1 @@
-:mountain_cableway:
+:eight_pointed_black_star:
