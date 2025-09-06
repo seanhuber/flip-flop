@@ -1,1 +1,1 @@
-:ambulance:
+:toilet:
