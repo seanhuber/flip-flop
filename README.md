@@ -1,1 +1,1 @@
-:movie_camera:
+:white_medium_small_square:
