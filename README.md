@@ -1,1 +1,1 @@
-:relaxed:
+:closed_umbrella:
