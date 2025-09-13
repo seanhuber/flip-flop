@@ -1,1 +1,1 @@
-:customs:
+:vertical_traffic_light:
