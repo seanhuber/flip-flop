@@ -1,1 +1,1 @@
-:newspaper:
+:house:
