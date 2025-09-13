@@ -1,1 +1,1 @@
-:skull:
+:arrow_up_small:
