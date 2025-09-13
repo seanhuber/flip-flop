@@ -1,1 +1,1 @@
-:registered:
+:point_up:
