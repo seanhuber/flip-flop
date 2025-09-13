@@ -1,1 +1,1 @@
-:pencil:
+:orange_book:
