@@ -1,1 +1,1 @@
-:disappointed:
+:white_square_button:
