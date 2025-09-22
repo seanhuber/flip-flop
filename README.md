@@ -1,1 +1,1 @@
-:heart_eyes:
+:no_bicycles:
