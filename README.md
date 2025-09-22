@@ -1,1 +1,1 @@
-:video_camera:
+:bullettrain_side:
