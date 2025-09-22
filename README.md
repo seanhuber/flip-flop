@@ -1,1 +1,1 @@
-:cold_sweat:
+:video_camera:
