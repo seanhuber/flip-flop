@@ -1,1 +1,1 @@
-:bullettrain_side:
+:speech_balloon:
