@@ -1,1 +1,1 @@
-:scissors:
+:kissing_cat:
