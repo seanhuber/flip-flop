@@ -1,1 +1,1 @@
-:busts_in_silhouette:
+:first_quarter_moon_with_face:
