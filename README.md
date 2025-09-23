@@ -1,1 +1,1 @@
-:pizza:
+:signal_strength:
