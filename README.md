@@ -1,1 +1,1 @@
-:angel:
+:first_quarter_moon:
