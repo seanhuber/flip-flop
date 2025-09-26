@@ -1,1 +1,1 @@
-:clipboard:
+:mount_fuji:
