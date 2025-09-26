@@ -1,1 +1,1 @@
-:thought_balloon:
+:black_nib:
