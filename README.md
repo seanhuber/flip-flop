@@ -1,1 +1,1 @@
-:mount_fuji:
+:triangular_ruler:
