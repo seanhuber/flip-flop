@@ -1,1 +1,1 @@
-:wine_glass:
+:white_medium_small_square:
