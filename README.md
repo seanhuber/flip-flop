@@ -1,1 +1,1 @@
-:panda_face:
+:thought_balloon:
