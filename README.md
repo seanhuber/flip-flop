@@ -1,1 +1,1 @@
-:spaghetti:
+:panda_face:
