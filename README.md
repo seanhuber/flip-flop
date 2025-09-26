@@ -1,1 +1,1 @@
-:ring:
+:heavy_plus_sign:
