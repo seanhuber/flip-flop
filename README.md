@@ -1,1 +1,1 @@
-:squirrel:
+:wine_glass:
