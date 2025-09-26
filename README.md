@@ -1,1 +1,1 @@
-:clapper:
+:curly_loop:
