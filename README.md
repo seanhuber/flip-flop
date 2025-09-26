@@ -1,1 +1,1 @@
-:running_shirt_with_sash:
+:small_red_triangle_down:
