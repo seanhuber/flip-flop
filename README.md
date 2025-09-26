@@ -1,1 +1,1 @@
-:vhs:
+:wine_glass:
