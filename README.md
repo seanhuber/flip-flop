@@ -1,1 +1,1 @@
-:spaghetti:
+:guitar:
