@@ -1,1 +1,1 @@
-:white_small_square:
+:waxing_crescent_moon:
