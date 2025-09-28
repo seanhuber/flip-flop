@@ -1,1 +1,1 @@
-:tophat:
+:izakaya_lantern:
