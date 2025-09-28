@@ -1,1 +1,1 @@
-:earth_africa:
+:wind_chime:
