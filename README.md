@@ -1,1 +1,1 @@
-:sweat:
+:convenience_store:
