@@ -1,1 +1,1 @@
-:guitar:
+:earth_africa:
