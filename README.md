@@ -1,1 +1,1 @@
-:black_joker:
+:white_small_square:
