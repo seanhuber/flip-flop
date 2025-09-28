@@ -1,1 +1,1 @@
-:shit:
+:thought_balloon:
