@@ -1,1 +1,1 @@
-:hankey:
+:slot_machine:
