@@ -1,1 +1,1 @@
-:smoking:
+:banana:
