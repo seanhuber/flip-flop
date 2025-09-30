@@ -1,1 +1,1 @@
-:frog:
+:do_not_litter:
