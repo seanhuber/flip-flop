@@ -1,1 +1,1 @@
-:japanese_goblin:
+:jack_o_lantern:
