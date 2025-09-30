@@ -1,1 +1,1 @@
-:banana:
+:jack_o_lantern:
