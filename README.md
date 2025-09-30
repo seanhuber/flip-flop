@@ -1,1 +1,1 @@
-:grey_question:
+:white_medium_small_square:
