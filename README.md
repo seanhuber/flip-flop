@@ -1,1 +1,1 @@
-:mega:
+:rice_cracker:
