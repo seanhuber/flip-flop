@@ -1,1 +1,1 @@
-:kr:
+:arrow_heading_down:
