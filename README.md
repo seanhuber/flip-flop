@@ -1,1 +1,1 @@
-:mountain_bicyclist:
+:curly_loop:
