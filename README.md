@@ -1,1 +1,1 @@
-:rice_cracker:
+:space_invader:
