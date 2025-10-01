@@ -1,1 +1,1 @@
-:japanese_castle:
+:heavy_plus_sign:
