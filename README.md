@@ -1,1 +1,1 @@
-:tropical_drink:
+:smiley_cat:
