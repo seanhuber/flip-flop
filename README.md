@@ -1,1 +1,1 @@
-:cat2:
+:heavy_minus_sign:
