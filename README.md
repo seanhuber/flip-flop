@@ -1,1 +1,1 @@
-:baggage_claim:
+:mailbox_with_no_mail:
