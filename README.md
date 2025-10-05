@@ -1,1 +1,1 @@
-:passport_control:
+:two_men_holding_hands:
