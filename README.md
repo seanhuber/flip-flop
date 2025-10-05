@@ -1,1 +1,1 @@
-:coffee:
+:baggage_claim:
