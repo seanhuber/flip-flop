@@ -1,1 +1,1 @@
-:bus:
+:neutral_face:
