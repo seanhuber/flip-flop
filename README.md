@@ -1,1 +1,1 @@
-:video_camera:
+:six_pointed_star:
