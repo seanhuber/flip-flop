@@ -1,1 +1,1 @@
-:copyright:
+:chart_with_downwards_trend:
