@@ -1,1 +1,1 @@
-:coffee:
+:wine_glass:
