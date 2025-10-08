@@ -1,1 +1,1 @@
-:scream:
+:japanese_goblin:
