@@ -1,1 +1,1 @@
-:trolleybus:
+:fried_shrimp:
