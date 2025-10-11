@@ -1,1 +1,1 @@
-:fireworks:
+:arrow_lower_left:
