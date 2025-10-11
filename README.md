@@ -1,1 +1,1 @@
-:no_entry:
+:heavy_multiplication_x:
