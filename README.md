@@ -1,1 +1,1 @@
-:blue_book:
+:heavy_multiplication_x:
