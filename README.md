@@ -1,1 +1,1 @@
-:sleeping:
+:carousel_horse:
