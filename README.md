@@ -1,1 +1,1 @@
-:clapper:
+:black_small_square:
