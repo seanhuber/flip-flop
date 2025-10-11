@@ -1,1 +1,1 @@
-:microscope:
+:traffic_light:
