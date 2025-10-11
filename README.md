@@ -1,1 +1,1 @@
-:new_moon_with_face:
+:blue_book:
