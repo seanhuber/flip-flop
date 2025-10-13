@@ -1,1 +1,1 @@
-:no_bell:
+:panda_face:
