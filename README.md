@@ -1,1 +1,1 @@
-:mens:
+:smile_cat:
