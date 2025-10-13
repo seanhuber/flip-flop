@@ -1,1 +1,1 @@
-:christmas_tree:
+:jack_o_lantern:
