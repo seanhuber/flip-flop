@@ -1,1 +1,1 @@
-:shower:
+:bust_in_silhouette:
