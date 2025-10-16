@@ -1,1 +1,1 @@
-:bear:
+:octocat:
