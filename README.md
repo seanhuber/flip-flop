@@ -1,1 +1,1 @@
-:computer:
+:paw_prints:
