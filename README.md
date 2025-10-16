@@ -1,1 +1,1 @@
-:icecream:
+:railway_car:
