@@ -1,1 +1,1 @@
-:hotel:
+:icecream:
