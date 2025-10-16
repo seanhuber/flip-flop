@@ -1,1 +1,1 @@
-:ng:
+:crystal_ball:
