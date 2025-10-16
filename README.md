@@ -1,1 +1,1 @@
-:surfer:
+:hotel:
