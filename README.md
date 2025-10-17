@@ -1,1 +1,1 @@
-:telephone:
+:fried_shrimp:
