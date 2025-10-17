@@ -1,1 +1,1 @@
-:thumbsdown:
+:computer:
