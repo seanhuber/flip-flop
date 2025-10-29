@@ -1,1 +1,1 @@
-:mens:
+:arrow_right_hook:
