@@ -1,1 +1,1 @@
-:ambulance:
+:white_flower:
