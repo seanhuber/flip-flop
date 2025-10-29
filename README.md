@@ -1,1 +1,1 @@
-:mahjong:
+:warning:
