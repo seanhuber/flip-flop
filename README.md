@@ -1,1 +1,1 @@
-:it:
+:statue_of_liberty:
