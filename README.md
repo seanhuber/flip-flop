@@ -1,1 +1,1 @@
-:muscle:
+:white_large_square:
