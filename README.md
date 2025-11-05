@@ -1,1 +1,1 @@
-:email:
+:earth_africa:
