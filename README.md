@@ -1,1 +1,1 @@
-:rooster:
+:mailbox_with_no_mail:
