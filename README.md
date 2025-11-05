@@ -1,1 +1,1 @@
-:sunflower:
+:love_hotel:
