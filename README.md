@@ -1,1 +1,1 @@
-:statue_of_liberty:
+:house_with_garden:
