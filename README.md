@@ -1,1 +1,1 @@
-:rabbit:
+:no_mouth:
