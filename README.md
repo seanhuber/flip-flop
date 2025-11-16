@@ -1,1 +1,1 @@
-:raised_hands:
+:shaved_ice:
