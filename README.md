@@ -1,1 +1,1 @@
-:restroom:
+:small_red_triangle:
