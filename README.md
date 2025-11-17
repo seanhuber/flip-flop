@@ -1,1 +1,1 @@
-:church:
+:rice_ball:
