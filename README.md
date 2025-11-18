@@ -1,1 +1,1 @@
-:speech_balloon:
+:monkey_face:
