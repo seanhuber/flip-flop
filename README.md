@@ -1,1 +1,1 @@
-:fr:
+:speech_balloon:
