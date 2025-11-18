@@ -1,1 +1,1 @@
-:whale2:
+:japanese_ogre:
