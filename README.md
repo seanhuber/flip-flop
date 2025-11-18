@@ -1,1 +1,1 @@
-:haircut:
+:wine_glass:
