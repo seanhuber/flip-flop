@@ -1,1 +1,1 @@
-:clock1030:
+:telephone_receiver:
