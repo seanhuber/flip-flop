@@ -1,1 +1,1 @@
-:ramen:
+:arrow_lower_left:
