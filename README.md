@@ -1,1 +1,1 @@
-:koko:
+:sunrise_over_mountains:
