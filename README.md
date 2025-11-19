@@ -1,1 +1,1 @@
-:no_entry_sign:
+:white_small_square:
