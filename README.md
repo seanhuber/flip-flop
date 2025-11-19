@@ -1,1 +1,1 @@
-:sound:
+:heavy_dollar_sign:
