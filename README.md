@@ -1,1 +1,1 @@
-:no_smoking:
+:incoming_envelope:
