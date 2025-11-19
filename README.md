@@ -1,1 +1,1 @@
-:pushpin:
+:rotating_light:
