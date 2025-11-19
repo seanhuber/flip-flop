@@ -1,1 +1,1 @@
-:heavy_dollar_sign:
+:no_entry_sign:
