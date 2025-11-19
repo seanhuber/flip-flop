@@ -1,1 +1,1 @@
-:wrench:
+:no_smoking:
