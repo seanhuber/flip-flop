@@ -1,1 +1,1 @@
-:high_brightness:
+:flower_playing_cards:
