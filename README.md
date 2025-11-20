@@ -1,1 +1,1 @@
-:fried_shrimp:
+:love_letter:
