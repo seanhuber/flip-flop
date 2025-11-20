@@ -1,1 +1,1 @@
-:mail:
+:slot_machine:
