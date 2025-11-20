@@ -1,1 +1,1 @@
-:crocodile:
+:ski:
