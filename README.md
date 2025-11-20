@@ -1,1 +1,1 @@
-:chocolate_bar:
+:vibration_mode:
