@@ -1,1 +1,1 @@
-:strawberry:
+:no_mouth:
