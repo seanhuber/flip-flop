@@ -1,1 +1,1 @@
-:love_letter:
+:chart_with_upwards_trend:
