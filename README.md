@@ -1,1 +1,1 @@
-:peach:
+:mag_right:
