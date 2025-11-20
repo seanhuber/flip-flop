@@ -1,1 +1,1 @@
-:ski:
+:high_brightness:
