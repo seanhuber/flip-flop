@@ -1,1 +1,1 @@
-:white_circle:
+:arrow_right_hook:
