@@ -1,1 +1,1 @@
-:red_circle:
+:ear_of_rice:
