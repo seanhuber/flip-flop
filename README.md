@@ -1,1 +1,1 @@
-:smoking:
+:fried_shrimp:
