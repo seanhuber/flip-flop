@@ -1,1 +1,1 @@
-:mountain_cableway:
+:white_circle:
