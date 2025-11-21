@@ -1,1 +1,1 @@
-:bangbang:
+:red_circle:
