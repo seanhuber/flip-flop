@@ -1,1 +1,1 @@
-:fountain:
+:mag_right:
