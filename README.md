@@ -1,1 +1,1 @@
-:rugby_football:
+:raised_hands:
