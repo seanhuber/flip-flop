@@ -1,1 +1,1 @@
-:hushed:
+:mount_fuji:
