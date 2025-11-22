@@ -1,1 +1,1 @@
-:fried_shrimp:
+:ferris_wheel:
