@@ -1,1 +1,1 @@
-:kissing:
+:closed_umbrella:
