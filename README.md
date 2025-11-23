@@ -1,1 +1,1 @@
-:tent:
+:high_heel:
