@@ -1,1 +1,1 @@
-:cloud:
+:mount_fuji:
