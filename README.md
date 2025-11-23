@@ -1,1 +1,1 @@
-:question:
+:bar_chart:
