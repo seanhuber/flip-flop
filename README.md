@@ -1,1 +1,1 @@
-:aries:
+:arrow_heading_up:
