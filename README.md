@@ -1,1 +1,1 @@
-:clapper:
+:tongue:
