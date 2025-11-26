@@ -1,1 +1,1 @@
-:slot_machine:
+:white_large_square:
