@@ -1,1 +1,1 @@
-:page_facing_up:
+:rugby_football:
