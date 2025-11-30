@@ -1,1 +1,1 @@
-:pill:
+:large_blue_circle:
