@@ -1,1 +1,1 @@
-:horse:
+:shaved_ice:
