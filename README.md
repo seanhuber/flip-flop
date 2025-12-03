@@ -1,1 +1,1 @@
-:email:
+:mortar_board:
