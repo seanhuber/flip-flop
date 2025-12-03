@@ -1,1 +1,1 @@
-:children_crossing:
+:potable_water:
