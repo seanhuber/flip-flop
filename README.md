@@ -1,1 +1,1 @@
-:ramen:
+:no_smoking:
