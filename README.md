@@ -1,1 +1,1 @@
-:earth_africa:
+:triangular_flag_on_post:
