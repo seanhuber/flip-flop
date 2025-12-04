@@ -1,1 +1,1 @@
-:ghost:
+:earth_africa:
