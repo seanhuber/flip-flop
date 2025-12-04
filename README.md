@@ -1,1 +1,1 @@
-:ideograph_advantage:
+:ear_of_rice:
