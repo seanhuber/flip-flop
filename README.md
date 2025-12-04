@@ -1,1 +1,1 @@
-:hotel:
+:dromedary_camel:
