@@ -1,1 +1,1 @@
-:part_alternation_mark:
+:closed_lock_with_key:
