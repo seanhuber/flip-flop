@@ -1,1 +1,1 @@
-:wheelchair:
+:open_mouth:
