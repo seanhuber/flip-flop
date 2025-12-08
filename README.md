@@ -1,1 +1,1 @@
-:8ball:
+:curry:
