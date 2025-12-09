@@ -1,1 +1,1 @@
-:mushroom:
+:white_square_button:
