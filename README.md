@@ -1,1 +1,1 @@
-:bicyclist:
+:arrow_down_small:
