@@ -1,1 +1,1 @@
-:snowboarder:
+:capital_abcd:
