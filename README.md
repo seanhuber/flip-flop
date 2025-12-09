@@ -1,1 +1,1 @@
-:books:
+:orange_book:
