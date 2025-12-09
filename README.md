@@ -1,1 +1,1 @@
-:cupid:
+:hourglass_flowing_sand:
