@@ -1,1 +1,1 @@
-:moyai:
+:white_medium_square:
