@@ -1,1 +1,1 @@
-:barber:
+:wind_chime:
