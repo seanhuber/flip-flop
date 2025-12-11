@@ -1,1 +1,1 @@
-:rage:
+:tokyo_tower:
