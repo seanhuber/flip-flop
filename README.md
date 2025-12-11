@@ -1,1 +1,1 @@
-:gun:
+:barber:
