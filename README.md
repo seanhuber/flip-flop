@@ -1,1 +1,1 @@
-:ng:
+:yellow_heart:
