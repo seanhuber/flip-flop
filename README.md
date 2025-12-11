@@ -1,1 +1,1 @@
-:balloon:
+:taurus:
