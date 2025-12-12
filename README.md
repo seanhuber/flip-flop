@@ -1,1 +1,1 @@
-:ballot_box_with_check:
+:repeat_one:
