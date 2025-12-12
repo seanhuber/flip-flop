@@ -1,1 +1,1 @@
-:kr:
+:love_letter:
