@@ -1,1 +1,1 @@
-:fishing_pole_and_fish:
+:white_square_button:
