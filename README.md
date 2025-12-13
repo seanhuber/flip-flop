@@ -1,1 +1,1 @@
-:ophiuchus:
+:white_check_mark:
