@@ -1,1 +1,1 @@
-:joy:
+:syringe:
