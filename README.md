@@ -1,1 +1,1 @@
-:boy:
+:potable_water:
