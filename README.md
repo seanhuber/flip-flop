@@ -1,1 +1,1 @@
-:evergreen_tree:
+:white_small_square:
