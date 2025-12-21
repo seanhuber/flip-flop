@@ -1,1 +1,1 @@
-:microphone:
+:no_bell:
