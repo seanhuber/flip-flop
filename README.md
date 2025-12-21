@@ -1,1 +1,1 @@
-:sagittarius:
+:arrow_left:
