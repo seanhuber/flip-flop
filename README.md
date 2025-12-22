@@ -1,1 +1,1 @@
-:skull:
+:currency_exchange:
