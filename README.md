@@ -1,1 +1,1 @@
-:neutral_face:
+:earth_africa:
