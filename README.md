@@ -1,1 +1,1 @@
-:dizzy:
+:heavy_dollar_sign:
