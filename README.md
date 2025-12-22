@@ -1,1 +1,1 @@
-:one:
+:factory:
