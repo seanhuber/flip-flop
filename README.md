@@ -1,1 +1,1 @@
-:page_facing_up:
+:traffic_light:
