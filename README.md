@@ -1,1 +1,1 @@
-:gb:
+:white_small_square:
