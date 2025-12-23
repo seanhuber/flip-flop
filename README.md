@@ -1,1 +1,1 @@
-:crossed_flags:
+:ear_of_rice:
