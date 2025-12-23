@@ -1,1 +1,1 @@
-:spaghetti:
+:crystal_ball:
