@@ -1,1 +1,1 @@
-:umbrella:
+:hotel:
