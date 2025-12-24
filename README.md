@@ -1,1 +1,1 @@
-:hotel:
+:large_blue_circle:
