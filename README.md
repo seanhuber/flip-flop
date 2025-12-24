@@ -1,1 +1,1 @@
-:wine_glass:
+:panda_face:
