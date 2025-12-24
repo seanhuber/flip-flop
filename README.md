@@ -1,1 +1,1 @@
-:sunrise:
+:kissing_closed_eyes:
