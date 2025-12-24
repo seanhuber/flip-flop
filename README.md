@@ -1,1 +1,1 @@
-:panda_face:
+:vertical_traffic_light:
