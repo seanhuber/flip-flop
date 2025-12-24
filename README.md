@@ -1,1 +1,1 @@
-:white_check_mark:
+:love_hotel:
