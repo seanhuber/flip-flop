@@ -1,1 +1,1 @@
-:bamboo:
+:wine_glass:
