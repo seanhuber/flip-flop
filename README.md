@@ -1,1 +1,1 @@
-:cinema:
+:sweat_smile:
