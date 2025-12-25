@@ -1,1 +1,1 @@
-:smiley:
+:mount_fuji:
