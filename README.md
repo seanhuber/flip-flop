@@ -1,1 +1,1 @@
-:sweat_smile:
+:last_quarter_moon_with_face:
