@@ -1,1 +1,1 @@
-:black_medium_square:
+:put_litter_in_its_place:
