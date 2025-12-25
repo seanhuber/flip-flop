@@ -1,1 +1,1 @@
-:bookmark:
+:closed_book:
