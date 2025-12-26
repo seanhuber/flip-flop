@@ -1,1 +1,1 @@
-:bouquet:
+:six_pointed_star:
