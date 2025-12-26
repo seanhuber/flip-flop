@@ -1,1 +1,1 @@
-:octocat:
+:japanese_castle:
