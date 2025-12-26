@@ -1,1 +1,1 @@
-:cancer:
+:musical_score:
