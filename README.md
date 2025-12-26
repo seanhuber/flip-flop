@@ -1,1 +1,1 @@
-:dango:
+:articulated_lorry:
