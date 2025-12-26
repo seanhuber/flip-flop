@@ -1,1 +1,1 @@
-:egg:
+:no_good:
