@@ -1,1 +1,1 @@
-:shit:
+:fried_shrimp:
