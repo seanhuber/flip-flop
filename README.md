@@ -1,1 +1,1 @@
-:airplane:
+:arrow_lower_right:
