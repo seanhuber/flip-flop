@@ -1,1 +1,1 @@
-:cat:
+:video_camera:
