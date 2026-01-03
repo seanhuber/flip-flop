@@ -1,1 +1,1 @@
-:moneybag:
+:sweet_potato:
