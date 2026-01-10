@@ -1,1 +1,1 @@
-:8ball:
+:raised_hand:
