@@ -1,1 +1,1 @@
-:chocolate_bar:
+:large_orange_diamond:
