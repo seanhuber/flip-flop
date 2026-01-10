@@ -1,1 +1,1 @@
-:wheelchair:
+:camel:
