@@ -1,1 +1,1 @@
-:camel:
+:loudspeaker:
