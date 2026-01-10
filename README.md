@@ -1,1 +1,1 @@
-:tent:
+:black_large_square:
