@@ -1,1 +1,1 @@
-:sushi:
+:open_mouth:
