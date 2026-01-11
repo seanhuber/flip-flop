@@ -1,1 +1,1 @@
-:station:
+:white_medium_square:
