@@ -1,1 +1,1 @@
-:crocodile:
+:globe_with_meridians:
