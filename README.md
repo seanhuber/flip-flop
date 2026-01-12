@@ -1,1 +1,1 @@
-:dog:
+:last_quarter_moon:
