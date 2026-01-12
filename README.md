@@ -1,1 +1,1 @@
-:office:
+:outbox_tray:
