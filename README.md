@@ -1,1 +1,1 @@
-:baggage_claim:
+:vertical_traffic_light:
