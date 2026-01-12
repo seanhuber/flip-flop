@@ -1,1 +1,1 @@
-:symbols:
+:nut_and_bolt:
