@@ -1,1 +1,1 @@
-:sound:
+:closed_umbrella:
