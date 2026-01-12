@@ -1,1 +1,1 @@
-:evergreen_tree:
+:notebook_with_decorative_cover:
