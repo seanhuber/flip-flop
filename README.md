@@ -1,1 +1,1 @@
-:last_quarter_moon:
+:white_check_mark:
