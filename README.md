@@ -1,1 +1,1 @@
-:outbox_tray:
+:arrow_right_hook:
