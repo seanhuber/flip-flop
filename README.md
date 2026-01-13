@@ -1,1 +1,1 @@
-:cake:
+:outbox_tray:
