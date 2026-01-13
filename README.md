@@ -1,1 +1,1 @@
-:arrow_right_hook:
+:part_alternation_mark:
