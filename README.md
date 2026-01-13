@@ -1,1 +1,1 @@
-:new_moon_with_face:
+:wine_glass:
