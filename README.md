@@ -1,1 +1,1 @@
-:camel:
+:repeat_one:
