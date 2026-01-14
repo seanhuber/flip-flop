@@ -1,1 +1,1 @@
-:eyes:
+:sandal:
