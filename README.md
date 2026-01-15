@@ -1,1 +1,1 @@
-:new:
+:mailbox_with_mail:
