@@ -1,1 +1,1 @@
-:rice_scene:
+:closed_book:
