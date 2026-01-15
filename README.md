@@ -1,1 +1,1 @@
-:high_brightness:
+:house_with_garden:
