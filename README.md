@@ -1,1 +1,1 @@
-:hamburger:
+:eight_spoked_asterisk:
