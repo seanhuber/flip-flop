@@ -1,1 +1,1 @@
-:gift:
+:game_die:
