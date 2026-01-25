@@ -1,1 +1,1 @@
-:steam_locomotive:
+:tired_face:
