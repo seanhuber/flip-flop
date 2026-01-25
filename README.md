@@ -1,1 +1,1 @@
-:persevere:
+:hourglass_flowing_sand:
