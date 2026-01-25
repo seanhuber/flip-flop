@@ -1,1 +1,1 @@
-:symbols:
+:hash:
