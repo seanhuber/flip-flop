@@ -1,1 +1,1 @@
-:arrow_double_up:
+:inbox_tray:
