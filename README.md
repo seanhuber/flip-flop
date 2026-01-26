@@ -1,1 +1,1 @@
-:fries:
+:construction_worker:
