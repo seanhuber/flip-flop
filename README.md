@@ -1,1 +1,1 @@
-:cat2:
+:statue_of_liberty:
