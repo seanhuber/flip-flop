@@ -1,1 +1,1 @@
-:clock1:
+:point_left:
