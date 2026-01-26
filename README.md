@@ -1,1 +1,1 @@
-:mushroom:
+:floppy_disk:
