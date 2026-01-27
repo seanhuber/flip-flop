@@ -1,1 +1,1 @@
-:pushpin:
+:swimmer:
