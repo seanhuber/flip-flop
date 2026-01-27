@@ -1,1 +1,1 @@
-:rose:
+:joy_cat:
