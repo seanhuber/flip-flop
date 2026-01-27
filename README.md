@@ -1,1 +1,1 @@
-:lips:
+:bicyclist:
