@@ -1,1 +1,1 @@
-:rabbit:
+:floppy_disk:
