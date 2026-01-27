@@ -1,1 +1,1 @@
-:white_flower:
+:ear_of_rice:
