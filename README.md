@@ -1,1 +1,1 @@
-:hamster:
+:mans_shoe:
