@@ -1,1 +1,1 @@
-:smoking:
+:monkey_face:
