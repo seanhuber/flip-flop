@@ -1,1 +1,1 @@
-:earth_africa:
+:mailbox_with_no_mail:
