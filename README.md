@@ -1,1 +1,1 @@
-:mans_shoe:
+:black_large_square:
