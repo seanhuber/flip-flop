@@ -1,1 +1,1 @@
-:art:
+:large_blue_circle:
