@@ -1,1 +1,1 @@
-:sound:
+:white_large_square:
