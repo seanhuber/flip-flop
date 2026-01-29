@@ -1,1 +1,1 @@
-:clapper:
+:potable_water:
