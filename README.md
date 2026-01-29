@@ -1,1 +1,1 @@
-:airplane:
+:thumbsup:
