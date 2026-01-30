@@ -1,1 +1,1 @@
-:slot_machine:
+:house_with_garden:
