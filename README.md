@@ -1,1 +1,1 @@
-:lips:
+:slot_machine:
