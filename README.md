@@ -1,1 +1,1 @@
-:penguin:
+:incoming_envelope:
