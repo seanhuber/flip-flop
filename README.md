@@ -1,1 +1,1 @@
-:cupid:
+:musical_note:
