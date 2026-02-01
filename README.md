@@ -1,1 +1,1 @@
-:symbols:
+:partly_sunny:
