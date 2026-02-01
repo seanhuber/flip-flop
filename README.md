@@ -1,1 +1,1 @@
-:japanese_ogre:
+:orange_book:
