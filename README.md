@@ -1,1 +1,1 @@
-:8ball:
+:crying_cat_face:
