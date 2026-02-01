@@ -1,1 +1,1 @@
-:octopus:
+:rice_cracker:
