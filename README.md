@@ -1,1 +1,1 @@
-:handbag:
+:japanese_ogre:
