@@ -1,1 +1,1 @@
-:blue_heart:
+:telephone_receiver:
