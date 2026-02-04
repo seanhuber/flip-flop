@@ -1,1 +1,1 @@
-:telephone_receiver:
+:palm_tree:
