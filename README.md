@@ -1,1 +1,1 @@
-:wink:
+:pager:
