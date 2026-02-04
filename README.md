@@ -1,1 +1,1 @@
-:pager:
+:date:
