@@ -1,1 +1,1 @@
-:truck:
+:blue_heart:
