@@ -1,1 +1,1 @@
-:no_bicycles:
+:low_brightness:
