@@ -1,1 +1,1 @@
-:do_not_litter:
+:jack_o_lantern:
