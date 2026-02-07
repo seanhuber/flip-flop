@@ -1,1 +1,1 @@
-:chart_with_upwards_trend:
+:black_large_square:
