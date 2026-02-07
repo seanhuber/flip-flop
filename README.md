@@ -1,1 +1,1 @@
-:whale2:
+:heavy_division_sign:
