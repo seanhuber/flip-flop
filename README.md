@@ -1,1 +1,1 @@
-:warning:
+:whale2:
