@@ -1,1 +1,1 @@
-:wavy_dash:
+:chart_with_upwards_trend:
