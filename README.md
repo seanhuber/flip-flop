@@ -1,1 +1,1 @@
-:ticket:
+:do_not_litter:
