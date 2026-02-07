@@ -1,1 +1,1 @@
-:black_large_square:
+:negative_squared_cross_mark:
