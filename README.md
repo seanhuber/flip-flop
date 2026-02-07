@@ -1,1 +1,1 @@
-:necktie:
+:no_smoking:
