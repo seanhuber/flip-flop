@@ -1,1 +1,1 @@
-:wind_chime:
+:wavy_dash:
