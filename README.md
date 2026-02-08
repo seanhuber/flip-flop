@@ -1,1 +1,1 @@
-:scream:
+:six_pointed_star:
