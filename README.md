@@ -1,1 +1,1 @@
-:aquarius:
+:crossed_flags:
