@@ -1,1 +1,1 @@
-:man_with_turban:
+:honey_pot:
