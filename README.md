@@ -1,1 +1,1 @@
-:two_men_holding_hands:
+:japanese_castle:
