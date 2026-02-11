@@ -1,1 +1,1 @@
-:dollar:
+:izakaya_lantern:
