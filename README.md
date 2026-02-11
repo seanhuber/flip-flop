@@ -1,1 +1,1 @@
-:joy:
+:busts_in_silhouette:
