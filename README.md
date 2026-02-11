@@ -1,1 +1,1 @@
-:sweat_smile:
+:european_post_office:
