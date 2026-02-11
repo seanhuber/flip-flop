@@ -1,1 +1,1 @@
-:smile:
+:game_die:
