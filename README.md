@@ -1,1 +1,1 @@
-:bouquet:
+:ear_of_rice:
