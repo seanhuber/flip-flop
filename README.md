@@ -1,1 +1,1 @@
-:lollipop:
+:pencil2:
