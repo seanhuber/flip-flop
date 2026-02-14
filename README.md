@@ -1,1 +1,1 @@
-:atm:
+:carousel_horse:
