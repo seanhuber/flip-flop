@@ -1,1 +1,1 @@
-:arrow_lower_left:
+:8ball:
