@@ -1,1 +1,1 @@
-:wrench:
+:curry:
