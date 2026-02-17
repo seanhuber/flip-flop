@@ -1,1 +1,1 @@
-:children_crossing:
+:izakaya_lantern:
