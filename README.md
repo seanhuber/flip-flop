@@ -1,1 +1,1 @@
-:hurtrealbad:
+:japanese_goblin:
